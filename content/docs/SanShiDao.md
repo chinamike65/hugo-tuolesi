@@ -314,7 +314,7 @@ you should first practise the yoga with signs and then the yoga without signs,
 so that you can attain the various siddhis mentioned in tantra; 
 If you study the tantric methods of the Supreme Yoga (Atiyoga), 
 you should first learn the "Generation Stage", then the "Perfection Stage".
-After cultivating the "Completion Stage", one finally attains the supreme Buddhahood.
+After cultivating the "Perfection Stage", one finally attains the supreme Buddhahood.
 
 
 
