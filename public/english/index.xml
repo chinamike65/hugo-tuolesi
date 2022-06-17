@@ -1,0 +1,35 @@
+<?xml version="1.0" encoding="utf-8" standalone="yes"?>
+<rss version="2.0" xmlns:atom="http://www.w3.org/2005/Atom">
+  <channel>
+    <title>English Texts on Tuo Le Si English</title>
+    <link>https://tuo-le-si.herokuapp.com/english/</link>
+    <description>Recent content in English Texts on Tuo Le Si English</description>
+    <generator>Hugo -- gohugo.io</generator>
+    <language>zh-cn</language>
+    <lastBuildDate>Fri, 13 May 2022 11:57:00 +0200</lastBuildDate><atom:link href="https://tuo-le-si.herokuapp.com/english/index.xml" rel="self" type="application/rss+xml" />
+    <item>
+      <title>Brief Intro</title>
+      <link>https://tuo-le-si.herokuapp.com/english/intro_final/</link>
+      <pubDate>Fri, 13 May 2022 11:57:22 +0200</pubDate>
+      
+      <guid>https://tuo-le-si.herokuapp.com/english/intro_final/</guid>
+      <description>Brief biography of Master Ah Wang Gyatso
+On the fifteenth day of the first lunar month in 1969, Ah Wang Gyatso was born in Hainan Tibetan Autonomous Prefecture of Qinghai Province. He began his study of Buddhism at the age of six and became a monk at the age of 18. He had seven teachers including Master Gazang Qusong.
+Masters
+These seven masters all were taught by Lako Rinpoche, the greatest Buddhist scholar and great saviour of Tibetan Buddhism in the 20th century, and the transmission of the teachings down through this lineage is very pure and complete.</description>
+    </item>
+    
+    <item>
+      <title>Brief Biography of Master Ah Wang Gyatso</title>
+      <link>https://tuo-le-si.herokuapp.com/english/brief_bio/</link>
+      <pubDate>Mon, 31 Jan 2022 12:33:35 +0100</pubDate>
+      
+      <guid>https://tuo-le-si.herokuapp.com/english/brief_bio/</guid>
+      <description>阿旺上师简介 Ā wàng shàng shī jiǎnjiè.
+Brief biography of Master Ah Wang Gyatso 1969年农历正月十五，阿旺嘉措金刚上师降生于青海省海南藏族自治州境内，六岁即入佛门，十八岁出家为僧，曾师从拉茂雍增大法王、十世班禅、尕藏曲松金刚上师等七位上师。
+1969 Nián nónglì zhēngyuè shíwǔ, ā wàng jiā cuò jīngāng shàng shī jiàngshēng yú qīnghǎi shěng hǎinán zàngzú zìzhìzhōu jìngnèi, liù suì jí rù fómén, shíbā suì chūjiā wèi sēng, céng shī cóng lā mào yōng zēng dàfǎ wáng, shí shì bānchán, gǎ cáng qū sōng jīngāng shàng shī děng qī wèi shàng shī.
+On the fifteenth day of the first lunar month in 1969, Ah Wang Gyatso was born in Hainan Tibetan Autonomous Prefecture of Qinghai Province.</description>
+    </item>
+    
+  </channel>
+</rss>
