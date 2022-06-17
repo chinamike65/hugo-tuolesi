@@ -231,7 +231,7 @@ The main practice of Bodhisattva is to practice the six degrees and four repercu
 
 Xuéxí "liù dù" lái chéngshú zìshēn, xiū xué "sì shè" qù chéngshú yǒuqíng.
 
-Learn the "six degrees" to mature yourself, and study the "four shots" to mature 
+Learn the "Six Degrees" to mature yourself, and study the "four shots" to mature 
 emotionally.
 
 
@@ -307,7 +307,7 @@ of the "common path".
 Ruò xiū xué xià sān bù mì fǎ, dāngxiān xiū yǒu xiāng yújiā, hòu xiū wūxiāng yújiā, 
 yóu cǐ néng zhèng dé mìzōng suǒ shuō de gèzhǒng xīde; 
 ruò xiū xué wú shàng yújiā bù mì fǎ, dāngxiān xiū xué `shēngqǐ cìdì', 
-hòu xiū `yuánmǎn cìdì', zuìhòu zhèng dé wú shàng fú guǒ.
+hòu xiū yuánmǎn cìdì, zuìhòu zhèng dé wú shàng fú guǒ.
 
 If you study the next three tantric methods, 
 you should first practise the yoga with signs and then the yoga without signs, 
