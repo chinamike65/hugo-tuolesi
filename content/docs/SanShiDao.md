@@ -238,12 +238,12 @@ emotionally.
 在上士道之後，行者可依顯教教理及修持作為基礎，再進修密乘，修習「生起次第」及「圓滿次第」，以達到與佛平等不二的境界。
 
 Zài shàng shìdào zhīhòu, xíngzhě kě yī xiǎn jiào jiàolǐ jí xiū chí zuòwéi jīchǔ, 
-zài jìnxiū mì chéng, xiūxí `shēngqǐ cìdì'jí `yuánmǎn cìdì', 
+zài jìnxiū mì chéng, xiūxí shēngqǐ cìdì jí yuánmǎn cìdì, 
 yǐ dádào yǔ fú píngděng bù èr de jìngjiè.
 
 After taking the Upper Path, practitioners can follow the teachings and 
 practice of the sutras as the basis, and then study Tantra, 
-practice the "Generation Stage" and "Completion Stage" in order to 
+practice the "Generation Stage" and "Perfection Stage" in order to 
 achieve a state of equality and non-duality with the Buddha.
 
 結論
@@ -313,7 +313,7 @@ If you study the next three tantric methods,
 you should first practise the yoga with signs and then the yoga without signs, 
 so that you can attain the various siddhis mentioned in tantra; 
 If you study the tantric methods of the Supreme Yoga (Atiyoga), 
-you should first learn the "Generation Stage", then the "Completion Stage".
+you should first learn the "Generation Stage", then the "Perfection Stage".
 After cultivating the "Completion Stage", one finally attains the supreme Buddhahood.
 
 
