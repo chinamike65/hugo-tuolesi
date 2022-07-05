@@ -46,7 +46,7 @@ The practice sequence of the Tuo Le collective practice center
 
 Explanation of the practice steps of the Tuo Le collective practice center
 
-Practice requires ordered steps
+Practice requires an ordered sequence of steps
 
 Speech Blessing Mantra
 
@@ -158,15 +158,15 @@ Learning Buddhism can bring an end to any troubles you may have.
 
 **5. Use of Logic and Reasoning**
 
-Other religions only talk about faith and not logic, while Buddhism talks about logic and truth.
+Other religions only talk about faith and not about logic, while Buddhism talks about logic and truth.
 
 The Buddha said: Bhikkhus or wise people should contemplate my words well, like refining, cutting and grinding gold.
 
 **6. The Ultimate**
 
-Any religion can use reasoning to some degree, but not the end. Buddhism is a knowledge of the ultimate, which is the biggest difference between Buddhism and other religions. The truth of what the Buddha said can help reach liberation.
+Any religion can use reasoning to some degree, but not through to the end. Buddhism is a knowledge of the ultimate, which is the biggest difference between Buddhism and other religions. The truth of what the Buddha said can help reach liberation.
 
-The basic laws of all things in the universe, the origin of life, and the incredible phenomena of cultural development can be traced back to the source, including social phenomena that cannot be explained by modern science, which are clearly expressed in Buddhist scriptures.
+The basic laws of all things in the universe, the origin of life, and the incredible phenomena of cultural development can be traced back to the source, including social phenomena that cannot be explained by modern science, but which are clearly expressed in Buddhist scriptures.
 
 In the practice stage, the ultimate liberation, the ultimate emptiness, the ultimate cause and effect, and the ultimate perfection all fully demonstrate that Buddhism is a science that can achieve ultimate perfection through practice and enlightenment.
 
@@ -176,7 +176,7 @@ Tibetan Buddhism has five characteristics:
 
 Complete teaching
 
-Complete inheritance
+Unbroken lineage
 
 Complete practice
 
@@ -186,11 +186,11 @@ Complete training curriculum
 
 **1. Teaching is complete**
 
-Buddha's teachings are divided into Theravada and Mahayana. Mahayana has both the sutra method and the tantra methods. Now there are three major schools of Buddhism, referring to Southern Buddhism, Chinese Buddhism and Tibetan Buddhism. Southern Buddhism is the method of Theravada, it does not have the method of Mahayana. Chinese Buddhism is still dominated by the Mahayana Buddhism, but it does not have the four continuations of Tantric Buddhism. The teachings of Tibetan Buddhism include the Theravada method, the Mahayana Sutra method, and the Mahayana Tantra method of perfection.
+Buddha's teachings are divided into Theravada / Hinayana and Mahayana. Mahayana has both the sutra method and the tantra methods. Now there are three major schools of Buddhism, referring to Southern Buddhism, Chinese Buddhism and Tibetan Buddhism. Southern Buddhism is the method of Theravada, it does not have the method of Mahayana. Chinese Buddhism is still dominated by the Mahayana Buddhism, but it does not have the four continuations of Tantric Buddhism. The teachings of Tibetan Buddhism include the Theravada method, the Mahayana Sutra method, and the Vajrayana Tantra method of perfection.
 
 **2. The lineage is complete**
 
-Except for the precepts, most of the traditions of Southern Buddhism and Chinese Buddhism have been cut off. However, the inheritance of the precepts, oral transmission, guidance, empowerment, etc. of Tibetan Buddhism has not been broken, and the lineage is pure and complete.
+Except for the precepts, most of the traditions of Southern Buddhism and Chinese Buddhism have been cut off. However, the inheritance of the precepts, oral transmissions, guidance, empowerment, etc. of Tibetan Buddhism has not been broken, and the lineage is pure and complete.
 
 **3. The practice is complete**
 
@@ -204,11 +204,11 @@ When Buddhism spread to Southeast Asian countries, all countries integrated thei
 
 The courses of Buddhist study include sutras, tantras, and treatises. The small method and the sutra method taught by the Buddha himself are called sutras. The tantra method taught by the Buddha is called continuation.
 
-The explanations of the sutras and tantras preached by the Buddhas, by Bodhisattvas and Mahasiddhas are called sutras. There are many Buddhists who study the scriptures directly in the Southern and Chinese Buddhism.
+The explanations of the sutras and tantras preached by the Buddhas, by Bodhisattvas and Mahasiddhas are called sutras. There are many Buddhists who study the scriptures directly in Southern and Chinese Buddhism.
 
 Tibetan Buddhism generally studies the sutras first, and then the tantras, because the content of the tantras is very deep and broad, it is easier to understand the content of the tantras after studying the sutras first.
 
-Tibetan Buddhism mainly studies the Five Great Treatises, "The Broad Theory of the Bodhi Path", "The Broad Theory of the Tantric Path" and so on. A treatise contains a lot of sutras, and if you study a treatise well, you will also become familiar with a lot of sutras. Therefore, Tibetan Buddhism first studies the theories, then the scriptures, and then the continuations.
+Tibetan Buddhism mainly studies the Five Great Treatises, "The Broad Theory of the Bodhi Path", "The Broad Theory of the Tantric Path" and so on. A treatise contains references to a lot of sutras, and if you study a treatise well, you will also become familiar with a lot of sutras. Therefore, Tibetan Buddhism first studies the theories, then the scriptures, and then the continuations.
 
 Tibetan Buddhism has the five perfections, pure lineage, and the complete sequence. At the same time, it integrates the essence of 84,000 methods, so it can cure the 84,000 kinds of troubles of modern people, and it is very suitable for contemporary lay people to practice.
 
@@ -455,7 +455,7 @@ https://web.archive.org/web/20150430223200/http://ctzen.org/sunnyvale/enUS/index
 
 (2) Recite
 
-Outline of Sanshidao
+Outline of San Shi Dao
 
 (3) Learning (mainly listening to CDs and reading books)
 
@@ -486,6 +486,7 @@ The Medium-Length Treatise on the Stages of the Path to Enlightenment
 (3) Practice
 
 1. Three Body Method
+
 #### 5, The Perfection Stage Class (Supreme Yoga Department)
 
 (1) Chanting (choose one of the following according to the deity being cultivated)
@@ -516,25 +517,25 @@ The Dharma Door of Xi Zeng Huai Punishment
 
 Please arouse Bodhicitta and listen carefully!
 
-Now I will talk about the sequence of practice in the Tuo Le Center, which is also the order of success in the practice of laypeople.
+Now I will talk about the sequence of practice in the Tuo Le Center, which is also the order for success in the practice of laypeople.
 
 If you want to learn Buddhism and practice, you need a sequence, and a sequence can be completed. The sequence is very important.
 
-Without orderly cultivation, you can only accumulate a little blessing, eliminate a little karma. You will not achieve success, you will not cut off your afflictions, you will not gain renunciation, and you will not gain bodhicitta.
+Without orderly cultivation, you can only accumulate a little blessing, eliminate a little karma. You will not achieve success, you will not cut off your afflictions, you will not attain renunciation, and you will not gain bodhicitta.
 
-If there are ordered stages of practice, no matter whether you are a lay person or a monk, it will be successful.
+If there are ordered stages of practice, no matter whether you are a lay person or a monk, you will be successful.
 
-In the history of Tibetan Buddhism in the past, there were many achievements in the life of the lay family. For example, the master of the Kadampa school, Zhongdunpa, became a Buddha in his life; 
+In the history of Tibetan Buddhism in the past, there were many achievements in the life of the lay family. For example, the master of the Kadampa school, Zhongdunpa, became a Buddha in his own lifetime. 
 
-the master of the Kagyu school, Milarepa, was also a layperson and became a Buddha in his life; 
+the master of the Kagyu school, Milarepa, was also a layperson and became a Buddha in his own lifetime.
 
-Master Marpa, the great siddha of the Kagyu sect, also practiced at home; 
+Master Marpa, the great siddha of the Kagyu sect, also practiced as a householder. 
 
-Among the five Sakya Patriarchs, except for two who were monks, the other three practiced at home.
+Among the five Sakya Patriarchs, except for two who were monks, the other three practiced as laypeople.
 
 So laypeople and householders can also be successful.
 
-But now many laypeople feel that we have no hope of achieving success in our practice at home, we just recite the Buddha's words, get a little blessing, and eliminate karma.
+But now many laypeople feel that we have no hope of achieving success in our practice at home, we just recite the Buddha's words, get a little blessing, and eliminate some karma.
 
 The idea is wrong, don't be so pessimistic.
 
@@ -552,11 +553,11 @@ For example, to build a ten thousand zhang tall building, it must be built on on
 
 It is impossible to build a building if it is not built in the order of first floor first and second floor second, so the order is very important.
 
-But some people ask: Isn't it said that there are people who achieve instant achievement and become Buddhas right now? There are such people, but who is this kind of person? It refers to their achievements in previous life practice.
+But some people ask: Isn't it said that there are people who achieve instant achievement and become Buddhas right now? There are such people, but who is this kind of person? It refers to their achievements through practice in a previous life.
 
-For example, if you have attained the path of resources in your previous life, you don’t need to practice the path of resources in this life, and you start from the path of additional practice. This kind of disciple can achieve it now.
+For example, if you have attained the path of resources in your previous life, you don’t need to practice the path of resources in this life, and you start from the path of additional practice. This kind of disciple can achieve enlightenment now.
 
-The vast majority (at least 99%) of the lay disciples today are not such disciples.
+The vast majority (at least 99%) of lay disciples today are not this kind of disciple.
 
 Ordinary people among ordinary people must take it step by step, and don’t think about achieving success or enlightenment all at once, there is no such possibility.
 
@@ -586,15 +587,15 @@ Overtime classes are mainly based on reciting scriptures.
 The Heart Sutra of Prajna Paramita is the quintessence of 84,000 dharmas and must be memorized.
 
 
-The practice sequence of the Tuo Le Co-cultivation Center explains that "Chanting Sutras" is the essence of the five major treatises, and must be memorized.
+The practice sequence of the Tuo Le Co-cultivation Center explains that "Reciting Sutras" is the essence of the five major treatises, and must be memorized.
 
 The Guru Longevity Prayer is very important.
 
-If you have a strong belief in your guru, you can get great blessings; if your beliefs are small, you can get small blessings; if you don’t have beliefs, you can’t get blessings.
+If you have a strong belief in your guru, you can get great blessings; if your beliefs are small, you will get small blessings; if you don’t have any beliefs, you can’t get any blessings.
 
 Therefore, as the previous masters said, if the power of belief is great, then the power of blessing is great; the stronger the belief, the greater the blessing; if the power of belief is small, the power of blessing is small; if there is no belief, there is no blessing.
 
-Therefore, the "Longevity Prayer for Guru" must be memorized.
+Therefore, the "Longevity Prayer for the Guru" must be memorized.
 
 "Guru Yoga" is the foundation of becoming a Buddha, and it must be memorized.
 
@@ -608,17 +609,18 @@ Memorizing the merits and virtues of "The Poetry of the Bodhi Path" is equivalen
 
 "Auspicious Hymn of the Eight Saints" should also be memorized.
 
-In the "Thirty-five Buddhas Repentance", each of us has a lot of karma, so we should repent and repent every day.
+In the "Thirty-five Buddhas of Repentance", each of us has a lot of karma, so we should repent and make amends every day.
 
-Repentance, the most outstanding method in the dharma door of Xianzong is the "Thirty-five Buddhas Repentance", which must be memorized.
+Repentance, the most outstanding method in the dharma door of Xianzong is the "Thirty-five Buddhas of Repentance", which must be memorized.
 
-"Golden Brightness Most Victorious King Jing Confession" and "Minimal Confession" have only one chapter, and it is very easy to memorize them.
+"Golden Brightness Most Victorious King Jing Confession" and "Minimal Confession" have only one chapter each, and it is very easy to memorize them.
 
-"The Seven Branches of Offering", "Mandala Offering Text", "Psalmist's Prayer and Vows", "Gelushan Teaching Prosperity Vows", these have already been discussed, and they all have to be memorized.
+"The Seven Branches of Offering", "Mandala Offering Text", "Psalmist's Prayer and Vows", "Gelugpa Teaching Prosperity Vows", these have already been discussed, and they all have to be memorized.
 
 In addition to reciting the above, the overtime class will also recite the following.
 
 First, recite the Heart Sutra 10,000 times.
+
 Everyone should recite it 10,000 times on their own.
 
 If you can't recite it 10,000 times each, that's fine. You can recite it in a group, and you can finish 10,000 times in no time.
@@ -630,13 +632,13 @@ If a hundred people recite it ten times together, it counts as a thousand times,
 
 If a hundred people recite it a hundred times together, it counts as 10,000 times, that is, everyone has recited it 10,000 times.
 
-Therefore, if we practice together, we will quickly complete the Heart Sutra 10,000 times.
+Therefore, if we practice together in a group, we will quickly complete the Heart Sutra 10,000 times.
 
 After reciting the Heart Sutra 10,000 times, many obstacles will be removed.
 
 Those of us who are just beginning to practice, start by reciting the Heart Sutra.
 
-The more you recite the Heart Sutra, obstacles will be removed, and the path of cultivation will be smooth and flowing. This is the first requirement of cultivation, and it cannot be skipped.
+The more you recite the Heart Sutra, the more obstacles will be removed, and the path of cultivation will be smooth and flowing. This is the first requirement of cultivation, and it cannot be skipped.
 
 After reciting the Heart Sutra 10,000 times, we began to practice the Four Preliminaries.
 
@@ -644,7 +646,7 @@ First, recite "Four Refuges" 100,000 to 1,000,000 times.
 
 100,000 times is the minimum number, and it is best to recite it 400,000 times, or a million times.
 
-It does not take long to recite one hundred thousand or even one million times in the course of common practice.
+It does not take long to recite one hundred thousand or even one million times in the course of daily practice.
 
 For example, twenty people recite the four refuges together: 
 
