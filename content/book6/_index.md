@@ -10,5 +10,6 @@ pre = "<b>6. </b>"
 
 This is the sixth book in a series of seven.
 
+![Ah Wang](/images/book6cov.png) 
 
 {{% children  %}}
