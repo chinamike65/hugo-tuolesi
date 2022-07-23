@@ -4,6 +4,11 @@ date: 2022-01-31T12:33:35+01:00
 draft: false
 ---
 Treasures of the Dharma Ocean (1)
+
+![front](/images/fahaibao1.png)
+
+---
+
 ![front](/images/fa3frontgreet.png)
 
 
@@ -96,7 +101,7 @@ The guru is always compassionate and easily approachable, and speaks according t
 
 The master has tens of thousands of disciples of many different nationalities.
 
-The master's writings include Commentary on Philosophy, Commentary on the Vajra Prajna Paramita Sutra, Dictation from the Three Masters of the Three Paths and Three Schools, Vajrasattva Ritual and Practice, and Dakini Buddha's Mother Ritual. Tracks and Practical Practices, Practice of Retreat, Simmering Sang Ritual, Biography of Vajra Guru Gazang Qusong, History of Tibetan Buddhism, Dabao Motto, Nectar Dharma Rain, Tantric Buddhism Feng Shui" and the "Dharma Ocean Treasures" series, etc.
+The master's writings include Commentary on Philosophy, Commentary on the Vajra Prajna Paramita Sutra, Dictation from the Three Masters of the Three Paths and Three Schools, Vajrasattva Ritual and Practice, and Dakini Buddha's Mother Ritual. Tracks and Practical Practices, Practice of Retreat, Simmering Sang Ritual, Biography of Vajra Guru Gazang Qusong, History of Tibetan Buddhism, Dabao Motto, Nectar Dharma Rain, Tantric Buddhism Feng Shui and the "Dharma Ocean Treasures" series, etc.
 
 The master's writings are concise and comprehensive, and the analysis is profound and thorough, and has been praised and acclaimed by many great scholars in Buddhist circles at home and abroad.
 
@@ -122,7 +127,7 @@ Cessation of Afflictions,
 
 Logic, 
 
-and the Ultimate.
+and knowledge of the Ultimate.
 
 **1. Harmonious Co-existence**
 
@@ -168,7 +173,7 @@ Any religion can use reasoning to some degree, but not through to the end. Buddh
 
 The basic laws of all things in the universe, the origin of life, and the incredible phenomena of cultural development can be traced back to the source, including social phenomena that cannot be explained by modern science, but which are clearly expressed in Buddhist scriptures.
 
-In the practice stage, the ultimate liberation, the ultimate emptiness, the ultimate cause and effect, and the ultimate perfection all fully demonstrate that Buddhism is a science that can achieve ultimate perfection through practice and enlightenment.
+In practical terms, the ultimate liberation, the ultimate emptiness, the ultimate cause and effect, and the ultimate perfection all fully demonstrate that Buddhism is a science that can achieve ultimate perfection through practice and enlightenment.
 
 #### Characteristics of Tibetan Buddhism
 
@@ -186,29 +191,29 @@ Complete training curriculum
 
 **1. Teaching is complete**
 
-Buddha's teachings are divided into Theravada / Hinayana and Mahayana. Mahayana has both the sutra method and the tantra methods. Now there are three major schools of Buddhism, referring to Southern Buddhism, Chinese Buddhism and Tibetan Buddhism. Southern Buddhism is the method of Theravada, it does not have the method of Mahayana. Chinese Buddhism is still dominated by the Mahayana Buddhism, but it does not have the four continuations of Tantric Buddhism. The teachings of Tibetan Buddhism include the Theravada method, the Mahayana Sutra method, and the Vajrayana Tantra method of perfection.
+Buddha's teachings are divided into Theravada / Hinayana and Mahayana. Mahayana has both the sutra method and the tantra methods. Now there are three major schools of Buddhism, referring to Southern Buddhism, Chinese Buddhism and Tibetan Buddhism. Southern Buddhism is the method of Theravada, it does not have the method of Mahayana. Chinese Buddhism is still dominated by  Mahayana Buddhism, but it does not have the four continuations of Tantric Buddhism. The teachings of Tibetan Buddhism include the Theravada method, the Mahayana Sutra method, and the Vajrayana Tantra method of perfection.
 
 **2. The lineage is complete**
 
-Except for the precepts, most of the traditions of Southern Buddhism and Chinese Buddhism have been cut off. However, the inheritance of the precepts, oral transmissions, guidance, empowerment, etc. of Tibetan Buddhism has not been broken, and the lineage is pure and complete.
+Except for the sutras, most of the traditions of Southern Buddhism and Chinese Buddhism have been cut off. However, the inheritance of the precepts, oral transmissions, guidance, empowerments, etc. of Tibetan Buddhism have not been broken, and the lineage is pure and complete.
 
 **3. The practice is complete**
 
-Southern Buddhism cultivates the precepts for liberation and the thirty-seven paths. Chinese Buddhism cultivates the precepts of separation and liberation, the precepts of Bodhisattva, compassion, bodhicitta, and six degrees of perfection. Tibetan Buddhism practice is complete: the external practice of the Hinayana method, the internal practice of the Mahayana Sutra method and the Tantric practice of the four tantras, and the practice of the three vehicle precepts of Biejie, Bodhisattva and Tantric.
+Southern Buddhism cultivates the precepts for liberation and the thirty-seven paths. Chinese Buddhism cultivates the precepts of separation and liberation, the precepts of Bodhisattva, compassion, bodhicitta, and six degrees of perfection. Tibetan Buddhist practice is complete: the external practice of the Hinayana method, the internal practice of the Mahayana Sutra method and the Tantric practice of the four tantras, and the practice of the three vehicles of special liberation vows, Bodhisattva vows and Tantric vows.
 
 **4. Well preserved**
 
-When Buddhism spread to Southeast Asian countries, all countries integrated their own local culture into Buddhism, and Buddhism was more or less influenced by local culture. When Buddhism entered China, Taoism and Confucian culture were very prosperous, so Han culture influenced Buddhism, and Buddhism became Han-style Buddhism. When Buddhism was introduced to Tibetan areas, there was no special culture formed in Tibet, so Tibetan culture was formed on the basis of mature Buddhism. Likewise, the Tibetan language is also formed on the basis of Sanskrit. Therefore, Tibetan Buddhism has preserved the original teachings of the Buddha of more than 2,500 years ago.
+When Buddhism spread to Southeast Asian countries, all countries integrated their own local culture into Buddhism, and Buddhism was more or less influenced by local culture. When Buddhism entered China, Taoism and Confucian culture were highly developed, so Han culture influenced Buddhism, and Buddhism there became Han-style Buddhism. When Buddhism was introduced to Tibetan areas, there was no special culture formed in Tibet, so Tibetan culture evolved on the basis of mature Buddhism. Likewise, the Tibetan language is also formed on the basis of Sanskrit. Therefore, Tibetan Buddhism has preserved the original teachings of the Buddha of more than 2,500 years ago.
 
 **5. The course is complete**
 
 The courses of Buddhist study include sutras, tantras, and treatises. The small method and the sutra method taught by the Buddha himself are called sutras. The tantra method taught by the Buddha is called continuation.
 
-The explanations of the sutras and tantras preached by the Buddhas, by Bodhisattvas and Mahasiddhas are called sutras. There are many Buddhists who study the scriptures directly in Southern and Chinese Buddhism.
+The explanations of the scriptures and tantras preached by the Buddhas, by Bodhisattvas and Mahasiddhas are called sutras. There are many Buddhists who study the scriptures directly in Southern and Chinese Buddhism.
 
-Tibetan Buddhism generally studies the sutras first, and then the tantras, because the content of the tantras is very deep and broad, it is easier to understand the content of the tantras after studying the sutras first.
+Tibetan Buddhism generally studies the sutras first, and then the tantras, because the content of the tantras is very deep and broad, it is easier to understand the content of the tantras having studied the sutras first.
 
-Tibetan Buddhism mainly studies the Five Great Treatises, "The Broad Theory of the Bodhi Path", "The Broad Theory of the Tantric Path" and so on. A treatise contains references to a lot of sutras, and if you study a treatise well, you will also become familiar with a lot of sutras. Therefore, Tibetan Buddhism first studies the theories, then the scriptures, and then the continuations.
+Tibetan Buddhism mainly studies the Five Great Treatises, "The Great Treatise on the Stages of the Path to Enlightenment", "The Esoteric Essays on the Stages of Tantric Buddhism" and so on. A treatise contains references to a lot of sutras, and if you study a treatise well, you will also become familiar with a lot of sutras. Therefore, Tibetan Buddhism first studies the theories, then the scriptures, and then the continuations (the tantras).
 
 Tibetan Buddhism has the five perfections, pure lineage, and the complete sequence. At the same time, it integrates the essence of 84,000 methods, so it can cure the 84,000 kinds of troubles of modern people, and it is very suitable for contemporary lay people to practice.
 
@@ -260,6 +265,7 @@ Tibetan Buddhism has the five perfections, pure lineage, and the complete sequen
 
 **Master Jiamu Xieba**
 
+---
 
 **Training Curriculum - Tuo Le Si Monastery**
 
@@ -267,37 +273,41 @@ Tibetan Buddhism has the five perfections, pure lineage, and the complete sequen
 
 **(1) Recitation**
 
-[Heart Sutra](/english/heartsutranotes)
+1. [Heart Sutra](/english/heartsutranotes)
 
-Chanting Scriptures
+2. Chanting Scriptures
 
-Guru Longevity Prayer
+3. Guru Longevity Prayer
 
-Guru Yoga
+4. Guru Yoga
 
-Ode to the Way of Victory
+5. Foundation of All Good Qualities
 
-The Three Main Paths
+6. The Three Main Paths
 
-Poetry of the Bodhi Path
+7. Poetry of the Bodhi Path
 
-Auspicious hymn of the eight saints
+8. The Verses of Prayer to the Eight Noble Auspicious Ones
 
-Thirty-five Buddhas of Confession [35 Buddhas](/book1/book1_35Buddhas)
+9. Thirty-five Buddhas of Confession 
 
-Jin Guangming is the most superior to Wang Jing's confession
+[35 Buddhas](/book1/book1_35Buddhas)
 
-Minimalist Confession
+10. The Golden Splendour (Suvarnaprabhasa Sutra)
 
-Seven Offerings
+11. Minimalist Confession
 
-Mandala Offering text
+12. Seven Offerings
 
-Puxian's Wish
+13. Mandala Offering text
 
-Gelugpa Prosperity Wishes
+14. Samantabhadra’s "Aspiration to Good Actions"
 
-**(2) Chanting**
+https://www.lotsawahouse.org/words-of-the-buddha/samantabhadra-aspiration-good-actions
+
+15. Gelugpa Prosperity Wishes
+
+**(2) Chanting / Recitation**
 
 1. Heart Sutra 10,000 times
 
@@ -310,6 +320,8 @@ Gelugpa Prosperity Wishes
     3. Mandala offering - more than 100,000 times
 
     4. Vajrasattva Mantra - 100,000 times
+
+    [Vajrasattva Mantra](/book1/book1_vajrasattvamantra)
 
 **(3) Study (mainly listening to CDs and reading books)**
 
