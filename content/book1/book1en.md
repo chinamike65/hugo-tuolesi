@@ -583,7 +583,7 @@ It is divided into five classes:
 
 the first class is the Preparatory class, 
 
-the second class is the affairs department class, 
+the second class is the Main class, 
 
 the third class is the wisdom stage, 
 
@@ -745,7 +745,7 @@ The other contents of Sijiaxing are also learned by watching videos and legal te
 
 When offering Mantra, those who have not offered Mantra before should study the video for Mantra in advance. After all Mantra's meaning is understood, repair Mantra.
 
-To study "Chanting Sutras", also read the video and the relevant content in "Treasures of the Dharma Ocean".
+To study "Chanting Sutras", also watch the video and the relevant content in "Treasures of the Dharma Ocean".
 
 Learn Sanshidao again.
 
@@ -753,7 +753,7 @@ There are two kinds of Sanshidao CDs, one is Sanshidao taught in Hong Kong, and 
 
 Look at both, because there is a little difference between the two.
 
-It is very important to read the video of Sanshidao and the related content of Sanshidao in Treasure of the Sea of ​​Fa.
+It is very important to watch the video of Sanshidao and the related content of Sanshidao in Treasure of the Sea of ​​Fa.
 
 After reading the video of Sanshidao and the related Dharma texts, you will know how to practice, how to achieve, and how to follow the path of practice.
 
@@ -763,17 +763,17 @@ All study content is to help learn through the above methods.
 
 Memorize and recite the scriptures according to the above requirements, and when you have completed your studies, you can graduate after taking extra classes.
 
-Everyone works hard, I believe that preparatory classes will soon graduate.
+If everyone works hard, I believe that preparatory classes will soon graduate.
 
-After graduating from the preparatory class, they will enter the ministry class, and other new disciples can enter the preparatory class.
+After graduating from the preparatory class, they will enter the main class, and other new disciples can enter the preparatory class.
 
 Each group practice center will start the group practice once a week, and it will increase to two or three times later.
 
 At present, there is only one preparatory class, and other classes will be gradually added in the future. When there are all five classes, then the co-cultivation center will have co-cultivation learning every day, which is very good!
 
-The second class is the Ministry class.
+The second class is the Main class.
 
-The Ministry class will first recite the following:
+The Miain class will first recite the following:
 
 Recite the Twenty-One Tara Sutra 10,000 times, and it is even better if you can recite it 100,000 times.
 
@@ -804,7 +804,7 @@ Reciting the mantra of the Buddha's Mother of Light a hundred thousand times can
 
 If you recite the Ruyi Guanyin mantra a million times, you can get your wish.
 
-This is what the Ministry class recites.
+This is what the Main class recites.
 
 Although 100,000 times and 1,000,000 times may seem like a lot, they are very fast when they practice together. One hundred thousand times can be completed quickly in two or three times.
 
@@ -835,21 +835,21 @@ When we start to study the four tantras of tantra, we will understand what tantr
 
 The third class is the Prajna class.
 
-The Prajna class studies the Dharma of the Xian sect, and it should have been in the front of the affairs department class.
+The Prajna class studies the Dharma of the Xian sect, and it should have been in the front of the main class.
 
-Why put the Prajna class in the third class?
+Why put the Prajna class in the third position?
 
 It is because our karma is very heavy and our troubles are great.
 
-Reciting the mantra of the Buddhas and Bodhisattvas during the ministry class can eliminate our karma, especially the big karma, and get the blessing of the Buddhas and Bodhisattvas.
+Reciting the mantra of the Buddhas and Bodhisattvas during the main class can eliminate our karma, especially big karma, and brings the blessings of the Buddhas and Bodhisattvas.
 
 Then enter the prajna class to practice prajna, and you can learn the wisdom of prajna, which is the wisdom of emptiness.
 
-If you don't get the blessings of Buddhas and Bodhisattvas, and your karmic obstacles have not been eliminated to a certain level, no matter how clearly the master talks about emptiness, it will be difficult for the disciples to understand fully. This is a secret sequence.
+If you don't get the blessings of Buddhas and Bodhisattvas, and your karmic obstacles have not been eliminated to a certain level, no matter how clearly the master talks about emptiness, it will be difficult for you to understand fully. This is a secret sequence.
 
-The original order is that the Prajna class comes first, and the affairs department follows.
+The original order is that the Prajna class comes first, and the main class follows.
 
-The affairs department class is placed in the front, and then enters the prajna class to cultivate prajna. This is the secret sequence.
+The main class is placed in the front, and then enters the prajna class to cultivate insight. This is the secret sequence.
 
 Ordinary masters don't understand this secret sequence, and everyone should understand it.
 
