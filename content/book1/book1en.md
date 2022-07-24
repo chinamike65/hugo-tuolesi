@@ -289,9 +289,7 @@ Tibetan Buddhism has the five perfections, pure lineage, and the complete sequen
 
 8. The Verses of Prayer to the Eight Noble Auspicious Ones
 
-9. Thirty-five Buddhas of Confession 
-
-[35 Buddhas](/book1/book1_35Buddhas)
+9. Thirty-five Buddhas of Confession - [35 Buddhas](/book1/book1_35Buddhas)
 
 10. The Golden Splendour (Suvarnaprabhasa Sutra)
 
@@ -311,7 +309,7 @@ https://www.lotsawahouse.org/words-of-the-buddha/samantabhadra-aspiration-good-a
 
 1. Heart Sutra 10,000 times
 
-2. The four plus lines are as follows
+2. The four precepts are as follows
 
     1. Four refuges - more than 100,000 times
 
@@ -325,9 +323,9 @@ https://www.lotsawahouse.org/words-of-the-buddha/samantabhadra-aspiration-good-a
 
 **(3) Study (mainly listening to CDs and reading books)**
 
-1. Four plus lines
+1. Four additional actions
 
-2. Chanting Scriptures
+2. Frequent recitation of Scriptures
 
 3. San Shi Dao
 
@@ -414,7 +412,7 @@ ruru     tistha  jvala   akarsaya  hum phat svaha
 
 (2) Recitation
 
-1. [In Praise of Dependent Origination](/english/inpraiseofdeparising)
+1. In Praise of Dependent Origination - [In Praise of Dependent Origination](/english/inpraiseofdeparising)
 
 2. Prayers for good
 
@@ -477,7 +475,7 @@ Outline of San Shi Dao
 
 3. Diamond Sutra
 
-The Medium-Length Treatise on the Stages of the Path to Enlightenment
+4. The Medium-Length Treatise on the Stages of the Path to Enlightenment
 
 4. The Birth Stage (Supreme Yoga Division)
 
@@ -497,9 +495,9 @@ The Medium-Length Treatise on the Stages of the Path to Enlightenment
 
 (3) Practice
 
-1. Three Body Method
+1. Three Body Method - Three-Kaya Dharma Door
 
-#### 5, The Perfection Stage Class (Supreme Yoga Department)
+#### 5, The Perfection Stage Class (Supreme Yoga)
 
 (1) Chanting (choose one of the following according to the deity being cultivated)
 
@@ -517,7 +515,7 @@ The Dharma Door of Xi Zeng Huai Punishment
 
 (3) Practice
 
-1. Air Pulse
+1. Pulse Wind
 
 2. Kundalini
 
@@ -525,7 +523,7 @@ The Dharma Door of Xi Zeng Huai Punishment
 
 4. The Five Great Perfections
 
-**Explanation of the practice steps of the Tuo Le Community Practice Center**
+#### Explanation of the practice steps of the Tuo Le Community Practice Center
 
 Please arouse Bodhicitta and listen carefully!
 
@@ -535,11 +533,11 @@ If you want to learn Buddhism and practice, you need a sequence, and a sequence 
 
 Without orderly cultivation, you can only accumulate a little blessing, eliminate a little karma. You will not achieve success, you will not cut off your afflictions, you will not attain renunciation, and you will not gain bodhicitta.
 
-If there are ordered stages of practice, no matter whether you are a lay person or a monk, you will be successful.
+If you follow the ordered stages of practice, no matter whether you are a lay person or a monk, you will be successful.
 
-In the history of Tibetan Buddhism in the past, there were many achievements in the life of the lay family. For example, the master of the Kadampa school, Zhongdunpa, became a Buddha in his own lifetime. 
+In the history of Tibetan Buddhism in the past, there were many examples of the achievement of enlightenment in one lifetime by lay people. For example, the master of the Kadampa school, Zhongdunpa, became a Buddha in his own lifetime. 
 
-the master of the Kagyu school, Milarepa, was also a layperson and became a Buddha in his own lifetime.
+The master of the Kagyu school, Milarepa, was also a layperson and became a Buddha in his own lifetime.
 
 Master Marpa, the great siddha of the Kagyu sect, also practiced as a householder. 
 
@@ -553,9 +551,9 @@ The idea is wrong, don't be so pessimistic.
 
 All disciples who practice at home can achieve success, and even become Buddhas.
 
-Everyone should know the concept of achievement. If you have attained renunciation, it will be considered an achievement; if you have attained bodhicitta, it will be considered an achievement. Anyone who has attained the right path, such as the five paths of Buddhism, the path of accumulation, the path of practice, the path of vision, the path of cultivation, without learning the Dharma, as long as one obtains one of the Dharmas, it can be said to be an achievement.
+Everyone should know the concept of achievement. If you have attained renunciation, it will be considered an achievement; if you have attained bodhicitta, it will be considered an achievement. Anyone who has attained the right path, such as the five paths of Buddhism, the path of accumulation, the path of practice, the path of vision, the path of cultivation without learning the Dharma, as long as one obtains one of the Dharmas, it can be said to be an achievement.
 
-In fact, among lay disciples, there are many, many people who become Buddhas in one lifetime. It can be seen that lay disciples can also achieve liberation.
+In fact, among lay disciples, there are many, many people who become Buddhas in this current  lifetime. It can be seen that lay disciples can also achieve liberation.
 
 But to achieve it, you need to practice the steps.
 
@@ -563,9 +561,9 @@ Without work, there will be no success.
 
 For example, to build a ten thousand zhang tall building, it must be built on one or two floors.
 
-It is impossible to build a building if it is not built in the order of first floor first and second floor second, so the order is very important.
+It is impossible to build a building if it is not built in the order of first floor first, and second floor second, so the order is very important.
 
-But some people ask: Isn't it said that there are people who achieve instant achievement and become Buddhas right now? There are such people, but who is this kind of person? It refers to their achievements through practice in a previous life.
+But some people ask: Isn't it said that there are people who achieve instant enlightenment and become Buddhas right now? There are such people, but who is this kind of person? It refers to their achievements through practice in a previous life.
 
 For example, if you have attained the path of resources in your previous life, you don’t need to practice the path of resources in this life, and you start from the path of additional practice. This kind of disciple can achieve enlightenment now.
 
@@ -576,25 +574,26 @@ Ordinary people among ordinary people must take it step by step, and don’t thi
 But one step at a time, it will surely come.
 
 For example, when climbing a mountain, you must climb step by step! 
+
 This is the truth, everyone must understand.
 
 The practice order of the Tuo Le Center is the order in which the disciples practice in their lifetimes.
 
 It is divided into five classes: 
 
-the first class is overtime class, 
+the first class is the Preparatory class, 
 
 the second class is the affairs department class, 
 
-the third class is the prajna class, 
+the third class is the wisdom stage, 
 
-the fourth class is the birth class, 
+the fourth class is the generation stage, 
 
-and the fifth class is the consummation class.
+and the fifth class is the completion stage.
 
-**The first stage is overtime.**
+**The first stage is Preparatory.**
 
-Overtime classes are mainly based on reciting scriptures.
+Preparatory classes are mainly based on reciting scriptures.
 
 The Heart Sutra of Prajna Paramita is the quintessence of 84,000 dharmas and must be memorized.
 
@@ -615,9 +614,9 @@ Therefore, the "Longevity Prayer for the Guru" must be memorized.
 
 "The Three Main Paths" is about the three main paths of renunciation, bodhicitta, and emptiness, which must be memorized.
 
-There are more than ten chapters in "Song of the Stages of the Bodhi Path", which condensed the essence of the two major treatises, "The Extensive Treatise on the Stages of the Bodhi Path" and "The Brief Treatise on the Stages of the Bodhi Path".
+There are more than ten chapters in "Song of the Stages of the Bodhi Path", which condensed the essence of the two major treatises, "The Great Treatise on the Stages of the Path to Enlightenment" and "The Brief Treatise on the Stages of the Path to Enlightenment".
 
-Memorizing the merits and virtues of "The Poetry of the Bodhi Path" is equivalent to memorizing the merits of the "The Extensive Theory of the Bodhi Path" and "The Brief Review of the Bodhi Path".
+Memorizing the merits and virtues of "The Poetry of the Bodhi Path" is equivalent to memorizing the merits of the "The Great Treatise on the Stages of the Path to Enlightenment" and "The Brief Treatise on the Stages of the Path to Enlightenment".
 
 "Auspicious Hymn of the Eight Saints" should also be memorized.
 
@@ -629,7 +628,7 @@ Repentance, the most outstanding method in the dharma door of Xianzong is the "T
 
 "The Seven Branches of Offering", "Mandala Offering Text", "Psalmist's Prayer and Vows", "Gelugpa Teaching Prosperity Vows", these have already been discussed, and they all have to be memorized.
 
-In addition to reciting the above, the overtime class will also recite the following.
+In addition to reciting the above, the preparatory class will also recite the following.
 
 First, recite the Heart Sutra 10,000 times.
 
@@ -682,15 +681,15 @@ Guru Yoga at least 100,000 times.
 We must recite our Gelugpa Guru Yoga, that is, the prayer of Master Tsongkhapa: 
 
 ----
-Mingmei Ziwei is able to see the hot color in person,
+Objectless compassion, Chenrezig,
 
-Zhimai is like Wang Wujiang sad, 
- 
-Duhong Ma Lu Jiong Zai Sanwei De, 
- 
-Gang Jian Kebezujian Tsongkhapa, 
- 
-Lobsang Zabesha Lasowdi.
+Lord of stainless wisdom, Manjushri,
+
+Conquering mara’s horders, Vajrapani,
+
+Crown jewel of the Sages of the Land of Snows, Tsongkhapa,
+
+Losang Drakpa, at your feet, I pray.
 
 ----
 
@@ -698,7 +697,7 @@ Offer the mandala at least 100,000 times.
 
 There are thirty-seven mantras and seven mantras in the mandala, and the seven mantras are to be offered here  100,000 times.
 
-Everyone will understand the CD-ROM about Mandala.
+Everyone will understand the video about Mandala.
 
 Vajrasattva 100,000 times is a hundred-syllable mantra 100,000 times.
 
@@ -716,15 +715,15 @@ When the karma is too great, the karma cannot be forced out, it can only be elim
 
 For example, reciting the hundred-syllable mantra may bring out small pains, but small pains can eliminate big karmic obstacles such as going to hell, and small pains can eliminate big disasters.
 
-So order is important.
+So, order is important.
 
 The relationship between cause and effect is very complicated. Good and evil karma encounters conditions.
 
 Goodness is not necessarily all good, and evil is not necessarily all evil.
 
-There is good and evil, and there is good and evil.
+Good has its share of evil, and evil has its share of good.
 
-For example, good intentions can lead to bad things, but bad things can result in good things.
+For example, good intentions can lead to bad things, but bad intentions can result in good things.
 
 But the cause of good retribution must be good, and the cause of evil retribution must be evil, so it is said that good actions have good retribution, and evil actions bring evil retribution.
 
@@ -732,21 +731,21 @@ Everyone should know this.
 
 This is very important.
 
-And then overtime to study.
+And then prepare to study.
 
 First learn four plus lines.
 
-The study of the overtime class is mainly based on watching CD-ROMs and Treasures of the Dharma Ocean.
+The study of the preparatory class is mainly based on watching videos and reading the Treasures of the Dharma Ocean books.
 
-We now have CD-ROMs in the Four Refuges. When studying the Four Refuges, we should read the CD-ROMs of the Four Refuges and the contents of the Four Refuges in the Treasures of the Dharma Ocean.
+We now have videos on the Four Refuges. When studying the Four Refuges, we should watch the videos of the Four Refuges and read the material on the Four Refuges in the Treasures of the Dharma Ocean.
 
-If there is a master in charge of Tuole Temple in each center, students will watch the CD-ROM with the masters to study.
+If there is a master in charge of Tuole Temple in each center, students will watch the video with the master to study.
 
-The other contents of Sijiaxing are also learned by watching CD-ROMs and legal texts.
+The other contents of Sijiaxing are also learned by watching videos and legal texts.
 
-When offering Mantra, those who have not offered Mantra before should study the CD-ROM for Mantra in advance. After all Mantra's meaning is understood, repair Mantra.
+When offering Mantra, those who have not offered Mantra before should study the video for Mantra in advance. After all Mantra's meaning is understood, repair Mantra.
 
-To study "Chanting Sutras", also read the CD-ROM and the relevant content in "Treasures of the Dharma Ocean".
+To study "Chanting Sutras", also read the video and the relevant content in "Treasures of the Dharma Ocean".
 
 Learn Sanshidao again.
 
@@ -754,9 +753,9 @@ There are two kinds of Sanshidao CDs, one is Sanshidao taught in Hong Kong, and 
 
 Look at both, because there is a little difference between the two.
 
-It is very important to read the CD-ROM of Sanshidao and the related content of Sanshidao in Treasure of the Sea of ​​Fa.
+It is very important to read the video of Sanshidao and the related content of Sanshidao in Treasure of the Sea of ​​Fa.
 
-After reading the CD-ROM of Sanshidao and the related Dharma texts, you will know how to practice, how to achieve, and how to follow the path of practice.
+After reading the video of Sanshidao and the related Dharma texts, you will know how to practice, how to achieve, and how to follow the path of practice.
 
 This is very important.
 
@@ -764,13 +763,13 @@ All study content is to help learn through the above methods.
 
 Memorize and recite the scriptures according to the above requirements, and when you have completed your studies, you can graduate after taking extra classes.
 
-Everyone works hard, I believe that overtime classes will soon graduate.
+Everyone works hard, I believe that preparatory classes will soon graduate.
 
-After graduating from the overtime class, they will enter the ministry class, and other new disciples can enter the overtime class.
+After graduating from the preparatory class, they will enter the ministry class, and other new disciples can enter the preparatory class.
 
 Each group practice center will start the group practice once a week, and it will increase to two or three times later.
 
-At present, there is only one overtime class, and other classes will be gradually added in the future. When there are all five classes, then the co-cultivation center will have co-cultivation learning every day, which is very good!
+At present, there is only one preparatory class, and other classes will be gradually added in the future. When there are all five classes, then the co-cultivation center will have co-cultivation learning every day, which is very good!
 
 The second class is the Ministry class.
 
@@ -821,13 +820,13 @@ Next, recite the following contents:
 
 Then you need to study the following contents: 
 
-Study the "Pharmacist Sutra", 
+Study the "Medicine Buddha Sutra", 
 
-"Pharmacist Buddha Ritual", 
+"Medicine Buddha Ritual", 
 
 "Twenty-One Tara Prayer Sutra", 
 
-"The Esoteric Buddhism" (omitted).
+"Tantric Buddhism" (omitted).
 
 There are two kinds of "The Essays on the Order of the Esoteric Buddhism", the broad and the abbreviated.
 
@@ -914,28 +913,28 @@ Just cultivate the Three Body Method.
 
 When you practice the Three Body Method, you will know that you are different and can truly be liberated from the cycle of birth and death.
 
-**The fifth class is the consummation class.**
+**The fifth class is the completion class.**
 
-The consummation class should recite the Mahavira mantra 10 million times or the Dakini Buddha's mantra 10 million times or the Hayagriva mantra 10 million times.
+The completion class should recite the Mahavira mantra 10 million times or the Dakini Buddha's mantra 10 million times or the Hayagriva mantra 10 million times.
 
 
 If the deity of Mahavira is chosen, the mantra of Mahavira should be recited ten million times; if the deity of Dakini Buddha is chosen, the mantra of Dakini should be recited ten million times; should Hayagriva be chosen. The deity of Hayagriva, the mantra of Hayagriva should be recited ten million times.
 
 In terms of learning, when it comes to the completion stage, you must learn the Tantric completion stage and the method of Xi Zenghuai Punishment.
 
-In terms of practice, when it comes to the completion stage, there is no need to recite the rituals, just recite the mantra, and then it is really time to cultivate the clear point of the Qi meridian.
+In terms of practice, when it comes to the completion stage, there is no need to recite the rituals, just recite the mantra, and then it is really time to cultivate the clear points of the Qi meridians.
 
 By cultivating the qi meridian, the qi meridians in the whole body will be opened, and the qi will enter the central meridian, which is really different.
 
 Then, cultivate the kundalini fire, cultivate the non-dual nature of emptiness and great happiness, and finally cultivate the five perfections.
 
-The generation stage and the consummation stage are the two most essential stages of the supreme yoga in the four tantras.
+The generation stage and the completion stage are the two most essential stages of the supreme yoga in the four tantras.
 
 To become a Buddha, you must practice these two stages.
 
 Our stage is an ordinary layman's stage of becoming a Buddha.
 
-According to this sequence of practice, if the karmic conditions are sufficient, some people may become Buddhas in one lifetime, some people will be liberated from the cycle of birth and death in their lifetime, and some people will be reborn in the Pure Land by cultivating dakini. Rebirth in pure land.
+According to this sequence of practice, if the karmic conditions are sufficient, some people may become Buddhas in one lifetime, some people will be liberated from the cycle of birth and death in their lifetime, and some people will be reborn in the Pure Land by cultivating dakini. Rebirth in a pure land.
 
 For example, among the masters of the lineage of the Dakini Buddha, there are seven teachers and students of Nasa Zhipupa who led them to be reborn in the Pure Land of Dakinis.
 
@@ -951,17 +950,17 @@ If you work hard, you will be successful in your life.
 
 The order of practice and the methods learned by lay people are different from those of monks.
 
-When monks have time, they can study a lot, and they can even study the five major treatises completely without missing a single bit. It is different from laypeople, who don’t have so much time to study, and only learn the most essential methods.
+Monks have time and they can study a lot, and they can even study the five major treatises completely without missing a single bit. It is different for laypeople, who don’t have so much time to study, and only learn the most essential methods.
 
 For example, what Venerable Milarepa learned is the most essential method.
 
 Once the study stage is completed, and through careful practice, one will truly become a Buddha in one lifetime.
 
-The success of the family is like this.
+The success of the layperson is like this.
 
 The practice steps of the Tuo Le Center are complete. I hope everyone can practice according to these steps.
 
-Practice requires sequential steps.
+**Practice requires sequential steps.**
 
 Please arouse Bodhicitta and listen carefully!
 
@@ -969,7 +968,7 @@ What I'm going to talk about today is the order of practice.
 
 If there is no sequence in practice, there can be no achievement.
 
-If there is a step of practice, first, it can eliminate the unlawful conditions of practice. On the way to become a Buddha, there are a few obstacles, peace and health, and good health.
+If there is an order to the practice, first, it can eliminate the unlawful conditions of practice. On the way to become a Buddha, there are a few obstacles, peace and good health.
 
 Second, you can accumulate good fortune, eliminate karma and even achieve success.
 
@@ -977,7 +976,7 @@ Without order, chaotic cultivation and blind cultivation can also accumulate ble
 
 Because there will be many obstacles in the process of practice, it is important to understand that practice requires correct sequencing.
 
-According to Master Tsongkhapa's "Extensive Treatise on the Stages of the Path of Bodhi" or "A Brief Treatise on the Stages of the Path of Bodhi", first practice the lower sage path, then the middle sage path, then the upper sage path, and then enter the second stage of Tantric Buddhism, and then Becoming a Buddha is such a sequence.
+According to Master Tsongkhapa's "Great Treatise on the Stages of the Path of Bodhi" or "A Brief Treatise on the Stages of the Path of Bodhi", first practice the lower sage path, then the middle sage path, then the upper sage path, and then enter the second stage of Tantric Buddhism, and then Becoming a Buddha is such a sequence.
 
 In our simplest terms, the order is twofold: first, to cultivate perfection in the world; second, to cultivate transcendence of the world.
 
@@ -991,7 +990,7 @@ The seven virtues of man and nature are: a healthy life, a long life, a wealthy 
 
 If you cultivate such a perfect life in the world, the accumulation of good fortune will be quick.
 
-You can call on many people to chant Buddha and accumulate blessings in one sentence, so that you can accumulate blessings quickly.
+You can call on many people to chant Buddha's prayers and accumulate blessings in one sentence, so that you can accumulate blessings quickly.
 
 That is to say, being able to cultivate the seven virtues of human beings and heaven means accumulating blessings, eliminating karmic obstacles, and achieving quick achievements.
 
@@ -1023,7 +1022,7 @@ At the beginning we do not have open wisdom, we do not have the power to meditat
 
 Using wealth to build a Buddha statue can accumulate great blessings! Using wealth to support a center can accumulate great blessings! Therefore, we still need wealth to study Buddhism.
 
-Tantric and Xianzong are still a little different. Tantric practice is joyful cultivation, and Xianzong practice is penance. Therefore, Tantric does not exclude you from having wealth.
+Tantra and Sutra are still a little different. Tantric practice is joyful cultivation, and Sutra practice is penance. Therefore, Tantra does not exclude you from having wealth.
 
 The secret method talks about the five natures of the God of Wealth: The White God of Wealth, the Yellow God of Wealth, the Red God of Wealth, the Black God of Wealth, and the Green God of Wealth are required in order to practice.
 
@@ -1031,9 +1030,9 @@ Why talk about so many gods of wealth? We cultivators need wealth, so the Buddha
 
 **To study Buddhism requires a solemn appearance.**
 
-If you reach the point of transcending the world, it doesn't matter whether your appearance is dignified or not, but when you start to cultivate perfection in the world, dignified appearance is still necessary.
+If you reach the point of transcending the world, it doesn't matter whether your appearance is dignified or not, but when you start to cultivate perfection in the world, a dignified appearance is still necessary.
 
-Therefore, Medicine Buddha made twelve vows, one of which was: The appearance of all beings and mine is the same, and the appearance of all beings becomes as dignified as mine.
+Therefore, the Medicine Buddha made twelve vows, one of which was: The appearance of all beings and mine is the same, and the appearance of all beings becomes as dignified as mine.
 
 Here, an example is given to illustrate that dignified appearance is required for the cultivation of worldly perfection.
 
@@ -1045,15 +1044,15 @@ At that time, a woman in her twenties was milking a yak in the yard. The mage th
 
 The woman was very angry, so she took a handful of ashes and wanted to spread the ashes on the monk's face to vent her anger.
 
-But when she came to the monk, she saw that it was a very dignified master, so she didn't scatter the ashes and said, "Master, please come to the house for dinner!" This is the dignified appearance effect.
+But when she came to the monk, she saw that he was a very dignified master, so she didn't scatter the ashes and said, "Master, please come to the house for dinner!" This is the effect of a dignified appearance.
 
-Especially when saving sentient beings, it is especially necessary to have a dignified appearance.
+Particularly when saving sentient beings, it is especially necessary to have a dignified appearance.
 
 When the disciples see a dignified Master, it is easy for them to have confidence and respect.
 
 If the master has a bad appearance, such as scars on the mouth, slanted eyes, crooked nose, etc., although the practice is very good, ordinary people will have obstacles in their hearts because of this, and it is difficult to have a respectful heart. Therefore, in order to cultivate the perfection of the world, it is necessary to have a dignified appearance.
 
-To cultivate a dignified appearance, one should recite the holy name of the Eight Tathagatas of the Medicine Buddha as often as possible.
+To cultivate a dignified appearance, one should recite the holy names of the Eight Tathagatas of the Medicine Buddha as often as possible.
 
 With a dignified appearance, people will feel very comfortable when they see you.
 
@@ -1061,17 +1060,17 @@ But understand that being dignified doesn't necessarily mean just being pretty.
 
 **Learning Buddhism requires persuasion.**
 
-That is to say, the words have to be persuasive, and persuasive is not the same.
+That is to say, the words have to be persuasive. Just being persuasive is not the same.
 
 **Learning Buddhism requires wisdom.**
 
-A wise life is very important. Wisdom can eliminate pain and eliminate troubles.
+A wise life is very important. Wisdom can eliminate pain and eliminate worries.
 
 **Finally, learning Buddhism requires freedom and love.**
 
 It is freedom and the power to love others.
 
-There are three kinds of results of good and evil karma: present, coming, and coming.
+There are three kinds of results of good and evil karma: present, coming, and to come.
 
 The result of great good and bad karma or long-term good and bad karma is present; the result of medium good and bad karma is coming; the result of small good and evil karma is future.
 
@@ -1081,9 +1080,9 @@ Many of us who have just learned Buddhism and have just entered Buddhism have mi
 
 Misunderstood what? It's just that some people think that once you enter Buddhism, you are a monk, and you don't need a family.
 
-For example, a donor I have known for several years, I said you should take refuge.
+For example, there is a donor I have known for several years, and I said you should take refuge.
 
-He said, Master, no, I still have a wife and children. When they are able to stand on their own, I will take refuge in you.
+He said, "Master, no, I still have a wife and children. When they are able to stand on their own, I will take refuge in you."
 
 A misunderstanding, a huge misunderstanding, cultivation is not like this.
 
@@ -1099,7 +1098,7 @@ Buddha Shakyamuni taught prostration in the tantras, but there was no prostratio
 
 Prostration not only accumulates blessings, but also eliminates karma, and also exercises the body.
 
-When Buddha Shakyamuni asked us to cultivate the Eight Tathagatas of the Medicine Master, he told us that a healthy body is very important.
+When Buddha Shakyamuni asked us to cultivate the Eight Tathagatas of the Medicine Buddha, he told us that a healthy body is very important.
 
 Many people have such a misunderstanding. Now that they have studied Buddhism, the body is not important. The most important thing is the Three Jewels.
 
@@ -1109,11 +1108,13 @@ The body is a ship that sails through the sea of ​​suffering, and the body c
 
 In addition, longevity is also very important, so Buddha Shakyamuni talked about the Buddha of Longevity and the Dharma Door of Longevity.
 
+---
+
 The Second Stage is to practice transcending the world.
 
-When I first started to study Buddhism, I cultivated perfection in the world. When the practice in the world is more perfect and satisfied, I will naturally not be interested in the worldly law. When we reach this stage, the time to transcend the world will come.
+When I first started to study Buddhism, I cultivated perfection in the world. When the practice in the world is more perfect and fulfilled, I will naturally not be interested in the worldly law. When we reach this stage, the time to transcend the world will come.
 
-At this time, seeing through and letting go is letting go of wealth, family, and attachment to small families and thinking that all sentient beings in the six realms are their own parents and relatives, letting go of everything that belongs to selfishness, and that you are beyond the world.
+At this time, seeing through and letting go is letting go of wealth, family, and attachment to small families and thinking that all sentient beings in the six realms are your own parents and relatives, letting go of everything that belongs to selfishness, and that you are beyond the world.
 
 Once you transcend the world, it will be completely different, your heart will be opened, and you will be able to accommodate the entire world.
 
@@ -1123,25 +1124,27 @@ However, the wonderful thing is that when we let go and stop pursuing wealth, we
 
 Because our hearts are opened, it will be different, and we can say that we have become the masters of the world.
 
-There is room for sentient beings in the six realms in your heart, if you tell a cockroach to go out, it will go out, and even the cockroach will listen to you.
+There is room for all sentient beings in the six realms in your heart, if you tell a cockroach to get out, it will get out, and even the cockroach will listen to you.
 
 Beyond that, then you are completely different.
 
 Now we need to cultivate the four immeasurable minds and open our minds. When our minds are truly opened, we don’t need to pursue those things, and what you need will come naturally.
 
-To open your heart, you need to cultivate patience. Now when people scold you, you can't stand it; when people blame you, you can't stand it; even if they don't show you a good face, you can't stand it. If someone scolds you, you won't feel uncomfortable; if they beat you, you won't feel uncomfortable; if they don't show you a good face, you won't feel uncomfortable, on the contrary, you will feel very happy.
+To open your heart, you need to cultivate patience. Now when people scold you, you can't stand it; when people blame you, you can't stand it; even if they don't show you a good face, you can't stand it. 
+
+Having transcended the world, if someone scolds you, you won't feel uncomfortable; if they beat you, you won't feel uncomfortable; if they don't show you a good face, you won't feel uncomfortable, on the contrary, you will feel very happy.
 
 But at this level, no one will do this to you.
 
 For example, Venerable Atisha said that there were only two people in the world who dared to scold him at that time, and those two people were creditors from his past life.
 
-Although Venerable Atisha has achieved success, the two resentful creditors were very, very deeply resentful. Whenever the Venerable Atisha did something they didn't like, they would immediately scold him, this is wrong, and that is not right.
+Although Venerable Atisha has achieved success, the two resentful creditors were very, very deeply resentful. Whenever the Venerable Atisha did something they didn't like, they would immediately scold him: this is wrong, and that is not right.
 
 Venerable Atisha said, these two people are my teachers of forbearance, and they are my masters.
 
 So when you reach beyond the world in your practice, you can hardly find anyone who scolds you, and you can't find anyone who blames you. Even if someone really scolds you and blames you, you will be very happy.
 
-Look at those two people who were complaining about Venerable Atisha, Venerable Atisha was also very happy!
+Look at those two people who were complaining about Venerable Atisha. Venerable Atisha was also very happy!
 
 Right now, we haven’t transcended the world, and many things that go beyond the world in Buddhism are inappropriate for us people today.
 
@@ -1220,7 +1223,7 @@ In India, he met many great siddhas and went to them to seek Dharma.
 
 He sought many methods, among them the Speech Blessing Mantra.
 
-After Master Qiongwu returned to the Tibetan area, many masters in the Tibetan area came to ask him, "What kind of dharma did you seek in India?" He said proudly, "I went to India to seek a very splendid dharma — language support".
+After Master Qiongwu returned to the Tibetan area, many masters in the Tibetan area came to ask him, "What kind of dharma did you seek in India?" He said proudly, "I went to India to seek a very splendid dharma — Speech Blessing Mantra".
 
 In fact, when he went to India, he obtained hundreds of excellent methods, but he felt that the Speech Blessing Mantra was the most excellent, so he proudly told the masters in Tibetan areas: "I went to India to get the Speech Blessing Mantra method, I recite the mantra and it will definitely work.
 
@@ -1242,7 +1245,7 @@ Rako Rinpoche said: "I don't have so much extravagance to make right and wrong i
 
 Rako Rinpoche also said: "If the Speech Blessing Mantra is well cultivated, gossip can be turned into a mantra."
 
-Master Qiongwu once said that "mantra can be increased tens of millions of times", which means that after practicing the blessing, the number of mantras recited will increase, the merit will increase, and the increase will increase millions of times; After the Speech Blessing Mantra, the mantra will not be hindered by external forces; "Voice can attract thousands of people", if you practice well, ordinary words or unintentional jokes, no matter from which point of view, every one sounds very good. It makes sense, and I think this sentence has the effect of reminding everyone; "All sounds become mantras." If you practice good language and blessings, all sounds and gossip will become mantras, and even the sound of coughing will become mantras, which is really incredible.
+Master Qiongwu once said that "mantra can be increased tens of millions of times", which means that after practicing the blessing, the number of mantras recited will increase, the merit will increase, and the increase will multiply millions of times; After the Speech Blessing Mantra, the mantra will not be hindered by external forces; "Voice can attract thousands of people", if you practice well, ordinary words or unintentional jokes, no matter from which point of view, every one sounds very good. It makes sense, and I think this sentence has the effect of reminding everyone; "All sounds become mantras." If you practice good language and blessings, all sounds and gossip will become mantras, and even the sound of coughing will become a mantra, which is really incredible.
 
 To cultivate the Speech Blessing Mantra method, you must first recite the following rituals with me: ah () on the tongue of the self-respect, the character ah turns into a full moon disk, the white om () character appears on the moon disk, the om character is surrounded by vowels, and the white color is clockwise. Arranged, there are consonant mantras on the outside, the red is arranged counterclockwise, the mantra of Dependent Origination is surrounded by the outside, the blue is arranged clockwise, the mantra is released and brought back, the blessing of the Guru Three Jewels, the deity protector of the Arhat force, the holy language man and the blessing of heaven Force, earth, water, fire, wind, cosmic force, om () ah () hum () and three mantras, white, red, yellow (blue) light and seven treasures, and eight kinds of mascots, all things are integrated into the word om.
 
@@ -1262,10 +1265,10 @@ Yujia holds a mantra wheel, and it is easier to visualize when you understand th
 
 ![Blessing Mantra Wheel](/images/mantrawheel.png)
 
-Blessing Mantra Wheel
+Speech Blessing Mantra Wheel
 
 
-vowel mantra
+Vowel mantra
 
 ![vowel mantra](/images/vowelmantra.png)
 
@@ -1273,7 +1276,7 @@ Om ah ah ah ah ah ah ah ah ah ah ah ah ah ah ah ah
 
 ![consonant mantra](/images/consonantmantra.png)
 
-consonant mantra
+Consonant mantra
 
 Gaka Gaga Azazazazazazachachachachacha Nadata Dattana
 
@@ -1322,7 +1325,7 @@ After the tibetan characters are missing, the blessing of the guru, the blessing
 
 Om Banzaer Sapon (Vajrasattva Heart Mantra)
 
-The Vajrasattva mantra or the hundred-syllable mantra should be recited seven times, fourteen times if there is time, or twenty-one times, but at least seven times. After reciting, recite the "vowel mantra" and the "consonant mantra", and the "vowel mantra" and "consonant mantra" should be recited together:
+The Vajrasattva mantra or the hundred-syllable mantra should be recited seven times, fourteen times if there is time, or twenty-one times, but at the very least seven times. After reciting, recite the "vowel mantra" and the "consonant mantra", and the "vowel mantra" and "consonant mantra" should be recited together:
 
 Om ah ah ah ah ah ah ah ah ah ah ah ah ah ah ah ah
 
@@ -1360,7 +1363,7 @@ Why use Sanskrit to teach scriptures? Sanskrit is very expressive, and no other 
 
 So Indians learn any language very quickly, because there are eight parts of the pronunciation of consonants and vowels in Sanskrit.
 
-Some sounds come from the nostrils, some from the top of the forehead, some from the eyes, some from the base of the tongue, some from the tip of the tongue, and some from the middle of the tongue .
+Some sounds come from the nostrils, some from the top of the forehead, some from the eyes, some from the base of the tongue, some from the tip of the tongue, and some from the middle of the tongue.
 
 In short, there are eight parts of Sanskrit pronunciation, usually other languages ​​don't have so many parts, so we can't pronounce some sounds at all.
 
@@ -1406,7 +1409,7 @@ We need to practice language and blessing. It may take an hour or half an hour a
 
 It's hard at first, but it's pretty easy once you get used to it.
 
-The teaching on the Speech Blessing Mantra is finished, I hope everyone can cultivate to Consummation!
+The teaching on the Speech Blessing Mantra is finished, I hope everyone can cultivate to completion!
 
 Tashi Delek!
 
@@ -1536,7 +1539,7 @@ When the prophecy of Master Tsongkhapa, "the future practice of all Buddhas and 
 
 And when the Buddha predicted Master Tsongkhapa, Master Tsongkhapa was the second Buddha, and no other great siddhas mentioned the second Buddha.
 
-When Wusang and Nagarjuna Bodhisattva prophesied, they were also not prophesied as the second Buddha. Only Master Tsongkhapa was prophesied to be the second Buddha.
+When Atisha and Nagarjuna Bodhisattva prophesied, they were also not prophesied as the second Buddha. Only Master Tsongkhapa was prophesied to be the second Buddha.
 
 "Practice and uphold the Buddha's business of all Buddhas", the Buddha's business, "Manjushri Root Tantra" says this:
 
@@ -1560,7 +1563,7 @@ The birth of a Buddha is absolutely different from the birth of other people. Wh
 
 There are also twelve practices that are similar to the Buddha, such as the practice of becoming a monk, the practice of becoming a Buddha, the practice of turning the Dharma wheel, and the practice of Nirvana. Only Master Tsongkhapa has this kind of Buddhist practice.
 
-"Performing the deeds of a Buddha, In the Land of the Snows.", "iIn the Land of the Snows" refers to Tibet.
+"Performing the deeds of a Buddha, In the Land of the Snows.", "In the Land of the Snows" refers to Tibet.
 
 "There is Huanxi Lanruo", "Huanxi" is Ganden, and "Lanruo" is the name of the monastery, which translates to Ganden Monastery (a monastery founded by Master Tsongkhapa). The names of the monasteries built by Master Tsongkhapa can be remembered very clearly.
 
@@ -1585,9 +1588,9 @@ So Manjushri Bodhisattva is very, very great.
 
 Master Tsongkhapa is the reincarnation of Manjushri Bodhisattva. There are incarnations of Manjushri Bodhisattva, some are incarnations of pores, some are incarnations of hair, some are incarnations of tears, some incarnations of body parts, or part of the great wisdom incarnation.
 
-For example, Green Tara and White Tara. When Avalokitesvara Bodhisattva purifies sentient beings, he finds that sentient beings in the three evil paths are in great pain.
+For example, Green Tara and White Tara. When Avalokitesvara Bodhisattva purifies sentient beings, he finds that sentient beings in the three evil realms are in great pain.
 
-Seeing the suffering of beings in the three evil paths, Guanyin Bodhisattva expressed great compassion, and two tears flowed from both eyes. The tear from the left eye became Green Tara, and the tear from the right eye became White Tara.
+Seeing the suffering of beings in the three evil realms, Guanyin Bodhisattva expressed great compassion, and two tears flowed from both eyes. The tear from the left eye became Green Tara, and the tear from the right eye became White Tara.
 
 Green Tara and White Tara are the tearful incarnations of Guanyin Bodhisattva, but Master Tsongkhapa is not such an incarnation.
 
@@ -1607,7 +1610,7 @@ In the past, countless Buddhas and Tathagatas were all disciples of Manjushri Bo
 
 When the comers are also due to their power and grace.
 
-"For example, children in the world have parents, Manjushri, parents in Buddhism and Dharma."
+"For example, children in the world have parents. Manjushri, parents in Buddhism and Dharma."
 
 That is to say, children in this world have father and mother.
 
@@ -1643,9 +1646,9 @@ Maitreya Bodhisattva once foretold Master Tsongkhapa. Maitreya Bodhisattva said:
 
 In the Tibetan area, there is a sect known as the Shishen sect. It mainly cultivates a Dharma door for the body to give to sentient beings. The founder of the sect of renunciation is Machig Labdrön.
 
-Machig Labdrön must have come back from Tara, and she could read the Mahaprajna Sutra on the day she was born. It was 454 years after Margiela passed away that Master Tsongkhapa was born.
+Machig Labdrön must have been a reincarnation of Tara, and she could read the Mahaprajna Sutra on the day she was born. It was 454 years after Machig Labdrön passed away that Master Tsongkhapa was born.
 
-Before Margiela passed away, she called all her disciples and said, "In the future, the second Buddha in our Tibetan area, Lobsang Drakpa, will be born, and you all vow to be his disciples."
+Before Machig Labdrön passed away, she called all her disciples and said, "In the future, the second Buddha in our Tibetan area, Lobsang Drakpa, will be born, and you all will vow to be his disciples."
 
 To be a disciple of Tsongkhapa is to be a disciple of all the Buddhas and Tathagatas. Everyone should make this vow.
 
@@ -1765,7 +1768,7 @@ In the east, near the land of Han, Bhikkhu Lobsang will be born.
 
 Guru Padmasambhava said in "The Legacy of the Lotus":
 
-Manjushri incarnates the Dharma Master, Lobsang Draba holds the sutra,
+Manjushri incarnates the Dharma Master, Lobsang Drakpa holds the sutra,
 
 To carry forward the eight generations of Xiantanjing, before Maitreya,
 
@@ -1846,9 +1849,9 @@ The fifth incomparable is that all the Holy Word is now taught incomparable.
 
 The Holy Word is now taught unparalleled. The holy words of the Nyingma school are now called Dzogchen, the Kagyu school is Mahamudra, the Sakya school is the Daoguo, and the Kadam school is the San Shi Dao. All of these sects have only a portion of the Holy Word now taught.
 
-Master Tsongkhapa is proficient in all the sutras, tantras, treatises, and the lineages of various schools, such as Nyingma's Great Perfection, Kagyu's Mahamudra, Sakya's Path and Fruit, Kadam's Three Paths, and so on. The essence of the Dharma is all integrated into the teaching of Master Tsongkhapa. Therefore, the teaching of all the sutras, tantras, and scriptures is the only characteristic of the teachings of Tsongkhapa's generation.
+Master Tsongkhapa is proficient in all the sutras, tantras, treatises, and the lineages of various schools, such as Nyingma's Great Perfection, Kagyu's Mahamudra, Sakya's Path and Fruit, Kadam's Three Paths, and so on. The essence of the Dharma is all integrated into the teaching of Master Tsongkhapa. Therefore, the teaching of all the sutras, tantras, and scriptures is the unique characteristic of the teachings of Tsongkhapa's generation.
 
-Everyone should know that the Dharma door of our Gelug School is the most complete and most essential of the Dharma door.
+Everyone should know that the Dharma door of our Gelug School is the most complete and most essential of the Dharma doors.
 
 The purest sect in which the lineage is all blended together is the Gelug sect.
 
@@ -1856,7 +1859,7 @@ The methods of other sects are all found in the Gelug sect, and the methods of t
 
 For example, only the Gelug Sect has the thirteen great Dharma gates, and the other sects do not. It was personally empowered by the Great Weed Vajra to Master Tsongkhapa.
 
-Master Tsongkhapa has worshipped more than 40 teachers, including teachers of Nyingma, Kagyu, Sakya, Kadam and other schools.
+Master Tsongkhapa has studied under more than 40 teachers, including teachers of Nyingma, Kagyu, Sakya, Kadam and other schools.
 
 He has learned the methods of various sects, so the Gelug sect created by Master Tsongkhapa is different from other sects.
 
@@ -1872,13 +1875,13 @@ Wisdom sees innocence far away from the ever-breaking edge,
 
 Quietness and innocence eliminate darkness,
 
-Act purely and strictly follow the Buddhist commandments,
+Act purely, and strictly follow the Buddhist commandments,
 
-Good Hui wins Wang Shan Jiao and wishes to prosper.
+May the victorious Lobzang Drakpa's teachings flourish and spread!
 
 "Innocence of wisdom far from the edge of permanence" is the incomparable right view.
 
-Our empty right view is Nagarjuna Bodhisattva's Madhyamika right view.
+Our right view of emptiness is Nagarjuna Bodhisattva's Madhyamika right view.
 
 What is middle view? Between the constant edge and the broken edge is the middle view.
 
@@ -1888,7 +1891,7 @@ Those who fall on the side of the broken will think that there is no cause and e
 
 Such people think that all dharmas are emptiness, emptiness is emptiness, and emptiness means nothing.
 
-But emptiness is not the same as emptiness.
+But emptiness is not the same as nothingness.
 
 What does emptiness mean? The self-nature of all things does not exist, but all things still exist, and all the five senses such as eyes and ears exist.
 
@@ -1914,7 +1917,7 @@ In the past, the great achievements of the teachers in Tibetan areas were divide
 
 All the teachers before Tsongkhapa are called the teachers of the previous generation, and the teachers after Tsongkhapa are called the teachers of the future generations.
 
-There are no works written by previous generations of theorists that deal with emptiness in detail, nor are there any articles that really explain emptiness.
+There are no works written by previous generations of theorists that deal with emptiness in detail, nor are there any commentaries that really explain emptiness.
 
 With Master Tsongkhapa we begin to have such writings.
 
@@ -1960,7 +1963,7 @@ There used to be a lama in the Tibetan area who was meditating, and he fell into
 
 The coarse Shen only knows a little bit, but the fine Shen does not understand.
 
-Then he thought that the meditation was successful, but the more he meditated, the more stupid he became. How stupid is he? His disciple brought him tea, and he asked what was it? He doesn't even know tea! Then the disciple said, Master, please drink some tea.
+Then he thought that the meditation was successful, but the more he meditated, the more stupid he became. How stupid is he? His disciple brought him tea, and he asked what it was? He doesn't even know tea! Then the disciple said, "Master, please drink some tea."
 
 When he really wanted to drink tea, his disciple took a cup and made it look like he was drinking tea, and he followed suit. The disciple drank it, and he drank it too.
 
@@ -1980,7 +1983,7 @@ Master Tsongkhapa can distinguish what is subtle Shen, what is subtle faint.
 
 A drowsy mind is like wanting to sleep, a heavy body is a thick dizziness, and a body that is only a little heavier is a thin dizziness. Most people can't tell the difference, but Master Tsongkhapa can distinguish it very clearly.
 
-Therefore, there are many masters who practice meditation and become real meditation in future generations. This is an unparalleled aspect of Master Tsongkhapa's practice.
+Therefore, there are many masters who practice meditation and this becomes real meditation in future generations. This is an unparalleled aspect of Master Tsongkhapa's practice.
 
 The eighth incomparable is the incomparable behavior.
 
@@ -2076,13 +2079,13 @@ The twelfth incomparable is the incomparable Buddhist cause.
 
 There are many unparalleled Buddhist undertakings, the most important of which are as follows.
 
-The first one is the Great God Change Prayer Assembly from the first to the fifteenth day of the first lunar month.
+The first one is the establishment of the Monlam Festival from the first to the fifteenth day of the first lunar month.
 
 This puja was created by Master Tsongkhapa.
 
 In this dharma meeting held by Master Tsongkhapa, the tormas offered by everyone every day are like mountains.
 
-Every day, more than 100,000 lanterns are offered, and more than 100,000 cups of water are provided. Tens of thousands of people come to make offerings and pray to Buddha together, starting from Master Tsongkhapa until the "Cultural Revolution".
+Every day, more than 100,000 candles are offered, and more than 100,000 cups of water are provided. Tens of thousands of people come to make offerings and pray to Buddha together, starting from Master Tsongkhapa until the "Cultural Revolution".
 
 After the "Cultural Revolution", India has persisted until now.
 
@@ -2112,7 +2115,7 @@ These Buddha statues are called Anzalma in Tibetan, and the Chinese translation 
 
 Master Tsongkhapa saw this Buddha statue and said: 
 
-Oh, very much like me.
+"Oh, very much like me."
 
 So it is called "I am like a Buddha statue".
 
@@ -2161,11 +2164,11 @@ This is the fifteenth incomparable.
 
 The sixteenth incomparable is the founding denomination incomparable.
 
-The Gelug Sect of the Yellow Sect has a history of more than 600 years.
+The Gelug Yellow Hat Sect has a history of more than 600 years.
 
-Before the Gelugpa sect of the Yellow Hat appeared, many sects appeared in Tibetan areas, and when Master Tsongkhapa was studying, sects also appeared constantly. Therefore, there were five large sects and 18 small sects in Tibetan areas.
+Before the Gelugpa sect of the Yellow Hat appeared, many sects arose in Tibetan areas, and when Master Tsongkhapa was studying, sects also appeared constantly. Therefore, there were five large sects and 18 small sects in Tibetan areas.
 
-After Master Tsongkhapa established the Gelugpa sect of the Yellow Hat, no other sects appeared, and all those small sects were integrated into the Gelugpa School.
+After Master Tsongkhapa established the Gelugpa sect of the Yellow Hat, no new sects appeared, and all those small sects were integrated into the Gelugpa School.
 
 We know that after the Nyingma school, the Sakya school and the Kagyu school appeared, but the Nyingma school did not merge into the Sakya school and the Kagyu school.
 
@@ -2173,13 +2176,13 @@ After the Gelugpas appeared, many small factions in the past were integrated int
 
 After the Gelug Sect appeared, no new sect has appeared. Why? Because there is no more special method than that taught by Master Tsongkhapa, there is no more noble and pure method than Master Tsongkhapa's method, so there are no other new schools.
 
-This is different from before. After the Nyingma Sect of the Red Sect appeared, the Kagyu Sect appeared again.
+This is different from before. After the Nyingma Sect of the Red Hat appeared, the Kagyu Sect appeared again.
 
 Master Marpa felt that the Nyingma sect had Dzogchen but no Mahamudra. He had Mahamudra, so he could set up a Mahamudra sect, so he founded the Kagyu sect.
 
 Then the first patriarch of the Sakya sect thought that he had the method of Daoguo, but neither the Nyingma sect nor the Kagyu sect, but he had it, so a Sakya sect was established.
 
-Afterwards, Venerable Atisha of Kadam felt that the Sanshi Dao sect did not exist in the Nyingma sect, nor the Kagyu sect, nor the Sakya sect, but only his.
+Afterwards, Venerable Atisha of Kadam felt that the San shi Dao sect did not exist in the Nyingma sect, nor the Kagyu sect, nor the Sakya sect, but only his.
 
 Factions kept popping up.
 
@@ -2195,7 +2198,7 @@ Combining what you have learned with seeing and doing is wisdom,
 
 All devotion to the common good and virtue,
 
-Good Hui wins Wang Shan Jiao and wishes to prosper.
+May the victorious Lobzang Drakpa's teachings flourish and spread!
 
 
 "Learn a lot to become a good teacher." To become a good teacher, you must learn a lot and hear a lot.
@@ -2210,7 +2213,7 @@ Then there is also the need to study the theories. There are some mistakes in th
 
 These theories are to be learned.
 
-We can't learn so many methods, at least we have to learn the "Sanshi Dao".
+We can't learn so many methods, at least we have to learn the "San shi Dao".
 
 Our "Recitation Collection" is the essence of the "Tripitaka", all the essence is concentrated in this Dharma book, we must study this "Recitation Collection" Dharma Book carefully.
 
@@ -2220,7 +2223,7 @@ Learn to be good.
 
 "What you have learned combined with seeing and doing is wisdom." 
 
-To become a sage, it's just useless to talk about it. You have to actually practice your practice. That is to say, you have to learn and practice. If you succeed in your practice, you are a sage. "
+To become a sage, it's just useless to talk about it. You have to actually practice what you learn. That is to say, you have to learn and practice. If you succeed in your practice, you are a sage. "
 
 All devotion to the common good and virtue." "Good virtue" is Bodhicitta.
 
@@ -2246,23 +2249,23 @@ All beings in the six realms will be free from suffering and be happy, Dharma wi
 
 How good is world peace! Without war, the people can live and work in peace and contentment.
 
-Righteousness can go hand in hand without contradicting it,
+In your certainty that all teachings, provisional and definitive,
 
-regarded as the practice of the same person,
+Are practical instructions applicable to the individual,
 
-Without bigotry, sins go away,
+You eliminated all forms of unwholesome conduct—
 
-Good Hui wins Wang Shan Jiao and wishes to prosper.
+May the victorious Lobzang Drakpa's teachings flourish and spread!
 
-Everyone must understand the Yoshitsune and not the Yoshitsune.
+Everyone must understand the 'definitive meaning' and the 'provisional meaning'.
 
-The meaning of Yoshitsune is that the words of the scripture are consistent with the true content.
+The meaning of 'definitive' is that the words of the scripture are consistent with the true content.
 
 For example, the scriptures on the Ten Virtuous Precepts, such as not killing, not stealing, and not committing sexual misconduct, are the same in text and content.
 
 This is the scriptures.
 
-No Yoshitsune is the apparent meaning of the word and the real meaning is not the same.
+'Provisional meaning' is the apparent meaning of the word while the real, definitive meaning is not the same.
 
 There was once a prince who killed his father and mother. After killing his parents, he regretted it and repented to Buddha Shakyamuni.
 
@@ -2276,70 +2279,74 @@ What is the real meaning of that?
 
 The father represents hatred and the mother represents greed. Greed and hatred should be cut off. The real meaning is this.
 
-Buddha Shakyamuni said, I told you just now that you should kill your father and mother. The mother represents greed, and the father represents hatred. These two afflictions should be cut off. You used to kill your father and mother because of these two. Troubles, these two troubles killed your parents, and now you want to take revenge and cut off these two troubles.
+Buddha Shakyamuni said, I told you just now that you should kill your father and mother. The mother represents greed, and the father represents hatred. These two afflictions should be cut off. You killed your father and mother because of these two. Troubles, these two troubles killed your parents, and now you want to take revenge and cut off these two troubles.
 
-"Parents should be killed" is not Yoshitsune.
+"Parents should be killed" is 'provisional meaning'.
 
-It is difficult for you to understand without Yoshitsune.
+It is difficult for you to understand 'provisional meaning'.
 
-The apparent meaning of its words is inconsistent with the true meaning, and it is a different matter.
+The apparent meaning of the words is inconsistent with the true meaning, and it is a different matter.
 
-Once, a bodhisattva of ten places asked Shakyamuni Buddha for the Dharma of becoming a Buddha in one lifetime.
+Once, a bodhisattva of the 10th Bhumi (the Cloud of Dharma level) asked Shakyamuni Buddha for the Dharma of becoming a Buddha in one lifetime.
 
 Buddha Shakyamuni told him that he could become a Buddha by reciting a mantra for seven days, and then he passed the mantra to him.
 
-This mantra is not the Sutra of Righteousness, it is aimed at the Bodhisattvas of the Ten Grounds, not us ordinary people.
+This 'mantra' has a provisional meaning, it is aimed at the Bodhisattvas of the Ten Bhumis, not at we ordinary people.
 
 Even if we ordinary people recite this mantra all our lives, we cannot become Buddhas. You must understand this!
 
-Some scriptures say that reciting a sentence of Amitabha can lead to rebirth in the Pure Land.
+Some scriptures say that reciting the name of Amitabha can lead to rebirth in the Pure Land.
 
 The precepts are very pure, the Buddha Dharma is fully understood, the heart is very pure, the Dharma of Amitabha is very proficient, and the mind is unwavering. Such a great achiever can be reborn in the Pure Land by reciting Amitabha.
 
-It does not mean that we ordinary people can be reborn in the Pure Land by reciting one sentence, and we may not be able to be reborn in Amitabha Buddha's Land of Ultimate Bliss by reciting tens of thousands of sentences.
+It does not mean that we ordinary people can be reborn in the Pure Land by reciting one phrase, and we may not be able to be reborn in Amitabha Buddha's Land of Ultimate Bliss by reciting tens of thousands of times.
 
-Therefore, learning should not just look at the scriptures. In the scriptures, the Yoshitsune and the non-Yijing are mixed up. You don't know which is the Yoshitsune and which is not the Yoshitsune. You must study the theories of Master Tsongkhapa.
+Therefore, learning should not just look at the scriptures. In the scriptures, the direct and the indirect meanings are mixed up. You don't know which is the real meaning and which is indirect. You must study the theories of Master Tsongkhapa.
 
-Master Tsongkhapa's theories are all based on Yoshitsune. You can do whatever Master Tsongkhapa says. The superficial meaning of the words is the same as the real meaning. You need to know this.
+Master Tsongkhapa's theories are all based on direct meaning. You can do whatever Master Tsongkhapa says. The superficial meaning of the words is the same as the real meaning. You need to know this.
 
-"The righteousness goes together without contradicting it." Those who are truly proficient in the Buddhist Dharma see it as a violation of the Yoshitsune, and those who are not proficient in the Buddhist Dharma see it as a violation.
+"In your certainty that all teachings, provisional and definitive," Those who are truly proficient in the Buddhist Dharma see it as a violation of the definitive meaning, and those who are not proficient in the Buddhist Dharma see it as a violation of the provisional meaning.
 
-Buddha Shakyamuni said not to kill and also said to kill father and mother. Don't these two contradict each other? Buddha Shakyamuni said that Amitabha was reborn in the Pure Land by reciting one sentence, and he also said that he could not be reborn in the Pure Land by reciting a lot. Are these two not contradicting? Those who are proficient in the esoteric and tantric methods will understand at first sight that it is not violated. You must know this, so you must study a lot.
+Buddha Shakyamuni said not to kill and also said to kill father and mother. Don't these two contradict each other? 
 
-There are many people in China who like to chant scriptures.
+Buddha Shakyamuni said just by reciting one phrase,Amitabha Buddha, the speaker would be reborn in the Pure Land, and he also said that  rebirth in the Pure Land would not be possible even by reciting the name many times. Are these two not contradictory? Those who are proficient in the esoteric and tantric methods will understand at first sight that it is not contradictory. 
 
-You can't learn anything by studying directly from the scriptures. You must learn the theories.
+You must know this, so you must study a lot.
 
-Only by reading the sutras can you truly understand their meaning. Everyone should pay attention to this aspect!
+There are many people in China who like to recite scriptures without learning the theories contained in the sutras.
 
-"Looking at the practice of the same person", both understanding the Yoshitsune and not having the Yoshitsune are the way to become a Buddha.
+You can't learn anything just by studying directly from the scriptures. You must learn the theories.
 
-"Without paranoia, sins will disappear." Those who truly understand the Dharma will not slander the Dharma.
+Only by reading the sutras and studying the Buddhist theories can you truly understand their meaning. Everyone should pay attention to this aspect!
 
-However, some people who only understand Hinayana will slander Mahayana.
+"Are practical instructions applicable to the individual,", both understanding the provisional meaning and the definitive meaning are the way to become a Buddha.
 
-In the past, people in Theravada who thought they were masters and fathers also said that Mahayana Buddhism was taught by demons, and those who studied Mahayana Buddhism were children and grandsons of demons.
+"You eliminated all forms of unwholesome conduct—" Those who truly understand the Dharma will not slander the Dharma.
 
-The sin of slandering the Dharma is very serious, and it is the same karma as killing an arahant.
+However, some people who only understand Hinayana will slander the Mahayana.
 
-Some sutra masters slandered the Hinayana school, saying that the Hinayana was not taught by the Buddha, and so on.
+In the past, people in Hinayana who thought they were great masters also said that Mahayana Buddhism was taught by demons, and those who studied Mahayana Buddhism were the children and grandchildren of demons.
 
-The Theravada is also taught by the Buddha, and saying that Theravada is not taught by the Buddha is also a great sin.
+The sin of slandering the Dharma is very serious, and it attracts the same karma as killing an arhat.
+
+Some Mahayana masters slandered the Hinayana school, saying that the Hinayana was not taught by the Buddha, and so on.
+
+The Hinayana is also taught by the Buddha, and saying that Hinayana is not taught by the Buddha is also a great sin.
 
 There are also some sutra masters who slander the tantric practice, and the sin is also very serious.
 
-Some tantric masters slander other dharma schools, and it is also a great sin.
+Some Vajrayana masters slander other dharma schools, and it is also a great sin.
 
 Those who fully understand the Dharma will not slander the Dharma.
 
-The "mindless sins will disappear by themselves" here, and the biggest sin is slandering the Dharma.
+The "You eliminated all forms of unwholesome conduct—" here, and the biggest sin is slandering the Dharma.
 
-We are disciples of the Gelugpa Sect, and we want to learn the methods of the Gelugpa Sect.
+We are disciples of the Gelugpa School, and we want to learn the methods and teachings of the Gelugpa School.
 
-It is very important not to slander other dharma schools or masters of other schools.
+It is very important not to slander other dharma schools or the masters of other schools.
 
-Having said this, then I will not slander, I will be respectful, do I have to worship them as teachers, and do I have to listen to the teachings of other sects? 
-Uncertain! As long as you don't slander it.
+Having said this, I will not slander and I will be respectful. Do I have to worship them as teachers, and do I have to listen to the teachings of other sects? 
+Not at all! As long as you don't slander them.
 
 I will also tell you about learning.
 
@@ -2347,121 +2354,134 @@ It is better to study with only one master in one place.
 
 If you learn a little here, learn a little there, and learn a little everywhere, you will always feel that there is a little conflict between what you learn here and what you learn there.
 
-When doubts come out, you won't learn anything.
+If too many doubts arise, you won't learn anything.
 
 Therefore, the advantage of learning from only one master is that it is not disorderly.
 
-Teaching the teachings to teach and study the three Tibetan meanings,
+---
 
-Evidence of the law, physical and mental practice, three learning behaviors,
+You listened to explanations of the scriptural Dharma of the three collections,
 
-The achievements in knowledge and understanding are all outstanding,
+Practised the three trainings, the doctrine of realization,
 
-Good Hui wins Wang Shan Jiao and wishes to prosper.
+And set a wondrous example of life-long learning and accomplishment—
 
-Buddha Shakyamuni's teachings are about the three sutras, disciplines, and treatises, and the contents of the teachings are the three studies of precepts, concentration, and wisdom.
+May the victorious Lobzang Drakpa's teachings flourish and spread!
+
+---
+
+Buddha Shakyamuni's teachings are about the three collections: sutras, laws, and theories, and the contents of the teachings are the three studies of moral precepts, concentration, and wisdom.
 
 All we need to learn are morality, concentration, and wisdom.
 
 Be sure to study hard.
 
-If you really learn what the scriptures say, you will definitely do it.
+If you really learn the content of the scriptures say, you will definitely be successful.
 
-"Achievements in knowledge, understanding, and understanding are all outstanding." Everyone here needs to understand, what is achievement? Acknowledgment is called achievement.
+"And set a wondrous example of life-long learning and accomplishment—" Everyone here needs to understand, what is meant by accomplishment? Understanding is an accomplishment.
 
-Abandoning is the eradication of afflictions, and enlightenment is the realization of emptiness. This is called achievement.
+Duan is to eradicate afflictions, and wu is the realisation of emptiness.
 
-At present, there are some masters in the Tibetan area who practice kundalini, meditate, and repair the clear point of qi and meridians.
+Abandoning is the eradication of afflictions, and enlightenment is the realization of emptiness. This is knownan accomplishment.
 
-They often have to retreat, three years retreat, seven years retreat, so the house should be built a little higher, because as soon as they fly, their heads are on the roof, and sometimes they can't get up and down, but these are not many achievements.
+At present, there are some masters in the Tibetan area who practice kundalini, who meditate, and who practice controlling the clear points of qi and meridians.
 
-The kind of people who can fly to the roof, there are those who break the precept after exiting the customs, and there are also those who return to the secular world.
+They often have to go into retreat: a three year retreat, a seven year retreat, and the ceiling of their hermitage has to be built a little higher, because as soon as they fly or jump, they hit their heads on the ceiling, and sometimes they go up and can't get down again, but these feats don't really count as accomplishments.
 
-These are a phenomenon of the Qi channel, not the real achievement. The real achievement is to cut off afflictions and realize emptiness.
+Among the kind of people who can fly to the ceiling, there are those who break their vows after exiting the retreat, and there are also those who return to the secular world.
 
-Some people have some small supernatural powers. For example, those who are really proficient in the Book of Changes, Feng Shui, and gossip have some small supernatural powers, and they can calculate a lot of things.
+These feats are a phenomenon of the Qi channels, not the real accomplishments. The real accomplishments are to cut off afflictions and realize emptiness.
+
+Some people have some small supernatural powers. For example, those who are really proficient in the Book of Changes (I Ching), Feng Shui, and Bagua divination have some small supernatural powers, and they can calculate a lot of things.
 
 You think that they have supernatural powers, but in fact they do not have any supernatural powers. Even if they have such so-called supernatural powers, they will not be liberated.
 
-Our understanding of the concept of achievement is "breakthrough", and realization is the concept of achievement.
+Our Gelugpa understanding of the concept of achievement is "breakthrough" (duanwu), and breaking through to realization is our idea of an achievement.
 
-In the past when Master Tsongkhapa was alive, in the Gelug School's tantra courtyard, when the masters were chanting sutras, they wrapped their heads in cassocks. Everyone thought it was strange, but they dared not open it to see.
+In the past when Master Tsongkhapa was alive, in the Gelug School's tantra courtyard, when the masters were chanting sutras, they wrapped their heads in cassocks. Everyone thought it was strange, but they dared not open the cassock to look.
 
-Once, there was a donor who made offerings to the secret house. After making offerings, he saw that the heads of every master were covered. He didn't understand what it meant.
+Once, there was a donor who gave donations to the tantra school. After making offerings, he saw that the heads of every master were covered. He didn't understand what it meant.
 
-He didn't know that the masters were contemplating, that the masters were meditating and practicing, and that the great mighty virtue of the deity they visualized would really be revealed. The masters were afraid that these donors would be frightened and faint, so they covered their heads with a headcloth.
+He wanted to take a look, and when he pulled back the hood, he saw a terrifying Yamantaka, and he fainted from fright.
+
+He didn't know that the masters were practising visualisation, that the masters were meditating and practicing, and that the great mighty virtue of the deity they visualized would really be revealed. The masters were afraid that these donors would be frightened and faint, so they covered their heads with a headcloth or hood.
 
 Almost 90% or more of the monks in the tantric academy can visualize themselves becoming their own deities, and this situation has continued for about eight generations.
 
-It is from Master Tsongkhapa to his eldest disciple Xirao Sangge, from Xirao Sangge to his disciple Huadan Sangpo, from Huadan Sangbu to his disciple Tashi Pei, etc., and so on for eight generations.
+It is from Master Tsongkhapa to his eldest disciple Sherab Gyatso, from Sherab Gyatso to his disciple Huadan Sangpo, from Huadan Sangbu to his disciple Tashi Pei, etc., and so on for eight generations.
 
 Master Padmasambhava said: 
 
-"Manjushri incarnates as the master of teaching, Lobsang Draba holds the sutra, and promotes the eight generations of the sutra."
+"Manjushri incarnates as the master of teaching, Lobsang Drakpa holds the sutra, and promotes the eight generations of the sutra."
 
-Outwardly, with a sound-hearing abstinence and a kind heart,
+---
 
-Inner practitioners have a deep understanding of round yoga,
+Outwardly peaceful and subdued through the śrāvakas' conduct;
 
-The combination of explicit and esoteric methods is mutually beneficial,
+While inwardly possessing the assurance of the two-stage yoga;
 
-Good Hui wins Wang Shan Jiao and wishes to prosper.
+You perfectly reconciled the excellent paths of sūtra and mantra—
+
+May the victorious Lobzang Drakpa's teachings flourish and spread!
+
+---
+
 
 What does this mean? This is the characteristic of our Tibetan Buddhism, the external practice of the Hinayana Shravaka precepts, the internal practice of the Mahayana Six Paramitas, and the second and third stages of Tantric Buddhism, namely the generation and completion stages.
 
-"Externally, there are shravakas who guard against wind and kindness." The precepts of the shravakas refer to the precepts of monks. Bhikkhus have 253 precepts, and the precepts must be pure.
+"Outwardly peaceful and subdued through the śrāvakas' conduct;" The precepts of the shravakas refer to the precepts of monks. Bhikkhus have 253 precepts, and the precepts must be pure.
 
-"Internal cultivator round yoga is deeply enlightened", the generation stage and the completion stage.
+"While inwardly possessing the assurance of the two-stage yoga;", the generation stage and the completion stage.
 
-"The two ways of manifesting and tantra are combined for each other", what does this mean? The methods of Sutra and Tantra use each other. Here are a few examples to illustrate.
+"You perfectly reconciled the excellent paths of sūtra and mantra—", what does this mean? The methods of Sutra and Tantra use each other. Here are a few examples to illustrate.
 
-For example, death, the death of human life, the Dharma of Xianzong says that death is very simple.
+For example, death, the death of human life, the Dharma of Mahayana says that death is very simple.
 
 Real death is not so simple, you must learn tantra before you can truly understand death.
 
-When a person really dies, the energy of the earth, water, fire, and wind in the person melts into the central meridian. These processes are only available in the tantra method. If you want to truly understand death, it is just not enough to learn the sutra, you need to learn the tantra. Dharma door, revealing and secret are used for each other.
+When a person really dies, the energy of the earth, water, fire, and wind in the person melts into the central meridian. These processes are only available in the tantra method. If you want to truly understand death, it is just not enough to learn the Mahayana, you need to learn the Vajrayana Dharma door, sutra and tantra complement each other.
 
 For example, emptiness is also mentioned in the tantric methods, but it is not so clearly explained.
 
-The Dharma of Sutra is very clear. If you want to truly study emptiness, you must study more of the writings of Master Tsongkhapa. The five theories on emptiness belong to Sutra.
+The Mahayana Sutras are very clear. If you want to truly study emptiness, you must study more of the writings of Master Tsongkhapa. The five major theories on emptiness belong to the Mahayana.
 
-For example, the bardo body is mentioned in the Dharma Doors of Xianzong only that the human body is white, and the bardo body of hell is black. He has all the roots, has magical powers, and smells the fragrance. That's all. He doesn't say anything else.
+For example, the bardo body is mentioned in the Dharma Doors of Mahayana but only that the human body is white, and the bardo body of hell is black. The bardo body of the hell realm is black, and the height of the bardo body is almost the height of a seven- or eight-year-old child. It has all the five sense organs, has supernatural powers, and smells fragrance. That’s all.
 
-What is the real state of the bardo? How did it form? How did it end? Only in the tantra can it be explained clearly.
+What is the real state of the bardo? How did it form? How did it end? Only in the Vajrayana can it be explained clearly.
 
-Another example is liberation and achievement. The Dharma door of the sect says that if you cut off your afflictions, you will be liberated. It's that simple.
+Another example is liberation and achievement. The Dharma door of the Mahayana says that if you cut off your afflictions, you will be liberated. It's that simple.
 
-In the tantric method, it is said: How to stop troubles? What is the breaking process like? Where did the trouble really stop? It's all very clear.
+In the Vajrayana method, it is said: How to stop troubles? What is the breaking process like? Where did the trouble really stop? It's all very clear.
 
-Sutras and tantras should be used together, and Sutras and Tantras should learn from each other and use each other, so that we can understand Buddhist scriptures clearly.
+Sutras and tantras should be used together, and Mahayana and Vajrayana practitioners should learn from each other and use each other, so that we can understand Buddhist scriptures clearly.
 
 Those who have studied the sutras but have not studied the tantras can’t speak much, but those who are not proficient in the sutras can’t speak much at all.
 
-Because of the emptiness shown in the multiplication,
+To combine the emptiness that is explained in the causal vehicle,
 
-The fruit and convenience are the use of great joy and wisdom,
+With the great bliss achieved through the fruitional vehicle’s methods,
 
-Double use the essence of eighty thousand methods,
+Is the very heart and quintessence of the eighty-four thousand sections of Dharma—,
 
-Good Hui wins Wang Shan Jiao and wishes to prosper.
+May the victorious Lobzang Drakpa's teachings flourish and spread!
 
 ---- 
 
-Mahayana Buddhism is divided into two parts: the cause vehicle and the effect vehicle.
+Mahayana Buddhism is divided into two parts: the causal vehicle and the fruitional vehicle.
 
-The causal vehicle is the method of the sutra, and the effect vehicle is the method of the tantric sect.
+The causal vehicle is the method of the sutra, and the fruitional vehicle is the method of the tantric sect.
 
-Why is the Dharma door of the sutra called Yingyong? He only cultivates the cause of becoming a Buddha, and he cannot cultivate the fruits of Buddhahood, so it is called the cause vehicle.
+Why is the Dharma door of the Mahayana called causal? One only cultivates the cause of becoming a Buddha, and one cannot cultivate the fruits of Buddhahood, so it is called the causal vehicle.
 
 The tantric method is not only the cause of cultivating Buddhahood, but also the fruition of cultivating Buddhahood.
 
-Cultivating Buddhahood means that before attaining Buddhahood, the Buddha's four-body and other fruition statuses are cultivated in the way of second and second visualization of rebirth and perfection.
+Cultivating Buddhahood means that, before attaining Buddhahood, the Buddha's four-bodies and other fruition statuses are cultivated in the way of visualization of rebirth and perfection.
 
-Visualize yourself as a deity, and then the deity's dharma door can be cultivated, so it is called the fruition vehicle.
+Visualize yourself as a deity, and then the deity's dharma door can be cultivated, so it is called the fruitional vehicle.
 
-In the karma, it mainly talks about the principle of emptiness, the principle of emptiness.
+The main thing in the concept of karma is the principle of emptiness, the doctrine of emptiness
 
-In the past, Master Tsongkhapa talked about emptiness many times. When each emptiness explanation was almost over, many masters realized emptiness.
+In the past, Master Tsongkhapa talked about emptiness many times. When each explanation of emptiness was almost over, many masters realized emptiness.
 
 Once, Master Tsongkhapa talked about emptiness in the Mahavira Hall of Drebung Monastery. As a result, many people realized emptiness on the spot. One came out here, another came out there, and monks came out of the walls in all directions.
 
@@ -2469,35 +2489,35 @@ At first, Master Tsongkhapa didn't say anything about this phenomenon, until one
 
 Master Tsongkhapa said, even if your achievements are high, your behavior must be the same as that of others. From now on, you are not allowed to show supernatural powers. Our Mahavira Hall has a door. What is the function of this door? Come in through the door.
 
-Since then, the Mahavira Hall of Drepung Monastery has been called "auspicious many doors", which means that there are many doors, and there are doors everywhere.
+Since then, the Mahavira Hall of Drepung Monastery has been called "many auspicious doors", which means that there are many doors, and the doors are everywhere.
 
-Master Tsongkhapa said that emptiness is so extraordinary, very, very extraordinary.
+Master Tsongkhapa said that emptiness is so extraordinary. So very, very extraordinary.
 
-The fruit vehicle is mainly about great joy, and great joy is about the bright points of the human body's qi and meridians.
+The fruitional vehicle is mainly about great bliss, and great bliss is about the bright points of the human body's qi and channels.
 
 There are qi channels and clear points in our bodies. These clear points are cultivated with qi. When all the clear points have entered the central channel, you can obtain great happiness. Great happiness is eternal happiness.
 
-After attaining great bliss, you will be extremely happy every day. This bliss combined with emptiness is the essence of the 84,000 Dharma Doors. The level of this bliss can be said to add to the happiness of all sentient beings except Buddhas and Bodhisattvas. It's not as happy as this, very, very happy.
+After attaining great bliss, you will be extremely happy every day. This bliss combined with emptiness is the essence of the 84,000 Dharma Doors. The level of this bliss can be said to greater than the happiness of all sentient beings combined, except Buddhas and Bodhisattvas. It is greater than this. Extreme happiness.
 
 In our Buddhism, there are two aspects of practice: asceticism and blissful practice.
 
-What is penance? After Buddha Shakyamuni became a monk for six years, he still did not become a Buddha. This process is considered ascetic.
+What is asceticism? After Buddha Shakyamuni became a monk for six years, he still did not become a Buddha. This process is considered asceticism.
 
-Until the two cowherds offered milk chyme to Buddha Shakyamuni, after he accepted the offering, his body became spiritual, and then he practiced the Dharma and finally became a Buddha.
+Not until the two cowherds offered milk chyme to Buddha Shakyamuni, and he accepted the offering, did his body become spiritual, and then he practiced the Dharma and finally became a Buddha.
 
-Both the Theravada method and the Xianzong method both learned a lot of asceticism from Buddha Shakyamuni.
+Both the Hianayana method and the Mahayana method both learned a lot from the asceticism of Buddha Shakyamuni.
 
-Lexing is mentioned in the Dharma door of Tantra.
+Bliss is mentioned in the Dharma door of Tantra.
 
 After Buddha Shakyamuni became a Buddha, a prince named King Enzabodhi asked Buddha Shakyamuni for the Dharma, asking him to turn the wheel of Dharma.
 
-Buddha Shakyamuni said you should become a monk, but he said you couldn't do it.
+Buddha Shakyamuni said you should become a monk, but the prince said he couldn't do it.
 
-Then you come to asceticism, he said that you can't do it.
+Then try asceticism, he said that he can't do it.
 
-He said to practice happily, to practice happily.
+He said he wanted to practice happily, to practice blissfully.
 
-Buddha Shakyamuni said that if you want to practice happily, you can only practice Tantra, and only by practicing Tantra can you practice happily.
+Buddha Shakyamuni said that if you want to practice happily, you can only practice Vajrayana, and only by practicing Vajrayana can you practice happily.
 
 Then gave him the Dharma Vajra and gave him the empowerment.
 
@@ -2505,9 +2525,9 @@ From then on, he practised happily until he became a Buddha.
 
 The tantric method has this kind of happy practice, which is different from ascetic practice.
 
-It is mentioned in Xianzong's Dharma that if you want to make offerings to Buddhas and Bodhisattvas, you should not only provide your own materials, your own money, etc., but also your body if possible. Therefore, some masters of Xianzong light up lamps with their fingers.
+It is mentioned in Mahayana that if you want to make offerings to Buddhas and Bodhisattvas, you should not only provide your own materials, your own money, etc., but also your body if possible. Therefore, some masters of Mahayana light up lamps with their fingers.
 
-However, the tantric method clearly mentions that if you want to cultivate the qi and meridian light points, you must not damage them, and burning the finger and lighting the lamp is a breach of precepts, and you cannot do this.
+However, the tantric method clearly mentions that if you want to cultivate the qi and meridian light points, you must not damage them, and burning the fingers and lighting the lamp is a breach of precepts, and you cannot do this.
 
 It is mentioned in Tantra that the body must be healthy in order to practice well.
 
@@ -2517,11 +2537,11 @@ Happy practice is practice when all the conditions are met, so it is also necess
 
 There are many gods of wealth, such as white god of wealth, yellow god of wealth, red god of wealth and so on.
 
-In the past, all the nobles of the Chinese imperial palace practiced Tantra, specializing in the methods of our Yellow Hat Gelugpa Sect.
+In the past, all the nobles of the Chinese imperial palace practiced Tantra, specializing in the methods of our Yellow Hat Gelugpa School.
 
 When Master Tsongkhapa was alive, Zhu Di, Emperor Yongle of the Ming Dynasty, failed to invite Master Tsongkhapa three times. Finally, Master Tsongkhapa's attendant Xiangqin Qujie went.
 
-Xiangqin Qujie arrived in Nanjing at that time, gave the Yongle Emperor empowerment, and rescued the Yongle Emperor's mother.
+Xiangqin Qujie arrived in Nanjing at that time, gave the Yongle Emperor empowerment, and saved the Yongle Emperor's mother.
 
 Emperor Yongle was a very devout Buddhist.
 
@@ -2531,75 +2551,75 @@ Lama means guru.
 
 At that time, Xiangqin Qujie brought more than 300 monks to Nanjing.
 
-Emperor Yongle respected them very much, not only called Xiangqin Qujie Lama, but also called Lama to the more than 300 monks.
+Emperor Yongle respected them very much, and not only called Xiangqin Qujie Lama, but also used the title Lama when addressing the more than 300 monks.
 
-At that time, the practice of our Yellow Pope Tsongkhapa was only passed on to the nobles of the palace, and it was only practiced inside the palace, not outside the Ming Dynasty.
+At that time, the teachings of our Tsongkhapa were only passed on to the nobles of the palace, and it was only practiced inside the palace, and not made public during the Ming Dynasty. It was only made public with the arrival of the Qing Dynasty.
 
-The emperors of the Qing Dynasty all invited the masters of the Gelug School of the Yellow Hat in Tibetan areas.
+All of the emperors of the Qing Dynasty invited masters of the Gelug School of Yellow Hats in Tibetan areas.
 
-For example, Emperor Kangxi's master was named Luosang Qiedan, Yongzheng Emperor's master was Ngawang Gyatso, Qianlong Emperor's master was Zhangjia Living Buddha, Jiaqing Emperor's teacher was Tuguan Living Buddha and so on.
+For example, Emperor Kangxi's master was named Lobsang Qiedan, Yongzheng Emperor's master was Ngawang Gyatso, Qianlong Emperor's master was Zhangjia Living Buddha, Jiaqing Emperor's teacher was 土官活佛 Living Buddha and so on.
 
 All dynasties in the Qing Dynasty cultivated the Gelug School, and cultivated it openly.
 
-The Qing Dynasty began to disclose the folk inheritance.
+The Qing Dynasty began to disclose the teachings to ordinary people.
 
-The Tibetan Buddhist monasteries built by the emperors of the Ming and Qing dynasties in the Han region were all monasteries of the Gelug Sect of the Yellow Hat.
+The Tibetan Buddhist monasteries built by the emperors of the Ming and Qing dynasties in the Han region were all monasteries of the Gelug School of the Yellow Hats.
 
 For example, Lama Temple and Baita Temple in Beijing; Potala Palace, Pule Temple and Tashilhunpo Temple in Chengde; Tayuan Temple, Shifangtang, Guanyin Temple and Zhangjia Temple in Wutai Mountain.
 
-At that time, more than 100 Tibetan Buddhist monasteries in the Han region were all monasteries of the Gelug sect of the Yellow Hat, and there were no monasteries of other sects.
+At that time, more than 100 Tibetan Buddhist monasteries in the Han region were all monasteries of the Gelug School of the Yellow Hats, and there were no monasteries of other sects.
 
-In the Ming Dynasty, the Yellow Hat Gelugpa sect was cultivated within the imperial aristocracy, but it was not widely spread among the people, but it was spread to various sectors of the population from the beginning of the Qing Dynasty.
+In the Ming Dynasty, the Yellow Hat Gelugpa School was patronised within the imperial aristocracy, but it was not widely spread among the people, but it was spread to various sectors of the population from the beginning of the Qing Dynasty.
 
 Therefore, in the past, the Yellow Sect was also called the Royal Sect, which refers to the sect of the emperor's palace and nobles. There is such a saying.
 
-The way of the three scholars, the protector of the Dharma Lord,
+Chief among the guardians of the paths of the three types of individual—
 
-Quick-acting parents, Bisha Yama and others,
+Mahākāla who is swift to act, Vaiśravaṇa, Kālarūpa and the rest—
 
-Countless sworn guardians cast power,
+Through the power and strength of an ocean of oath-bound Dharma guardians,
 
-Promoting the prosperity of good Huisheng Wangjiao.
+May the victorious Lobzang Drakpa's teachings flourish and spread!
 
 Who are the guardian gods of the Way of the Three Scholars? 
 
-"Quick-acting parent" refers to the six-armed Mahakala, "Bisha" is the King of Tawen, and "Yam" is the Dharma Master of Yama.
+"Mahākāla who is swift to act" refers to the six-armed Mahakala, "Vaiśravaṇa" is the King of Tawen, and "Kālarūpa" is the Dharma Master of Yama.
 
-Six-armed Mahakala is the guardian deity of Shang shi Dharma, Duowen Tianwang is the guardian deity of Zhong shi Dao, and Dharma Master Yama is the guardian deity of Xia Shi Dao. These three guardian deities are the most important Dharma guardian deities of the Gelugpa Sect.
+Six-armed Mahakala is the guardian deity of Shang Shi Dharma, Duowen Tianwang is the guardian deity of Zhong Shi Dao, and Dharma Master Yama is the guardian deity of Xia Shi Dao. These three guardian deities are the most important Dharma guardian deities of the Gelugpa Sect.
 
 In particular, the six-armed Mahakala and Yama, who were usually transformed into two little lamas in the presence of Tsongkhapa, came to protect Tsongkhapa.
 
 Cooking and cleaning the room for Master Tsongkhapa were done by these two Dharma protectors.
 
-You see here "innumerable oaths and protectors exerting power", countless Dharma protectors were all protecting the then master Tsongkhapa.
+You see here "Through the power and strength of an ocean of oath-bound Dharma guardians", countless Dharma protectors were all protecting the then Master Tsongkhapa.
 
-When Master Tsongkhapa wrote The Extensive Treatise on the Stages of the Bodhi Path, Animaqing, the Dharma protector, was a Bodhisattva of the ten places, and Animaqing became a herdsman who offered ghee and tsampa.
+When Master Tsongkhapa wrote The Great Treatise on the Stages of the Path to Enlightenment, Amyé Machen, the Dharma protector, was a Bodhisattva of the tenth bhumi, and Amyé Machen became a herdsman who offered ghee and tsampa.
 
 The same is true for the young Tangla, who also became a herdsman to provide food to Master Tsongkhapa.
 
-After the writing of "The Extensive Treatise on the Stages of the Path to Bodhi", Animaqing, the young Tangla, and many other Dharma protectors knelt down in front of Master Tsongkhapa, requesting that their names be written into the "The Great Treatise on the Stages of the Bodhi Path", and then The original text at the back of Master Tsongkhapa wrote to them, "I wish to make up a good way to eliminate the unfavorable conditions, and to make all the people who have the favorable conditions not human beings.
+After the writing of "The Great Treatise on the Stages of the Path to Enlightenment", Amyé Machen, the young Tangla, and many other Dharma protectors knelt down in front of Master Tsongkhapa, requesting that their names be written into the "The Great Treatise on the Stages of the Path to Enlightenment", and then at end of the original text Master Tsongkhapa wrote to them, "I wish to make up a good way to eliminate unfavorable conditions, and to help all who have the unfavorable conditions of being non-human.
 
-In all lives, do not leave, the true and pure path praised by all Buddhas.”
+In all lives, I will not give up, the true and pure path praised by all Buddhas.”
 
-The "non-human" in the text refers to Animaqing, young Tangla, etc. who support the gods in the world, and they can also be liberated by protecting the gods in the world.
+The "non-human" in the text refers to Amyé Machen, young Tangla, etc. who support the gods in the world, and they can also be liberated by protecting the gods in the world.
 
-May Master Shande live in the world,
+In short, may the lives of the glorious masters be secure,
 
-Wise and Dharma-bearers are all over the land,
+May the world be filled with learned, venerable holders of the teachings,
 
-The teaching assistant and the benefactor are happy and prosperous,
+And may the power and influence of Dharma benefactors increase,
 
-Good wisdom wins Wang Shanjiao and prosperous.
+So that the victorious Lobzang Drakpa's teachings flourish and spread!
 
-"I wish Master Shande would live in the world."
+"may the lives of the glorious masters be secure"
 
-"Master Shande" refers to teachers who are truly virtuous, and we should pray for them to stay in the world for a long time.
+"Glorious masters" refers to teachers who are truly virtuous, and we should pray for them to stay in the world for a long time.
 
-"Wise people who hold the Dharma are all over the earth." I pray that those who truly practice the Dharma of Tsongkhapa will fill the whole earth.
+"May the world be filled with learned, venerable holders of the teachings." I pray that those who truly practice the Dharma of Tsongkhapa will fill the whole earth.
 
-"The teaching assistant and the benefactor are happy and prosperous, and the good wisdom wins the king's good teaching and prosperous"!
+"And may the power and influence of Dharma benefactors increase, So that the victorious Lobzang Drakpa's teachings flourish and spread!"
 
-Let me tell you a little bit here, we learn Buddhism, the Dharma of Mahayana, the Dharma of Esoteric Buddhism, and whichever sect we take refuge in, all of us can cut off our afflictions, all of us can achieve success, all of us can become Arhats, and all of us can become Buddhas.
+Let me tell you a little bit here, we learn Buddhism, the Dharma of Mahayana, the Dharma of Vajrayana, and whichever school we take refuge in. All of us can cut off our afflictions, all of us can achieve success, all of us can become Arhats, and all of us can become Buddhas.
 
 There are only subtle differences.
 
@@ -2611,7 +2631,7 @@ Gelugpa's approach to health is very special.
 
 Master Tsongkhapa cultivated the Seven Tathagatas of Medicine. After practicing for a long time, when the Medicine Buddha appeared, there were not only seven Tathagatas, but eight Tathagatas. The Buddha Sakyamuni appeared in the Seven Tathagatas, and the Medicine Master Lazuli Light Tathagata was in the middle. Shakyamuni Buddha is in front, and the other Tathagatas are around.
 
-The eight Tathagatas after they have emerged expressed the same voice: we will bear the health of the disciples who will learn from you in the future and the donors who will support you.
+The eight Tathagatas after they have emerged expressed the same voice: we will protect the health of the disciples who will learn from you in the future and the donors who will support you.
 
 Because of this commitment, the health aspect is very special.
 
@@ -2621,13 +2641,13 @@ The right view of our Gelugpa School is the right view of Nagarjuna Bodhisattva.
 
 Because of their origins, Gelugpa disciples will live longer.
 
-Why is wealth so special? Once upon a time, some masters from other schools saw that their own disciples had achieved a lot, and some had not.
+Why is wealth so special? Once upon a time, some masters from other schools saw that some of their own disciples had achieved a lot, and some had not.
 
-He saw why these disciples did not achieve success, because they were seeking money and greed for money, so they did not achieve success.
+He saw why these disciples did not achieve success, because they were seeking money and were greedy for money, so they did not achieve success.
 
-Seeing this, they vowed that the disciples who would study with them in the future would not get rich.
+Seeing this, they vowed that the disciples who would study with them in the future should not accumulate wealth.
 
-Many of the previous factions were relatively weak in terms of financial resources, because their grandfather made such a wish.
+Many of the previous factions were relatively weak in terms of financial resources, because their forefathers made such a wish.
 
 Master Tsongkhapa's vows are just the opposite. Master Tsongkhapa also saw that many of his disciples have achieved, and many have not achieved.
 
@@ -2661,9 +2681,9 @@ Open up wisdom.
 
 Master Tsongkhapa himself is the reincarnation of Manjushri Bodhisattva, Manjusri Bodhisattva is in charge of wisdom, so it is very special in opening wisdom.
 
-You see here, "The teaching assistant and the benefactor are happy and prosperous in wealth, and the kindness and wisdom surpass the king's kindness and the teaching will prosper."
+You see here, "And may the power and influence of Dharma benefactors increase, aSo that the victorious Lobzang Drakpa's teachings flourish and spread!"
 
-If you have time, you will slowly read the biography and writings of Master Tsongkhapa, and you will naturally understand more. I can't finish it here, and that's all I'm going to talk about this time.
+If you have time, you can read carefully the biography and writings of Master Tsongkhapa, and you will naturally understand more. I can't finish it here, and that's all I'm going to talk about this time.
 
 I hope everyone can understand Tsongkhapa's good teachings.
 
@@ -2679,19 +2699,19 @@ The Tuole Monastery above the "lotus platform"
 
 Tuole Monastery is a famous monastery belonging to the Gelug Sect of Tibetan Buddhism, located in the basin between the three grasslands of Muguitan, Balegetan and Dutan in Guinan County, Hainan Tibetan Autonomous Prefecture, Qinghai Province.
 
-The monastery is surrounded by mountains, facing Baiguan Pilgrimage Mountain, backed by Bailong Mountain, flanked by Long Mountain on the left and Phoenix Mountain on the right.
+The monastery is surrounded by mountains, facing Baiguan Pilgrimage Mountain, backed by White Dragon Mountain, flanked by Dragon Mountain on the left and Phoenix Mountain on the right.
 
-There are Turtle Mountain, Peacock Mountain, Elephant Mountain, Ba Jixiang Mountain, Foshou Mountain and other hills around like lotus petals. The monastery is located on the hill in the middle that rises like a lotus platform. between green water.
+There are Turtle Mountain, Peacock Mountain, Elephant Mountain, Ba Jixiang Mountain, Foshou Mountain and other hills around like lotus petals. The monastery is located on the hill in the middle that rises like a lotus platform from among green water.
 
 To the south of the temple, the Mangla River flows from south to north; to the north, the Yellow River flows from west to east.
 
-There are three holy lakes to the northeast of the monastery, like three stars falling into the world.
+There are three holy lakes to the northeast of the monastery, like three stars which have fallen to earth.
 
 The river is like a jade belt, and the holy lakes are like beads, protecting this Buddhist holy place.
 
 In 1916, the incarnation of Vajrapani Bodhisattva, Master Tanchen Nuori, founded the Tuole Monastery.
 
-The master recited the six-character mantra 600 million times for the construction of the temple, and recited the "Auspicious Sutra" to bless the consecration of the temple.
+The master recited the six-character mantra 600 million times for the construction of the temple, and recited the "Mangala Sutra" to bless the consecration of the temple.
 
 In 1927, the master passed away and was reborn as the 21st Dharma Master of the Pure Land of Shambhala.
 
@@ -2705,11 +2725,13 @@ Although this is a Gelugpa monastery, monks from various sects such as Nyingma, 
 
 Regarding the origin of the monastery, there have been many prophecies by the sages of the past dynasties.
 
-On April 15, 1935, after drinking yogurt in the Potala Palace, the former Tibetan Regent Rezhen Rinpoche turned the porcelain bowl inside out and foretelled that the Tuole Monastery would become the same as the Tibetan Ganden Monastery, Drepung Monastery and Sera Monastery. The sacred place of Tibetan Buddhism is equally famous, and it is supported by believers from all over the world. In its heyday, the number of monks will reach 5,500.
+On April 15, 1935, after drinking yogurt in the Potala Palace, the former Tibetan Regent Rezhen Rinpoche turned the porcelain bowl inside out and foretelled that the Tuole Monastery would become the same as the Tibetan Ganden Monastery, Drepung Monastery and Sera Monastery. The sacred place of Tibetan Buddhism is equally famous, and it is supported by believers from all over the world.
+
+At its full capacity, the number of monks will reach 5,500.
 
 The living Buddha left the monk's hat and the shoulders of the Dharma Master Yama as evidence.
 
-The place where Tuole Monastery is today is called Jiarigang (meaning the place where the Han people are concentrated in Chinese), which means the integration of Tibetan and Chinese.
+The place where Tuole Monastery is today is called Jiarigang (meaning 'the place where the Han people are concentrated' in Chinese), which means the integration of Tibetan and Chinese.
 
 In 1916, when Tuole Temple was built, the donations for the construction of the temple were donated by believers from both Tibetan and Han areas.
 
@@ -2721,17 +2743,17 @@ In 1981, Living Buddha Yigen rebuilt Tuole Monastery by the Yellow River with do
 
 In 1984, Yigen Living Buddha moved the Monastery to its current location.
 
-In 2004, the new Mahavira Hall and Dharma Protector Hall started to be built by Master Ngawang Gyatso, which were also jointly built by Tibetan and Chinese believers.
+In 2004, construction began on the new Mahavira Hall and Dharma Protector Hall by Master Ngawang Gyatso, which were also jointly built by Tibetan and Chinese believers.
 
 Therefore, no matter the past or the present, Tuole Monastery is a testimony to the harmony between Tibetan and Chinese people.
 
 The architecture of Tuole Monastery fully embodies the characteristics of the integration of Tibetans and Chinese.
 
-For example, the stone pillars and dragon pillars of the Mahavira Hall highlight the Han culture; the Maitreya Buddha at the entrance of the monastery, Jigong, Xuanzang Master, Bodhidharma on the Thangka in the Buddhist Temple, and the sixteen Han-style Arhats in the Mahavira Hall all reflect the introduction of Han Buddhist culture.
+For example, the stone pillars and dragon pillars of the Mahavira Hall highlight the Han culture; the Maitreya Buddha at the entrance of the monastery, Jigong, Master Xuan Zang, Bodhidharma on the Thangka in the Buddhist Temple, and the sixteen Han-style Arhats in the Mahavira Hall all reflect the introduction of Han Buddhist culture.
 
 The collection of scriptures in Tuole Monastery also shows the characteristics of Tibetan-Chinese fusion.
 
-There are Chinese versions of "Qianlong Tripitaka" and so on in the Collection Pavilion.
+There are Chinese versions of "Qian Long Tripitaka" and so on in the Collection Pavilion.
 
 There are also collections of Chinese Buddhist texts, such as the Complete Works of Master Hongyi.
 
