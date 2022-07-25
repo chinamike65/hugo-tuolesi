@@ -420,7 +420,9 @@ ruru     tistha  jvala   akarsaya  hum phat svaha
 
 Vowels:
 
-Om, a ah i ii u uu ri rii li lii e ee o oh ang ah 
+>
+>OM AH AHH EE EEH OO OOH REE REEH LEE LEEH EH EHH O OO ANG AH SO HA
+>
 
 Consonants:
 
@@ -519,7 +521,7 @@ The Dharma Door of Xi Zeng Huai Punishment
 
 2. Kundalini
 
-3. Empty and happy
+3. Emptiness and Bliss
 
 4. The Five Great Perfections
 
@@ -1170,7 +1172,9 @@ Om Banzaer Sapon Hum (or Hundred Characters Mantra seven times)
 
 Vowel mantra: (vowel mantra and consonant mantra repeated three times to twenty-one times)
 
-Om ah ah ah ah ah ah ah ah ah ah ah ah ah ah ah ah
+>
+>OM AH AHH EE EEH OO OOH REE REEH LEE LEEH EH EHH O OO ANG AH SO HA
+>
 
 Consonant Mantra:
 
@@ -1237,7 +1241,7 @@ The inheritance of Master Qiongwu slowly spread to Dharma Master Yongzeng.
 
 In the presence of Dharma Master Yongzeng, I received several Speech Blessing Mantras.
 
-If you want to achieve success in reciting mantras, and if you want the power of mantras to come out, you must practice mantras and blessings.
+If you want to achieve success in reciting mantras, and if you want the power of mantras to come out, you must practice mantras and offerings.
 
 After cultivating the Speech Blessing Mantra, ordinary right and wrong can be turned into mantras.
 
@@ -1268,29 +1272,55 @@ Yujia holds a mantra wheel, and it is easier to visualize when you understand th
 Speech Blessing Mantra Wheel
 
 
-Vowel mantra
+**Vowel Mantra**
 
 ![vowel mantra](/images/vowelmantra.png)
 
-Om ah ah ah ah ah ah ah ah ah ah ah ah ah ah ah ah
+#### ཨ་ཨཱ། ཨི་ཨཱི། ཨུ་ཨཱུ། རྀ་རཱྀ། ལྀ་ལཱྀ། ཨེ་ཨཻ། ཨོ་ཨཽ། ཨཾ་ཨཿ
+
+>
+>OM AH AHH EE EEH OO OOH REE REEH LEE LEEH EH EHH O OO ANG AH SO HA
+>
 
 ![consonant mantra](/images/consonantmantra.png)
 
-Consonant mantra
+**Consonant Mantra**
 
-Gaka Gaga Azazazazazazachachachachacha Nadata Dattana
+#### ཀ་ཁ་ག་གྷ་ང་། ཙ་ཚ་ཛ་ཛྷ་ཉ། ཊ་ཋ་ཌ་ཌྷ་ཎ། ཏ་ཐ་ད་དྷ་ན། པ་ཕ་བ་བྷ་མ། ཡ་ར་ལ་ཝ། ཤ་ཥ་ས་ཧ་ཀྵཿ
 
-blah blah blah blah blah blah blah blah blah blah
+>
+>a kha ga gha nga, cha chha ja jha nya, 
+>ta tha da dha na, 
+>ta tha da dha na, pa pha ba bha ma, 
+>ya ra la wa sha sha sa ha ksha
+>
+
+>
+>Sanskrit consonants: 
+>om ka kha ga gha nga
+>cha chha ja jha nya
+>tra thra dra dhra nra
+>ta tha da dha na
+>pa pha ba bha ma
+>ya ra la wa
+>sha shha sa ha ksha soha (3x)
+>
 
 ![Dependent Origination Mantra](/images/dependentoriginationmantra.png)
 
-Dependent Origination Mantra
+**Heart Mantra of Dependent Origination**
 
-Om Yedamah Mahe Dezapa wah Dendikenda Taga Doha
+### ཨོཾ་ཡེ་དྷརྨཱ་ཧེ་ཏུ་པྲ་བྷཱ་ཝཱ་ཧེ་ཏུནྟེ་ཥཱནྟ་ཐཱ་ག་ཏོ་ཧྱ་ཝ་དཏ། ཏེ་ཥཱཉྩ་ཡོ་ནི་རོ་དྷ་ཨེ་ཝྃ་ཝཱ་དཱི་མ་ཧཱ་ཤྲ་མ་ཎཿསྭཱ་ཧཱ།
 
-Wow Dedi Kaza Yoni Luda Ewan Wow Di Maha Ha Rima Na
+>
+>om yé dharma hetu prabhava hetun teshan tatagato
+>
+>hyavadat teshan tsa yo nirodha ewam vadi maha shramana soha
+>
 
-Yesoha
+>
+>All dharmas originate from a cause. The Tathāgata has taught this cause. That which brings the cause to cessation—this too, has been taught by the Great Śramaṇaḥ.
+>
 
 ![Auspicious Eight Treasures](/images/8treasures.png)
 
@@ -1317,13 +1347,17 @@ Horse Treasure
 
 General's Treasure
 
-The color of the "vowel mantra" is white. Visualize the "Consonant Mantra" on the outside of the "Vowel Mantra". The color of the "Consonant Mantra" is red and visualized in a counterclockwise order. Visualize the "Dependent Origination Mantra" outside the Ziyin Mantra. The color of the "Dependent Origination Mantra" is blue and visualized in a clockwise order. For these three mantras, outside the word "Om", visualize the "Mother Mantra", then visualize the "Consonant Mantra", then visualize the "Dependent Origination Mantra", and finally visualize the "Vajrasattva" mantra outside the "Dependent Origination Mantra". If your deity is Tara, visualize the mantra of Tara outside of the Dependent Origination Mantra.
+The color of the "Vowel mantra" is white. Visualize the "Consonant Mantra" on the outside of the "Vowel Mantra". The color of the "Consonant Mantra" is red and visualized in a counterclockwise order. Visualize the "Dependent Origination Mantra" outside the Consonant Mantra. The color of the "Dependent Origination Mantra" is blue and visualized in a clockwise order. For these three mantras, outside the word "Om", visualize the "Mother Mantra", then visualize the "Consonant Mantra", then visualize the "Dependent Origination Mantra", and finally visualize the "Vajrasattva" mantra outside the "Dependent Origination Mantra". If your deity is Tara, visualize the mantra of Tara outside of the Dependent Origination Mantra.
 
-After the visualization is over, these mantras emit immeasurable rays of light, and immeasurable rays of light pervade the entire universe, the entire Buddha and Bodhisattva Pure Land, and the entire void.
+After the visualization is over, these mantras emit immeasurable rays of light, and immeasurable rays of light pervade the entire universe, the entire Buddha and Bodhisattva Pure Lands, and the entire void.
 
-After the tibetan characters are missing, the blessing of the guru, the blessing of the four deities, the blessings of the Buddhas and Tathagatas, and the blessings of all the bodhisattvas all become "Om() ah() hum()", or become white, The red and blue light melts into the mantra wheel on the tongue. The blessing of Arahants, the blessings of Dharma protectors, and the blessings of saints all turn into "Om Ah Hum", or white, red, and blue light, which melts into the mantra wheel on the tongue; The power turns into light of various colors and melts into the mantra wheel on the tongue; the gods, the dragon king, the four wheel-turning kings, and the kings of all countries, all those who have great blessings will have their blessings turned into eight auspicious treasures. , or the Seven Treasures, are integrated into the mantra wheel on the tongue; the power of the entire universe becomes the eight auspicious treasures, which are integrated into the mantra wheel on the tongue. Into the mantra wheel on the tongue, after it has melted into it, recite the heart mantra of Vajrasattva: Om Banzaer Satom Hum (or the hundred-syllable mantra). It keeps melting when the mantra is chanted.
+Once the recitation is finished, the blessing of the guru, the blessing of the four deities, the blessings of the Buddhas and Tathagatas, and the blessings of all the bodhisattvas all become "Om(ཨོཾ) ah(ཨཱཿ) hum(ཧཱུྂ༔)", or become white. The red and blue light melts into the mantra wheel on the tongue. The blessing of Arhats, the blessings of Dharma protectors, and the blessings of saints all turn into "Om Ah Hum", or white, red, and blue light, which melts into the mantra wheel on the tongue. 
 
-Om Banzaer Sapon (Vajrasattva Heart Mantra)
+The power turns into light of various colors and melts into the mantra wheel on the tongue; the gods, the dragon king, the four wheel-turning kings, and the kings of all countries, all those who have great blessings will have their blessings turned into eight auspicious treasures. 
+
+The Seven Treasures, are integrated into the mantra wheel on the tongue; the power of the entire universe becomes the eight auspicious treasures, which are integrated into the mantra wheel on the tongue. Into the mantra wheel on the tongue, after it has melted into it, recite the heart mantra of Vajrasattva: Om Banzaer Satom Hum (or the hundred-syllable mantra). It keeps melting when the mantra is chanted.
+
+Om Banzaer Sapon Hum (Vajrasattva Heart Mantra)
 
 The Vajrasattva mantra or the hundred-syllable mantra should be recited seven times, fourteen times if there is time, or twenty-one times, but at the very least seven times. After reciting, recite the "vowel mantra" and the "consonant mantra", and the "vowel mantra" and "consonant mantra" should be recited together:
 
@@ -1567,7 +1601,7 @@ There are also twelve practices that are similar to the Buddha, such as the prac
 
 "There is Huanxi Lanruo", "Huanxi" is Ganden, and "Lanruo" is the name of the monastery, which translates to Ganden Monastery (a monastery founded by Master Tsongkhapa). The names of the monasteries built by Master Tsongkhapa can be remembered very clearly.
 
-Gelu Shanjiao's wish to prosper said:
+Gelugpa wish to prosper said:
 >
 >Although he is the father of the Buddha who nurtured all Buddhas,
 >
