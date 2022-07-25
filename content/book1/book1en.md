@@ -12,7 +12,7 @@ Treasures of the Dharma Ocean (1)
 ![front](/images/fa3frontgreet.png)
 
 
-Ngawang Gyatso Vajra Guru Opening Prayer
+#### Ngawang Gyatso Vajra Guru Opening Prayer
 
 
 **Three loves:**
@@ -46,24 +46,29 @@ World Peace
 Practice the Dharma
 
 **Table of Contents**
+#### {#toc-back}
 
-The practice sequence of the Tuo Le collective practice center
+
+
+[The practice sequence of the Tuo Le collective practice center]({{< relref "#practice-sequence" >}})
 
 Explanation of the practice steps of the Tuo Le collective practice center
 
 Practice requires an ordered sequence of steps
 
-Speech Blessing Mantra
+##### [Speech Blessing Mantra]({{< relref "#speech-mantra" >}})
 
 Gelugpa Prosperity Wishes
 
-Introduction to Tuole Temple
+##### [Introduction to Tuole Temple]({{< relref "#intro-tuole" >}})
+
+
 
 **His Holiness Ramo Yongzin**
 
-Dharma Master Yongzeng, named Ramo Yongzin Lobsang Kezhi Gyatso (1908-2004), entered Buddhism at the age of six, and went to Labrang Monastery, a famous Buddhist temple, at the age of seventeen, with XX as his root guru. He studied with more than a dozen masters, including Dharma Master Sangke Tankai and Dharma Master Gongtang Luozhe of this monastery.
+Dharma Master Yongzeng, named Ramo Yongzin Lobsang Kezhi Gyatso (1908-2004), entered Buddhism at the age of six. At the age of seventeen he went to Labrang Monastery, a famous Buddhist temple,  with XX as his root guru. He studied with more than a dozen masters, including Dharma Master Sangke Tankai and Dharma Master Gongtang Rinpoche of this monastery.
 
-Because Dharma Master Yongzeng often practiced the Three Ways, he was called the wishful treasure of empowerment, follow-up empowerment, lineage holder of scriptures and teachings, secrets and rituals by Tibetan Buddhist circles.
+Because Dharma Master Yongzeng often practiced the Three Ways, he was called the wish-fulfilling treasure of empowerments, follow-up empowerments, lineage holder of scriptures, teachings, secrets and rituals in Tibetan Buddhist circles.
 
 Dharma Master Yongzeng, with a heart of compassion, worked tirelessly, taught profound Dharma in various places throughout his life, saved countless sentient beings, and passed away at the age of ninety-seven.
 
@@ -321,7 +326,7 @@ https://www.lotsawahouse.org/words-of-the-buddha/samantabhadra-aspiration-good-a
 
     [Vajrasattva Mantra](/book1/book1_vajrasattvamantra)
 
-**(3) Study (mainly listening to CDs and reading books)**
+**(3) Study (mainly watching the videos and reading books)**
 
 1. Four additional actions
 
@@ -329,7 +334,7 @@ https://www.lotsawahouse.org/words-of-the-buddha/samantabhadra-aspiration-good-a
 
 3. San Shi Dao
 
-**2. Intermedaite Level**
+**2. Intermediate Level**
 
 **(1) Chanting**
 
@@ -417,28 +422,31 @@ ruru     tistha  jvala   akarsaya  hum phat svaha
 2. Prayers for good
 
 3. Speech Blessing Mantra
+#### {#speech-mantra}
 
-Vowels:
+#### ཨ་ཨཱ། ཨི་ཨཱི། ཨུ་ཨཱུ། རྀ་རཱྀ། ལྀ་ལཱྀ། ཨེ་ཨཻ། ཨོ་ཨཽ། ཨཾ་ཨཿ
+
+**Vowels:**
 
 >
 >OM AH AHH EE EEH OO OOH REE REEH LEE LEEH EH EHH O OO ANG AH SO HA
 >
 
-Consonants:
+**Consonants:**
 
-ka kha ga gha nga
 
-tsa tsaa dza dzha nya 
+#### ཀ་ཁ་ག་གྷ་ང་། ཙ་ཚ་ཛ་ཛྷ་ཉ། ཊ་ཋ་ཌ་ཌྷ་ཎ། ཏ་ཐ་ད་དྷ་ན། པ་ཕ་བ་བྷ་མ། ཡ་ར་ལ་ཝ། ཤ་ཥ་ས་ཧ་ཀྵཿ
 
-ta taa da dha na 
+>
+>a kha ga gha nga, cha chha ja jha nya, 
+>ta tha da dha na, 
+>ta tha da dha na, pa pha ba bha ma, 
+>ya ra la wa sha sha sa ha ksha
+>
 
-ta taa da dha na 
+[Back to Contents]({{< relref "#toc-back" >}})
 
-pa paa ba bha ma 
-
-ya ra la wa sha sa kya.  Swaha !
-
-(3) Study (mainly listening to CDs and reading books)
+(3) Study (mainly watching the videos and reading books)
 
 
 1. The Sutra of the Master of Healing
@@ -449,7 +457,7 @@ ya ra la wa sha sa kya.  Swaha !
 
 4. Esoteric Buddhism (Omitted)
 
-#### 3, Prajna class
+#### 3. Prajna class
 
 (1) Chanting
 
@@ -469,7 +477,7 @@ https://web.archive.org/web/20150430223200/http://ctzen.org/sunnyvale/enUS/index
 
 Outline of San Shi Dao
 
-(3) Learning (mainly listening to CDs and reading books)
+(3) Learning (mainly watching the videos and reading books)
 
 1. Theory of Well-being
 
@@ -479,7 +487,7 @@ Outline of San Shi Dao
 
 4. The Medium-Length Treatise on the Stages of the Path to Enlightenment
 
-4. The Birth Stage (Supreme Yoga Division)
+4. The Generation Stage (Supreme Yoga)
 
 (1) Chanting (choose one of the following according to the deity being cultivated)
 
@@ -489,7 +497,7 @@ Outline of San Shi Dao
 
 3. Hayagriva Ritual 10,000 times
 
-(2) Learning (mainly listening to CDs and reading books)
+(2) Learning (mainly watching the videos and reading books)
 
 1. Tantra Path
 
@@ -509,7 +517,7 @@ Outline of San Shi Dao
 
 3. Hayagriva Heart Mantra 10 million times
 
-(2) Learning (mainly listening to CDs and reading books)
+(2) Learning (mainly watching the videos and reading books)
 
 Tantric Consummation
 
@@ -628,7 +636,7 @@ Repentance, the most outstanding method in the dharma door of Xianzong is the "T
 
 "Golden Brightness Most Victorious King Jing Confession" and "Minimal Confession" have only one chapter each, and it is very easy to memorize them.
 
-"The Seven Branches of Offering", "Mandala Offering Text", "Psalmist's Prayer and Vows", "Gelugpa Teaching Prosperity Vows", these have already been discussed, and they all have to be memorized.
+"The Seven Point Mandala Offering", "Mandala Offering Text", "Psalmist's Prayer and Vows", "Gelugpa Teaching Prosperity Vows", these have already been discussed, and they all have to be memorized.
 
 In addition to reciting the above, the preparatory class will also recite the following.
 
@@ -665,13 +673,15 @@ For example, twenty people recite the four refuges together:
 
 Namo Gurubai, Namo Boudaya, Namo Damaya, and Namo Sangaya. 
 
-To the Guru for Refuge I go.
-
-To the Buddha for Refuge I go.
-
-To the teachings for Refuge I go.
-
-To the spiritual community for Refuge I go.
+>
+>To the Guru for Refuge I go.
+>
+>To the Buddha for Refuge I go.
+>
+>To the teachings for Refuge I go.
+>
+>To the spiritual community for Refuge I go.
+>
 
 One cycle is equal to twenty cycles, and five cycles are equal to one hundred cycles. 
 
@@ -683,31 +693,55 @@ Guru Yoga at least 100,000 times.
 We must recite our Gelugpa Guru Yoga, that is, the prayer of Master Tsongkhapa: 
 
 ----
-Objectless compassion, Chenrezig,
-
-Lord of stainless wisdom, Manjushri,
-
-Conquering mara’s horders, Vajrapani,
-
-Crown jewel of the Sages of the Land of Snows, Tsongkhapa,
-
-Losang Drakpa, at your feet, I pray.
-
+>
+>Objectless compassion, Chenrezig,
+>
+>Lord of stainless wisdom, Manjushri,
+>
+>Conquering mara’s horders, Vajrapani,
+>
+>Crown jewel of the Sages of the Land of Snows, Tsongkhapa,
+>
+>Losang Drakpa, at your feet, I pray.
+>
 ----
 
 Offer the mandala at least 100,000 times.
 
-There are thirty-seven mantras and seven mantras in the mandala, and the seven mantras are to be offered here  100,000 times.
+There are thirty-seven point mandala offerings and seven point mandala offerings, and the seven point mandalas are to be offered here  100,000 times.
+
+**Short mandala offering**
+
+>
+>sa shyi pö chü juk shing métok tram
+>
+>The ground is purified with scented water and strewn with flowers
+>
+>rirap ling shyi nyidé gyenpa di
+>
+>It is adorned with Sumeru, the king of mountains, the four quarters of the universe, and the sun and the moon;
+>
+>sangyé shying du mik dé pulwa yi
+>
+>Thinking of it as the blessed buddha fields, I offer it
+>
+>dro kun namdak shying la chöpar shok
+>
+>By virtue of this offering, may all beings here and now attain the happiness of that pure land!
+>
+>tram guru ratna mandala pudza megha samudra saparana samaye ah hung
+>
+
 
 Everyone will understand the video about Mandala.
 
 Vajrasattva 100,000 times is a hundred-syllable mantra 100,000 times.
 
-A hundred-syllable mantra one hundred thousand times can eliminate the karma of body, speech and mind.
+The hundred-syllable mantra one hundred thousand times can eliminate the karma of body, speech and mind.
 
-The order of the above four additional lines must be followed. If you can do it in this order, the path of practice will be safe and sound.
+The order of the above four additional actions must be followed. If you can do it in this order, the path of practice will be safe and sound.
 
-Reciting the Four Refuge 100,000 times helps to obtain the blessing of the Guru and the Three Jewels; reciting the Guru Yoga 100,000 times brings the special blessing of the Guru, and the blessing of the Guru Three Jewels can change our body, speech and mind; Good fortune will increase greatly. Then, if you practice the Vajrasattva Hundred-syllable Mantra, you will be safe and sound.
+Reciting the Four Refuges 100,000 times helps to obtain the blessing of the Guru and the Three Jewels; reciting the Guru Yoga mantra 100,000 times brings the special blessing of the Guru, and the blessing of the Guru Three Jewels can change our body, speech and mind; Good fortune will increase greatly. Then, if you practice the Vajrasattva Hundred-syllable Mantra, you will be safe and sound.
 
 Some people don't know that they can directly recite Vajrasattva in the order of offering Mandala first and then reciting Vajrasattva. Due to the Buddha's blessing of Vajrasattva, all the karmic obstacles of life are forced out. Or a little thing happened around us, and we can't stand it.
 
@@ -1172,9 +1206,13 @@ Om Banzaer Sapon Hum (or Hundred Characters Mantra seven times)
 
 Vowel mantra: (vowel mantra and consonant mantra repeated three times to twenty-one times)
 
+
+#### ཨ་ཨཱ། ཨི་ཨཱི། ཨུ་ཨཱུ། རྀ་རཱྀ། ལྀ་ལཱྀ། ཨེ་ཨཻ། ཨོ་ཨཽ། ཨཾ་ཨཿ
+
 >
 >OM AH AHH EE EEH OO OOH REE REEH LEE LEEH EH EHH O OO ANG AH SO HA
 >
+
 
 Consonant Mantra:
 
@@ -1361,13 +1399,23 @@ Om Banzaer Sapon Hum (Vajrasattva Heart Mantra)
 
 The Vajrasattva mantra or the hundred-syllable mantra should be recited seven times, fourteen times if there is time, or twenty-one times, but at the very least seven times. After reciting, recite the "vowel mantra" and the "consonant mantra", and the "vowel mantra" and "consonant mantra" should be recited together:
 
-Om ah ah ah ah ah ah ah ah ah ah ah ah ah ah ah ah
+#### ཨ་ཨཱ། ཨི་ཨཱི། ཨུ་ཨཱུ། རྀ་རཱྀ། ལྀ་ལཱྀ། ཨེ་ཨཻ། ཨོ་ཨཽ། ཨཾ་ཨཿ
 
-(vowel spell)
+>
+>OM AH AHH EE EEH OO OOH REE REEH LEE LEEH EH EHH O OO ANG AH SO HA
+>
 
-Gaka Gaga Ah Sak Sak Sak Sing Cha Cha Cha Cha Nadatta
+(vowel mantra)
 
-Datana Ba Ba Ba Ba Maya La Waha Kasa Ha Cha Soha
+#### ཀ་ཁ་ག་གྷ་ང་། ཙ་ཚ་ཛ་ཛྷ་ཉ། ཊ་ཋ་ཌ་ཌྷ་ཎ། ཏ་ཐ་ད་དྷ་ན། པ་ཕ་བ་བྷ་མ། ཡ་ར་ལ་ཝ། ཤ་ཥ་ས་ཧ་ཀྵཿ
+
+>
+>a kha ga gha nga, cha chha ja jha nya, 
+>ta tha da dha na, 
+>ta tha da dha na, pa pha ba bha ma, 
+>ya ra la wa sha sha sa ha ksha
+>
+
 
 (Consonant Mantra)
 
@@ -1825,7 +1873,7 @@ A famous man from Lobsang appeared, and there were many disciples in the assembl
 
 He always established the ten dharmas. In the Buddha hall with leaf pillars,
 
-There are two statues in my body, offering the five buddhas solemn crowns,
+There are two statues of my body, offering the five buddhas solemn crowns,
 
 Such as the righteousness of the Buddhist scriptures. Praying in harmony with Yam,
 
@@ -1879,7 +1927,7 @@ Thinking about this principle has good strategies
 
 With great grace, supreme wisdom treasure
 
-The fifth incomparable is that all the Holy Word is now taught incomparable.
+**The fifth incomparable** is that all the Holy Word is now taught incomparable.
 
 The Holy Word is now taught unparalleled. The holy words of the Nyingma school are now called Dzogchen, the Kagyu school is Mahamudra, the Sakya school is the Daoguo, and the Kadam school is the San Shi Dao. All of these sects have only a portion of the Holy Word now taught.
 
@@ -2729,7 +2777,9 @@ Tashi Delek!
 
 ![tuolesi](/images/tuolesi.png)
 
-The Tuole Monastery above the "lotus platform"
+### The Tuole Monastery above the "lotus platform"{#intro-tuole} 
+
+[Back to Contents]({{< relref "#toc-back" >}})
 
 Tuole Monastery is a famous monastery belonging to the Gelug Sect of Tibetan Buddhism, located in the basin between the three grasslands of Muguitan, Balegetan and Dutan in Guinan County, Hainan Tibetan Autonomous Prefecture, Qinghai Province.
 
@@ -2759,7 +2809,7 @@ Although this is a Gelugpa monastery, monks from various sects such as Nyingma, 
 
 Regarding the origin of the monastery, there have been many prophecies by the sages of the past dynasties.
 
-On April 15, 1935, after drinking yogurt in the Potala Palace, the former Tibetan Regent Rezhen Rinpoche turned the porcelain bowl inside out and foretelled that the Tuole Monastery would become the same as the Tibetan Ganden Monastery, Drepung Monastery and Sera Monastery. The sacred place of Tibetan Buddhism is equally famous, and it is supported by believers from all over the world.
+On April 15, 1935, after drinking yogurt in the Potala Palace, the former Tibetan Regent Rezhen Rinpoche turned the porcelain bowl inside out and foretold that the Tuole Monastery would become the same as the Tibetan Ganden Monastery, Drepung Monastery and Sera Monastery. The sacred place of Tibetan Buddhism is equally famous, and it is supported by believers from all over the world.
 
 At its full capacity, the number of monks will reach 5,500.
 
@@ -2821,17 +2871,17 @@ Relics: The Tuole Monastery collects the relics of Sakyamuni Buddha, the bone re
 
 Treasures: Rare treasures such as Manjusri gems, antique instruments inherited from Master Saikangba, etc.
 
-Thangkas: All the murals in Tuole Monastery are painted by the lamas of the temple; the thangkas in the temple are all painted by the most famous thangka painters, which can be called the treasures of Tibetan Buddhism.
+Thangkas: All the murals in Tuole Monastery are painted by the lamas of the temple; the thangkas in the temple are all painted by the most famous thangka painters, which can be called real treasures of Tibetan Buddhism.
 
-Ganlu Pills: The Ganlu Pills of Tuole Monastery are composed of the nectar dropped by the Buddha statues of Tuole Monastery, various Tibetan medicines and the blessings of the guru, and are blessed by the lamas of the whole monastery day and night. It is very precious.
+Ganlu Pills: The Ganlu Pills of Tuole Monastery are composed of the nectar dropped by the Buddha statues of Tuole Monastery, various Tibetan medicines and the blessings of the guru, and are blessed by the lamas of the whole monastery day and night. They are very precious.
 
 Tuole Monastery, where monks are cultivated
 
 The monks in the monastery are simple and kind, pure and dignified, of high moral character and elegant in manners.
 
-In terms of cultivating monks, Tuole Monastery pays attention to the combination of the study of the classics and practice.
+In the training of monks, Tuole Monastery pays attention to the combination of the study of the classics and practice.
 
-At present, there are hundreds of resident monks at Tuole Monastery, and there are many visiting monks.
+At present, there are hundreds of resident monks at Tuole Monastery, as well as many visiting monks.
 
 Since presiding over the monastery in 1994, Master Ngawang Gyatso has worked tirelessly to teach the Five Great Treatises, the Three Ways of Buddhism, and the Four Tantras. The Buddhist Geshe (Doctor of Buddhist Studies).
 
@@ -2839,7 +2889,7 @@ The guru is earnest and good at guiding, the monks study hard, and the monks are
 
 Today, the monks in the monastery are all flourishing and prosperous when they study, think, practice, and debate.
 
-Since 2002, the monastery has co-hosted the "Anda Dharma Conference" with the Laga Temple and Shizang Temple in Qinghai, and the "Dharma Debate Conference" with Hainan Prefecture is highly praised by people from all walks of life.
+Since 2002, the monastery has co-hosted the "Anda Dharma Conference" with the Laga Temple and Shizang Temple in Qinghai, and the "Dharma Debate Conference" with Hainan Prefecture and is highly praised by people from all walks of life.
 
 Today, Tuole Monastery has trained more than 30 lecturing masters from novice lamas, and many monks and lay believers worship them as teachers.
 
@@ -2853,9 +2903,9 @@ In 2009, as an outstanding representative of Tibetan Buddhist monks, Master Ngaw
 
 In response to the great wish of Ngawang Gyatso to spread the Dharma and benefit students, the ever-growing number of monks and pilgrims, the infrastructure of the monastery is constantly being expanded.
 
-In the next few years, Tuole Monastery will build a Maitreya Hall, a Tara Hall, two Dharma Protector Halls, a Buddha Hall, a Library, a Buddhist Academy, a Monk House, One Hundred stupas, a Mani Sutra Road and other buildings.
+In the next few years, Tuole Monastery will build a Maitreya Hall, a Tara Hall, two Dharma Protector Halls, a Buddha Hall, a Library, a Buddhist Academy, a Residence for Monks, One Hundred stupas, a Mani Sutra Road and other buildings.
 
-With the support of the believers in the ten directions, in the near future, Tuole Monastery will be presented to the believers in the ten directions with a brand-new appearance.
+With the support of believers in the ten directions, in the near future, Tuole Monastery will be presented with a brand-new appearance.
 
 May all sentient beings be freed from the sea of ​​misery and be safe forever!
 
