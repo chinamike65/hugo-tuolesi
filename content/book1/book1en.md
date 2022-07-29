@@ -48,6 +48,7 @@ Practice the Dharma
 **Table of Contents**
 #### {#toc-back}
 
+#### {#practice-sequence}
 
 
 [The practice sequence of the Tuo Le collective practice center]({{< relref "#practice-sequence" >}})
@@ -58,7 +59,7 @@ Practice requires an ordered sequence of steps
 
 ##### [Speech Blessing Mantra]({{< relref "#speech-mantra" >}})
 
-Gelugpa Prosperity Wishes
+##### [Gelugpa Prosperity Wishes]({{< relref "#gelug-prosperity" >}})
 
 ##### [Introduction to Tuole Temple]({{< relref "#intro-tuole" >}})
 
@@ -80,9 +81,9 @@ From 1993 to 2004, the master has come to study with His Holiness Master Yongzen
 
 Master Ngawang Gyatso was born on March 3, 1969 (the fifteenth day of the first lunar month) in Hainan Tibetan Autonomous Prefecture, Qinghai Province.
 
-The master began to practice Buddhism as a novice monk at the age of six, and became an ordained monk at the age of eighteen. He had studied with Dharma Master Lamaoyong Zeng, Geshe Rinpoche, Lobsang Dorje Vajra Guru, Gejia Rinpoche, Dharma Master Yeshe Gyatso, and Gazang Qusong Vajra Guru and the 10th Panchen Lama.
+The master began to practice Buddhism as a novice monk at the age of six, and became an ordained monk at the age of eighteen. He studied with Dharma Master Lamaoyong Zeng, Geshe Rinpoche, Lobsang Dorje Vajra Guru, Gejia Rinpoche, Dharma Master Yeshe Gyatso, and Gazang Qusong Vajra Guru and the 10th Panchen Lama.
 
-The master is like a teacher, and he has completely obtained the inheritance of the seven masters' hearts and methods, obtained more than 200 kinds of empowerment, more than 300 kinds of empowerment with Xu, more than 280 kinds of guidance, more than 500 scriptures and more than 80 kinds of transmissions and pith instructions.
+**The master is like a teacher, and he has completely obtained the inheritance of the seven masters' hearts and methods, obtained more than 200 kinds of empowerment, more than 300 kinds of empowerment with Xu, more than 280 kinds of guidance, more than 500 scriptures and more than 80 kinds of transmissions and pith instructions.**
 
 The master followed Lamaoyong to increase the Dharma Master for more than 20 years and gained the experience of the Dharma Master throughout his life.
 
@@ -92,21 +93,21 @@ Master Ah Wang studied at Qinghai Buddhist Academy and Taer Monastery Debating S
 
 During Master Ngawang Gyatso's studies, he completed the five major treatises, the second and second esoteric courses of the five great vajras with extraordinary diligence and wisdom, and mastered all the contents.
 
-Since graduating from Qinghai Buddhist Academy and Ta'er Monastery Debating Academy with excellent grades, the master has been living in Qinghai Tuole Monastery, serving as the Vajra Guru and the presiding officer of the monastery. He taught the monks of Tuole Monastery every day in groups of five great treatises, three ways of Dharmaism, and four tantras, and set up a new sutra debate school in the monastery.
+Since graduating from Qinghai Buddhist Academy and Ta'er Monastery Debating Academy with excellent grades, the master has been living at Qinghai Tuole Monastery, serving as the Vajra Guru and the abbot of the monastery. He teaches the monks of Tuole Monastery every day in groups: lectures on the five great treatises, San Shi Dao, and the four tantras, and has set up a new sutra debating school in the monastery.
 
-Master Ah Wang has now produced several batches of lamas with a Geshe degree (equivalent to a Ph.D.) in Buddhism.
+Master Ah Wang has now produced several batches of lamas with a Geshe degree (equivalent to a Ph.D. in Buddhism).
 
 The master also insists on going into retreat for two months every year.
 
-Master Ah Wang often gives sermons, teachings, precepts, and empowerment ceremonies in both Tibetan and Chinese areas, and often holds patriotic teachings, and patriotic activities in monasteries, making due contributions to the promotion of social harmony and stable development.
+Master Ah Wang often gives sermons, teachings, lectures, and empowerment ceremonies in both Tibetan and Chinese areas, and often holds patriotic teachings, and patriotic activities in monasteries, making due contributions to the promotion of social harmony and stable development.
 
-At the invitation of believers from other places, the master has traveled all over the world to teach the sutras and dharmas to those who are destined to hear them.
+At the invitation of believers from other places, the master has travelled all over the world to teach the sutras and the Dharma to those who are destined to hear them.
 
-The guru is always compassionate and easily approachable, and speaks according to the occasion, and preaches the basic theories and simple practices of Buddhism, such as the Three Paths of Dharma, the Four Refuges, the Seven Branches of Offering, the Dharma of Amitabha Buddha, the Vajrasattva Ritual, and the [Heart Sutra](/english/heartsutranotes) of Prajna Paramita.
+Master Ah Wang is always compassionate and easily approachable, and speaks according to the occasion, and preaches the basic theories and simple practices of Buddhism, such as the San Shi Dao, the Four Refuges, the Seven Point Mandala Offering, the Dharma of Amitabha Buddha, the Vajrasattva Ritual, and the [Heart Sutra](/english/heartsutranotes) of Prajna Paramita.
 
 The master has tens of thousands of disciples of many different nationalities.
 
-The master's writings include Commentary on Philosophy, Commentary on the Vajra Prajna Paramita Sutra, Dictation from the Three Masters of the Three Paths and Three Schools, Vajrasattva Ritual and Practice, and Dakini Buddha's Mother Ritual. Tracks and Practical Practices, Practice of Retreat, Simmering Sang Ritual, Biography of Vajra Guru Gazang Qusong, History of Tibetan Buddhism, Dabao Motto, Nectar Dharma Rain, Tantric Buddhism Feng Shui and the "Dharma Ocean Treasures" series, etc.
+The master's writings include Commentary on Philosophy, Commentary on the Prajna Paramita Diamond Sutra, Dictation from the Three Masters of the Three Paths and Three Schools, Vajrasattva Ritual and Practice, and Dakini Buddha's Mother Ritual. Tracks and Practical Practices, Practice of Retreat, Simmering Sang Ritual, Biography of Vajra Guru Gazang Qusong, History of Tibetan Buddhism, Dabao Motto, Nectar Dharma Rain, Tantric Buddhism Feng Shui and the "Dharma Ocean Treasures" series, etc.
 
 The master's writings are concise and comprehensive, and the analysis is profound and thorough, and has been praised and acclaimed by many great scholars in Buddhist circles at home and abroad.
 
@@ -164,7 +165,7 @@ General religions advocate the good and the evil, but the methods for dealing wi
 
 **4. End of Suffering**
 
-Learning Buddhism can bring an end to any troubles you may have.
+Learning Buddhism can bring an end to any suffering you may have.
 
 **5. Use of Logic and Reasoning**
 
@@ -174,7 +175,7 @@ The Buddha said: Bhikkhus or wise people should contemplate my words well, like 
 
 **6. The Ultimate**
 
-Any religion can use reasoning to some degree, but not through to the end. Buddhism is a knowledge of the ultimate, which is the biggest difference between Buddhism and other religions. The truth of what the Buddha said can help reach liberation.
+All religions use reasoning to some degree, but not through to the end. Buddhism is a knowledge of the ultimate, which is the biggest difference between Buddhism and other religions. The truth of what the Buddha said can help us reach liberation.
 
 The basic laws of all things in the universe, the origin of life, and the incredible phenomena of cultural development can be traced back to the source, including social phenomena that cannot be explained by modern science, but which are clearly expressed in Buddhist scriptures.
 
@@ -196,7 +197,7 @@ Complete training curriculum
 
 **1. Teaching is complete**
 
-Buddha's teachings are divided into Theravada / Hinayana and Mahayana. Mahayana has both the sutra method and the tantra methods. Now there are three major schools of Buddhism, referring to Southern Buddhism, Chinese Buddhism and Tibetan Buddhism. Southern Buddhism is the method of Theravada, it does not have the method of Mahayana. Chinese Buddhism is still dominated by  Mahayana Buddhism, but it does not have the four continuations of Tantric Buddhism. The teachings of Tibetan Buddhism include the Theravada method, the Mahayana Sutra method, and the Vajrayana Tantra method of perfection.
+Buddha's teachings are divided into Theravada / Hinayana and Mahayana. Mahayana has both the sutra method and the tantra methods. Now there are three major schools of Buddhism, referred to as Southern Buddhism, Chinese Buddhism and Tibetan Buddhism. Southern Buddhism is the method of Theravada, it does not have the methods of Mahayana. Chinese Buddhism is still dominated by Mahayana Buddhism, but it does not have the four continuations of Tantric Buddhism. The teachings of Tibetan Buddhism include the Theravada method, the Mahayana Sutra method, and the Vajrayana Tantra method of perfection.
 
 **2. The lineage is complete**
 
@@ -204,15 +205,15 @@ Except for the sutras, most of the traditions of Southern Buddhism and Chinese B
 
 **3. The practice is complete**
 
-Southern Buddhism cultivates the precepts for liberation and the thirty-seven paths. Chinese Buddhism cultivates the precepts of separation and liberation, the precepts of Bodhisattva, compassion, bodhicitta, and six degrees of perfection. Tibetan Buddhist practice is complete: the external practice of the Hinayana method, the internal practice of the Mahayana Sutra method and the Tantric practice of the four tantras, and the practice of the three vehicles of special liberation vows, Bodhisattva vows and Tantric vows.
+Southern Buddhism cultivates the vows for liberation and the thirty-seven paths. Chinese Buddhism cultivates the vows of separation and liberation, the vows of Bodhisattvas, compassion, bodhicitta, and six degrees of perfection. Tibetan Buddhist practice is complete: the external practice of the Hinayana method, the internal practice of the Mahayana Sutra method and the Tantric practice of the four tantras, and the practice of the three vehicles of special liberation vows, Bodhisattva vows and Tantric vows.
 
 **4. Well preserved**
 
-When Buddhism spread to Southeast Asian countries, all countries integrated their own local culture into Buddhism, and Buddhism was more or less influenced by local culture. When Buddhism entered China, Taoism and Confucian culture were highly developed, so Han culture influenced Buddhism, and Buddhism there became Han-style Buddhism. When Buddhism was introduced to Tibetan areas, there was no special culture formed in Tibet, so Tibetan culture evolved on the basis of mature Buddhism. Likewise, the Tibetan language is also formed on the basis of Sanskrit. Therefore, Tibetan Buddhism has preserved the original teachings of the Buddha of more than 2,500 years ago.
+When Buddhism spread to Southeast Asian countries, all countries integrated Buddhism into their own local culture, and Buddhism was more or less influenced by local culture. When Buddhism entered China, Taoist and Confucian culture were highly developed, so Han culture influenced Buddhism, and Buddhism there became Han-style Buddhism. When Buddhism was introduced to Tibet, there was no special culture formed in Tibet, so Tibetan culture evolved on the basis of mature Buddhism. Likewise, the Tibetan language is also formed on the basis of Sanskrit. Therefore, Tibetan Buddhism has preserved the original teachings of the Buddha of more than 2,500 years ago.
 
 **5. The course is complete**
 
-The courses of Buddhist study include sutras, tantras, and treatises. The small method and the sutra method taught by the Buddha himself are called sutras. The tantra method taught by the Buddha is called continuation.
+The courses of Buddhist study include sutras, tantras, and treatises. The Hinayana and the sutra method taught by the Buddha himself are called sutras. The tantra method taught by the Buddha is called continuation.
 
 The explanations of the scriptures and tantras preached by the Buddhas, by Bodhisattvas and Mahasiddhas are called sutras. There are many Buddhists who study the scriptures directly in Southern and Chinese Buddhism.
 
@@ -220,7 +221,7 @@ Tibetan Buddhism generally studies the sutras first, and then the tantras, becau
 
 Tibetan Buddhism mainly studies the Five Great Treatises, "The Great Treatise on the Stages of the Path to Enlightenment", "The Esoteric Essays on the Stages of Tantric Buddhism" and so on. A treatise contains references to a lot of sutras, and if you study a treatise well, you will also become familiar with a lot of sutras. Therefore, Tibetan Buddhism first studies the theories, then the scriptures, and then the continuations (the tantras).
 
-Tibetan Buddhism has the five perfections, pure lineage, and the complete sequence. At the same time, it integrates the essence of 84,000 methods, so it can cure the 84,000 kinds of troubles of modern people, and it is very suitable for contemporary lay people to practice.
+Tibetan Buddhism has the five perfections, pure lineage, and the complete sequence. At the same time, it integrates the essence of 84,000 dharmas, so it can cure the 84,000 kinds of troubles of modern people, and it is very suitable for contemporary lay people to practice.
 
 ![Shakyamuni](/images/sakyamuni.png)
 
@@ -273,7 +274,7 @@ Tibetan Buddhism has the five perfections, pure lineage, and the complete sequen
 ---
 
 **Training Curriculum - Tuo Le Si Monastery**
-
+#### {#practice-sequence}
 **1. Introductory Level**
 
 **(1) Recitation**
@@ -300,7 +301,7 @@ Tibetan Buddhism has the five perfections, pure lineage, and the complete sequen
 
 11. Minimalist Confession
 
-12. Seven Offerings
+12. Seven Point Mandala Offering
 
 13. Mandala Offering text
 
@@ -525,7 +526,7 @@ The Dharma Door of Xi Zeng Huai Punishment
 
 (3) Practice
 
-1. Pulse Wind
+1. Energy-Wind
 
 2. Kundalini
 
@@ -632,7 +633,7 @@ Memorizing the merits and virtues of "The Poetry of the Bodhi Path" is equivalen
 
 In the "Thirty-five Buddhas of Repentance", each of us has a lot of karma, so we should repent and make amends every day.
 
-Repentance, the most outstanding method in the dharma door of Xianzong is the "Thirty-five Buddhas of Repentance", which must be memorized.
+Repentance, the most outstanding method in the dharma door of Mahayana is the "Thirty-five Buddhas of Repentance", which must be memorized.
 
 "Golden Brightness Most Victorious King Jing Confession" and "Minimal Confession" have only one chapter each, and it is very easy to memorize them.
 
@@ -645,7 +646,6 @@ First, recite the Heart Sutra 10,000 times.
 Everyone should recite it 10,000 times on their own.
 
 If you can't recite it 10,000 times each, that's fine. You can recite it in a group, and you can finish 10,000 times in no time.
-
 
 If one hundred people recite together the "Heart Sutra" once, it counts as one hundred times, that is, as if everyone had recited one hundred times.
 
@@ -803,15 +803,17 @@ If everyone works hard, I believe that preparatory classes will soon graduate.
 
 After graduating from the preparatory class, they will enter the main class, and other new disciples can enter the preparatory class.
 
-Each group practice center will start the group practice once a week, and it will increase to two or three times later.
+Each group practice center will start the group practice once a week, and it will increase to two or three times a week later.
 
 At present, there is only one preparatory class, and other classes will be gradually added in the future. When there are all five classes, then the co-cultivation center will have co-cultivation learning every day, which is very good!
 
 The second class is the Main class.
 
-The Miain class will first recite the following:
+The Main class will first recite the following:
 
-Recite the Twenty-One Tara Sutra 10,000 times, and it is even better if you can recite it 100,000 times.
+Recite the Twenty-One Tara Sutra 10,000 times. 
+
+Even better if you can recite it 100,000 times.
 
 Why should we recite the Twenty-One Tara Sutra? The 21 Tara Prayer Sutra has twenty-one different functions: the effect of eliminating disasters, the effect of health, the effect of longevity, the effect of exorcising demons, the effect of obtaining wealth, the effect of removing obstacles, and so on.
 
@@ -821,9 +823,9 @@ If the practice is done in sequence, the mantra will be transferred after the of
 
 Recite the "Medicine Buddha Ritual" 14,000 times, and you can recite it in a group practice.
 
-It has the merits of health, longevity, elimination of disasters, avoidance of calamities, and wish-fulfilment.
+It has the merits of promoting health, longevity, elimination of disasters, avoidance of calamities, and wish-fulfilment.
 
-Reciting the six-syllable mantra 100,000 times is of great help in cultivating compassion.
+Reciting the six-syllable mantra 100,000 times is of great help in developing compassion.
 
 Reciting the mantra of Vajra Hand Bodhisattva 100,000 times can increase your abilities.
 
@@ -834,17 +836,17 @@ Recite the White God of Wealth Heart Mantra 100,000 times to gain wealth.
 
 #### Explanation of the practice steps of the Tuo Le collective practice center
 
-Reciting the Vajra Heart Mantra one hundred thousand times can ward off evil spirits.
+Reciting the Heart Mantra of Vajrasattva  one hundred thousand times can ward off evil spirits.
 
 Reciting the mantra of the Buddha's Mother of Light a hundred thousand times can expel evil friends.
 
-If you recite the Ruyi Guanyin mantra a million times, you can get your wish.
+If you recite the Ruyi Guanyin mantra a million times, you can obtain whatever you wish for.
 
 This is what the Main class recites.
 
-Although 100,000 times and 1,000,000 times may seem like a lot, they are very fast when they practice together. One hundred thousand times can be completed quickly in two or three times.
+Although 100,000 times and 1,000,000 times may seem like a lot, they are very fast when the practice is done together in a group. One hundred thousand times can be completed quickly in two or three times.
 
-Next, recite the following contents: 
+Next, recite the following materials: 
 
 "In Praise of Dependent Origination"
 
@@ -866,12 +868,12 @@ Study the "Medicine Buddha Sutra",
 
 There are two kinds of "The Essays on the Order of the Esoteric Buddhism", the broad and the abbreviated.
 
-When we start to study the four tantras of tantra, we will understand what tantra is.
+When we start to study the four tantras, we will understand what tantra is.
 
 
 The third class is the Prajna class.
 
-The Prajna class studies the Dharma of the Xian sect, and it should have been in the front of the main class.
+The Prajna class studies the Dharma of the Mahayana school, and it should have been in the front of the main class.
 
 Why put the Prajna class in the third position?
 
@@ -891,7 +893,7 @@ Ordinary masters don't understand this secret sequence, and everyone should unde
 
 The Prajna class should recite the "Diamond Sutra" a thousand times, recite the Prajna Shrine a thousand times, and recite the Manjusri True Name Sutra a thousand times.
 
-The above recitations can also be practiced together.
+The above recitations can also be practiced together in a group.
 
 The Prajna class should recite the Outline of the Three Ways.
 
@@ -911,11 +913,11 @@ If you start studying the Diamond Sutra from here, you will understand a little 
 
 The Extensive Treatise on the Stages of the Path to Bodhi should be recited at least five times.
 
-The fourth class is the stage of generation.
+**The fourth class is the generation stage.**
 
 In the generation stage, the recitations are:
 
-the Mahavira Vajra ritual 10,000 times, 
+The Mahavira Vajra ritual 10,000 times, 
 
 or the Dakini Buddha ritual 10,000 times, 
 
@@ -939,7 +941,7 @@ The generation stage class is to learn the second stage of tantra and the stages
 
 That is to say, from here, the real learning of the tantra path and the tantra birth sequence in the second tantra.
 
-The birth stage class is to practice the Three Body Dharma Door.
+The generation stage is to practice the Three Body Dharma Door.
 
 The Three Body Dharma Door is the Dharmakāya Dharma Door, the Sambhogakaya Dharma Door, and the Nirmāṇakāya Dharma Door.
 
@@ -960,17 +962,17 @@ In terms of learning, when it comes to the completion stage, you must learn the 
 
 In terms of practice, when it comes to the completion stage, there is no need to recite the rituals, just recite the mantra, and then it is really time to cultivate the clear points of the Qi meridians.
 
-By cultivating the qi meridian, the qi meridians in the whole body will be opened, and the qi will enter the central meridian, which is really different.
+By cultivating the qi meridians, the qi meridians in the whole body will be opened, and the qi will enter the central meridian, which is really different.
 
 Then, cultivate the kundalini fire, cultivate the non-dual nature of emptiness and great happiness, and finally cultivate the five perfections.
 
-The generation stage and the completion stage are the two most essential stages of the supreme yoga in the four tantras.
+The generation stage and the completion stage are the two most essential stages of  supreme yoga in the four tantras.
 
 To become a Buddha, you must practice these two stages.
 
 Our stage is an ordinary layman's stage of becoming a Buddha.
 
-According to this sequence of practice, if the karmic conditions are sufficient, some people may become Buddhas in one lifetime, some people will be liberated from the cycle of birth and death in their lifetime, and some people will be reborn in the Pure Land by cultivating dakini. Rebirth in a pure land.
+According to this sequence of practice, if the karmic conditions are sufficient, some people may become Buddhas in one lifetime, some people will be liberated from the cycle of birth and death in their own lifetime, and some people will be reborn in the Pure Land by cultivating dakini. Rebirth in a pure land.
 
 For example, among the masters of the lineage of the Dakini Buddha, there are seven teachers and students of Nasa Zhipupa who led them to be reborn in the Pure Land of Dakinis.
 
@@ -994,7 +996,9 @@ Once the study stage is completed, and through careful practice, one will truly 
 
 The success of the layperson is like this.
 
-The practice steps of the Tuo Le Center are complete. I hope everyone can practice according to these steps.
+This presentation of the practice steps of the Tuo Le Centre are complete.
+
+I hope everyone can practice according to these steps.
 
 **Practice requires sequential steps.**
 
@@ -1012,13 +1016,13 @@ Without order, chaotic cultivation and blind cultivation can also accumulate ble
 
 Because there will be many obstacles in the process of practice, it is important to understand that practice requires correct sequencing.
 
-According to Master Tsongkhapa's "Great Treatise on the Stages of the Path of Bodhi" or "A Brief Treatise on the Stages of the Path of Bodhi", first practice the lower sage path, then the middle sage path, then the upper sage path, and then enter the second stage of Tantric Buddhism, and then Becoming a Buddha is such a sequence.
+According to Master Tsongkhapa's "The Great Treatise on the Stages of the Path to Enlightenment" or "A Brief Treatise on the Stages of the Path to Enlightenment", first practice the lower sage path, then the middle sage path, then the upper sage path, and then enter the second stage of Tantric Buddhism, and then becoming a Buddha is such a sequence.
 
 In our simplest terms, the order is twofold: first, to cultivate perfection in the world; second, to cultivate transcendence of the world.
 
 These are two processes and two times.
 
-The first step is to cultivate the perfection of the world.
+The first step is to cultivate perfection in the world.
 
 What is meant by perfection in the world? It is the pursuit of the clergy and the seven virtues of humans and gods.
 
@@ -1048,11 +1052,11 @@ The longer your lifespan, the more time you have to practice. The longer the pra
 
 At the beginning of learning Buddhism, one needs to cultivate the perfection of the world, so wealth is needed.
 
-Some people will have some misunderstandings. Isn't studying Buddhism to see through and let go? It is to see through and let go, but on the understanding level of seeing through and letting go, there are two meanings. One of them means letting go of troubles. It does not tell you to let go of wealth, family, family life and so on.
+Some people will misunderstand. Isn't studying Buddhism to see through and let go? It is to see through and let go, but on the understanding level of seeing through and letting go, there are two meanings. One of them means letting go of troubles. It does not tell you to let go of wealth, family, family life and so on.
 
 To ask you to let go is to let go of your troubles, everyone should know this.
 
-Do we need wealth to study Buddhism? Wealth is needed in the beginning.
+Do we need wealth to study Buddhism? Wealth is needed at the beginning.
 
 At the beginning we do not have open wisdom, we do not have the power to meditate, but we have wealth that we could use to accumulate blessings.
 
@@ -1106,7 +1110,7 @@ A wise life is very important. Wisdom can eliminate pain and eliminate worries.
 
 It is freedom and the power to love others.
 
-There are three kinds of results of good and evil karma: present, coming, and to come.
+There are three kinds of results of good and evil karma: present, coming, and not-yet-happening.
 
 The result of great good and bad karma or long-term good and bad karma is present; the result of medium good and bad karma is coming; the result of small good and evil karma is future.
 
@@ -1114,7 +1118,7 @@ The great blessings and the results of long-term blessings will be manifested in
 
 Many of us who have just learned Buddhism and have just entered Buddhism have misunderstandings to varying degrees.
 
-Misunderstood what? It's just that some people think that once you enter Buddhism, you are a monk, and you don't need a family.
+What are these misunderstandins? It's just that some people think that once you enter Buddhism, you become a monk or a nun, and you don't need a family.
 
 For example, there is a donor I have known for several years, and I said you should take refuge.
 
@@ -1132,11 +1136,11 @@ At the beginning of learning Buddhism, the body is indeed very important.
 
 Buddha Shakyamuni taught prostration in the tantras, but there was no prostration in the Chan sect.
 
-Prostration not only accumulates blessings, but also eliminates karma, and also exercises the body.
+Prostration not only accumulates merit, but also eliminates karma, and also exercises the body.
 
 When Buddha Shakyamuni asked us to cultivate the Eight Tathagatas of the Medicine Buddha, he told us that a healthy body is very important.
 
-Many people have such a misunderstanding. Now that they have studied Buddhism, the body is not important. The most important thing is the Three Jewels.
+Many people have such a misunderstanding. Now that they have begun to study Buddhism, the body is not important. The most important thing is the Three Jewels.
 
 The Three Jewels are important, but so is the body.
 
@@ -1146,21 +1150,21 @@ In addition, longevity is also very important, so Buddha Shakyamuni talked about
 
 ---
 
-The Second Stage is to practice transcending the world.
+**The Second Stage** is to practice transcending the world.
 
-When I first started to study Buddhism, I cultivated perfection in the world. When the practice in the world is more perfect and fulfilled, I will naturally not be interested in the worldly law. When we reach this stage, the time to transcend the world will come.
+When I first started to study Buddhism, I cultivated perfection in the world. When the practice in the world is more perfect and fulfilled, I will naturally not be interested in worldly things. When we reach this stage, the time to transcend the world will come.
 
 At this time, seeing through and letting go is letting go of wealth, family, and attachment to small families and thinking that all sentient beings in the six realms are your own parents and relatives, letting go of everything that belongs to selfishness, and that you are beyond the world.
 
-Once you transcend the world, it will be completely different, your heart will be opened, and you will be able to accommodate the entire world.
+Once you transcend the world, things will be completely different, your heart will be opened, and you will be able to accommodate the entire world.
 
-If you can accommodate sentient beings of the six realms in your heart, you will no longer need wealth at this time, you can let go of wealth, and let go of the things you used to be greedy for.
+If you can accommodate sentient beings of the six realms in your heart, you will no longer need wealth at this time. You can let go of wealth, and let go of the things you used to be greedy for.
 
-However, the wonderful thing is that when we let go and stop pursuing wealth, wealth will naturally follow us in turn.
+However, the wonderful thing is that when we let go and stop pursuing wealth, wealth will naturally follow us.
 
-Because our hearts are opened, it will be different, and we can say that we have become the masters of the world.
+Because our hearts have been opened, it will be different, and we can say that we have become the masters of the world.
 
-There is room for all sentient beings in the six realms in your heart, if you tell a cockroach to get out, it will get out, and even the cockroach will listen to you.
+There is room for all sentient beings in the six realms in your heart. If you tell a cockroach to get out, it will get out, and even the cockroach will listen to you.
 
 Beyond that, then you are completely different.
 
@@ -1182,11 +1186,11 @@ So when you reach beyond the world in your practice, you can hardly find anyone 
 
 Look at those two people who were complaining about Venerable Atisha. Venerable Atisha was also very happy!
 
-Right now, we haven’t transcended the world, and many things that go beyond the world in Buddhism are inappropriate for us people today.
+Right now, we haven’t yet transcended the world, and many things that go beyond the world in Buddhism are inappropriate for us people today.
 
 Now we have not yet reached the time to not want wealth, but to use wealth to accumulate blessings and use wealth to support this life.
 
-But when you transcend, you don’t have to support yourself in this life. Beings in the six realms, the gods, dragons, and eight ministries will support you. It’s different!
+But when you transcend the world, you don’t have to support yourself in this life. Beings in the six realms, the gods, dragons, and eight ministries will support you. It’s different!
 
 The stages of practice are the two processes of world perfection and world transcendence mentioned above.
 
@@ -1237,17 +1241,17 @@ After practicing the Speech Blessing Mantra, the mantra will definitely be achie
 
 Without the Speech Blessing Mantra, it is very difficult to recite mantras to achieve success.
 
-If you don't have the Speech Blessing Mantrag, when you recite a mantra, there will be a lot of things that block the ability of the mantra.
+If you don't have the Speech Blessing Mantra, when you recite a mantra, there will be a lot of things that block the ability of the mantra.
 
 For example, eating animal tongues will block the ability to chant mantras for a lifetime; eating garlic will block the ability to chant seven-day mantras; eating onions and leeks will block the ability to chant three-day mantras; eating radishes will block the ability to chant mantras for three days. Blocks the ability to chant mantras for a day; there is also a kind of grass, which is called "Zhaji" in Tibetan and "nettle" in Chinese.
 
 Eating this grass also hinders the ability to chant mantras for a lifetime.
 
-Another example: We often accidentally blow with our mouths (blow fire, blow out candles, etc.), which will eliminate the ability to chant a spell a little bit.
+Another example: We often accidentally blow with our mouths (blow fire, blow out candles, etc.), which will eliminate the ability to chant a mantra a little bit.
 
-If you practice the Speech Blessing Mantra, it will block all these obstacles.
+If you practice the Speech Blessing Mantra, it will clear all these obstacles.
 
-Not only does it help us block out obstacles, but it also increases the merits of our mantras by a million times.
+Not only does it help us clear obstacles, but it also increases the merits of our mantras by a million times.
 
 If the Speech Blessing Mantra is cultivated well, gossip will become a mantra.
 
@@ -1283,17 +1287,19 @@ If you want to achieve success in reciting mantras, and if you want the power of
 
 After cultivating the Speech Blessing Mantra, ordinary right and wrong can be turned into mantras.
 
-Rako Rinpoche said: "I don't have so much extravagance to make right and wrong into a mantra, I don't ask for this, I just ask that if I practice the Speech Blessing Mantra and eat onions, garlic, animal tongues, etc., it won't interfere with the ability of mantras. it is good."
+Rako Rinpoche said: "I don't have so much extravagance to make right and wrong into a mantra, I don't ask for this, I just ask that if I practice the Speech Blessing Mantra and eat onions, garlic, animal tongues, etc., it won't interfere with the ability of mantras. It is good."
 
 Rako Rinpoche also said: "If the Speech Blessing Mantra is well cultivated, gossip can be turned into a mantra."
 
-Master Qiongwu once said that "mantra can be increased tens of millions of times", which means that after practicing the blessing, the number of mantras recited will increase, the merit will increase, and the increase will multiply millions of times; After the Speech Blessing Mantra, the mantra will not be hindered by external forces; "Voice can attract thousands of people", if you practice well, ordinary words or unintentional jokes, no matter from which point of view, every one sounds very good. It makes sense, and I think this sentence has the effect of reminding everyone; "All sounds become mantras." If you practice good language and blessings, all sounds and gossip will become mantras, and even the sound of coughing will become a mantra, which is really incredible.
+Master Qiongwu once said that "mantra can be increased tens of millions of times", which means that after practicing the blessing, the number of mantras recited will increase, the merit will increase, and the increase will multiply millions of times; After the Speech Blessing Mantra, the mantra will not be hindered by external forces; "Voice can attract thousands of people", if you practice well, ordinary words or unintentional jokes, no matter from which point of view, every one sounds very good. It makes sense, and I think this sentence has the effect of reminding everyone; "All sounds become mantras." 
+
+If you practice good language and blessings, all sounds and gossip will become mantras, and even the sound of coughing will become a mantra, which is really incredible.
 
 To cultivate the Speech Blessing Mantra method, you must first recite the following rituals with me: ah () on the tongue of the self-respect, the character ah turns into a full moon disk, the white om () character appears on the moon disk, the om character is surrounded by vowels, and the white color is clockwise. Arranged, there are consonant mantras on the outside, the red is arranged counterclockwise, the mantra of Dependent Origination is surrounded by the outside, the blue is arranged clockwise, the mantra is released and brought back, the blessing of the Guru Three Jewels, the deity protector of the Arhat force, the holy language man and the blessing of heaven Force, earth, water, fire, wind, cosmic force, om () ah () hum () and three mantras, white, red, yellow (blue) light and seven treasures, and eight kinds of mascots, all things are integrated into the word om.
 
 What does it mean? When you want to practice "Speech Blessing Mantra", you have to become your own deity.
 
-If your deity is Tara, visualize yourself becoming Tara; if your deity is Avalokitesvara, visualize yourself as Avalokitesvara.
+If your deity is Tara, visualize yourself becoming Tara. If your deity is Avalokitesvara, visualize yourself as Avalokitesvara.
 
 Usually, we visualize ourselves becoming a Vajrasattva — a single Vajrasattva.
 
@@ -1387,17 +1393,17 @@ General's Treasure
 
 The color of the "Vowel mantra" is white. Visualize the "Consonant Mantra" on the outside of the "Vowel Mantra". The color of the "Consonant Mantra" is red and visualized in a counterclockwise order. Visualize the "Dependent Origination Mantra" outside the Consonant Mantra. The color of the "Dependent Origination Mantra" is blue and visualized in a clockwise order. For these three mantras, outside the word "Om", visualize the "Mother Mantra", then visualize the "Consonant Mantra", then visualize the "Dependent Origination Mantra", and finally visualize the "Vajrasattva" mantra outside the "Dependent Origination Mantra". If your deity is Tara, visualize the mantra of Tara outside of the Dependent Origination Mantra.
 
-After the visualization is over, these mantras emit immeasurable rays of light, and immeasurable rays of light pervade the entire universe, the entire Buddha and Bodhisattva Pure Lands, and the entire void.
+After the visualization is over, these mantras emit immeasurable rays of light, and these immeasurable rays of light pervade the entire universe, the entire Buddha and Bodhisattva Pure Lands, and the entire void.
 
 Once the recitation is finished, the blessing of the guru, the blessing of the four deities, the blessings of the Buddhas and Tathagatas, and the blessings of all the bodhisattvas all become "Om(ཨོཾ) ah(ཨཱཿ) hum(ཧཱུྂ༔)", or become white. The red and blue light melts into the mantra wheel on the tongue. The blessing of Arhats, the blessings of Dharma protectors, and the blessings of saints all turn into "Om Ah Hum", or white, red, and blue light, which melts into the mantra wheel on the tongue. 
 
 The power turns into light of various colors and melts into the mantra wheel on the tongue; the gods, the dragon king, the four wheel-turning kings, and the kings of all countries, all those who have great blessings will have their blessings turned into eight auspicious treasures. 
 
-The Seven Treasures, are integrated into the mantra wheel on the tongue; the power of the entire universe becomes the eight auspicious treasures, which are integrated into the mantra wheel on the tongue. Into the mantra wheel on the tongue, after it has melted into it, recite the heart mantra of Vajrasattva: Om Banzaer Satom Hum (or the hundred-syllable mantra). It keeps melting when the mantra is chanted.
+The Seven Treasures are integrated into the mantra wheel on the tongue; the power of the entire universe becomes the eight auspicious treasures, which are integrated into the mantra wheel on the tongue. Into the mantra wheel on the tongue, after it has melted into it, recite the Heart Mantra of Vajrasattva: Om Banzaer Satom Hum (or the hundred-syllable mantra). It keeps melting when the mantra is chanted.
 
 Om Banzaer Sapon Hum (Vajrasattva Heart Mantra)
 
-The Vajrasattva mantra or the hundred-syllable mantra should be recited seven times, fourteen times if there is time, or twenty-one times, but at the very least seven times. After reciting, recite the "vowel mantra" and the "consonant mantra", and the "vowel mantra" and "consonant mantra" should be recited together:
+The Vajrasattva mantra or the hundred-syllable mantra should be recited seven times, fourteen times if there is time, or twenty-one times, but at the very least seven times. After reciting the Vajrasattva mantra, recite the "vowel mantra" and the "consonant mantra", and the "vowel mantra" and "consonant mantra" should be recited together:
 
 #### ཨ་ཨཱ། ཨི་ཨཱི། ཨུ་ཨཱུ། རྀ་རཱྀ། ལྀ་ལཱྀ། ཨེ་ཨཻ། ཨོ་ཨཽ། ཨཾ་ཨཿ
 
@@ -1419,7 +1425,7 @@ The Vajrasattva mantra or the hundred-syllable mantra should be recited seven ti
 
 (Consonant Mantra)
 
-This is the "vowel mantra" and the "consonant mantra". It should be recited more than seven times in a row. If we don't have time, we can recite it three times, but it is usually better to recite it seven times.
+This is the "vowel mantra" and the "consonant mantra". They should be recited more than seven times in a row. If we don't have time, we can recite it three times, but it is usually better to recite it seven times.
 
 The pronunciation of mantras such as vowel mantras and consonant mantras must be learned from the master's accent, and mantras cannot be learned only from words, because words cannot express them.
 
@@ -1433,11 +1439,11 @@ Yesoha (Dependent Origination Mantra)
 
 The "Dependent Origination Mantra" can be recited three times, or seven times, but at least three times.
 
-These mantras, including the mantra of "Vajrasattva", are recited seven times, and the merit is very great.
+These mantras, including the mantra of Vajrasattva, are recited seven times, and the merit is very great.
 
 "Consonant mantra" and "vowel mantra" are the "Consonant mantra" and "vowel mantra" in Sanskrit.
 
-Why recite the Sanskrit "Consonant Mantra" and "Votel Mantra"?
+Why recite the Sanskrit "Consonant Mantra" and "Vowel Mantra"?
 
 Because all the Buddhas and Tathagatas became Buddhas, they all used Sanskrit to teach sutras and preach the Dharma.
 
@@ -1485,13 +1491,17 @@ The characters emit light, and the whole of the mantra wheel is full of light. T
 ཨ
 The characters become, the moon plate becomes the ah character, the ah character becomes the white and red nectar, the nectar melts into the tongue, and the tongue becomes the tongue that is not bad. The outside is meat, the inside is a vajra, this is the vajra tongue.
 
-Just visualize it in this way, and practice in the morning according to this method. Before practising, recite the Heart Sutra once. Why should I read the Heart Sutra first? Reciting the Heart Sutra in the morning can dispel demons. After the demons are eliminated, recite the Speech Blessing Mantra. All the mantras recited that day will increase, and neither the mantras nor the scriptures will be hindered.
+Just think about it this way, and practice in the morning according to this method. Before practising, recite the Heart Sutra once. 
 
-We need to practice language and blessing. It may take an hour or half an hour at the beginning, and gradually it will become fifteen minutes, ten minutes, or even a few minutes. If you are used to visualization, a few minutes will do.
+Why should we read the Heart Sutra first? 
+
+Reciting the Heart Sutra in the morning can expel demons. After the demons are eliminated, recite the Speech Blessing Mantra. All the mantras recited that day will increase in power, and neither will there be any resistance in reciting mantras or the sutras.
+
+We need to practice the speech blessing. It may take an hour or half an hour at the beginning, and gradually it will become fifteen minutes, ten minutes, or even less. If you are used to visualization, a few minutes will do.
 
 It's hard at first, but it's pretty easy once you get used to it.
 
-The teaching on the Speech Blessing Mantra is finished, I hope everyone can cultivate to completion!
+The teaching on the Speech Blessing Mantra is finished, I hope everyone can practice to completion!
 
 Tashi Delek!
 
@@ -1511,6 +1521,7 @@ Three Parents
 
 
 **Wishes for the Prosperity of the Gelugpa School**
+#### {#gelug-prosperity}
 
 Although he is the Buddha's father who nurtured all Buddhas, 
 

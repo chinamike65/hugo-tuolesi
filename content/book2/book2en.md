@@ -5,10 +5,13 @@ draft: false
 ---
 
 Treasures of the Dharma Ocean (2)
+
+![Ah Wang](/images/fahaibao2.png)
+
 ![front](/images/fa3frontgreet.png)
 
 
-Ngawang Gyatso Vajra Guru Opening Prayer
+#### Ngawang Gyatso Vajra Guru Opening Prayer
 
 **Three loves:**
 
@@ -44,29 +47,29 @@ Practice the Dharma
 
 Master Ngawang Gyatso was born on March 3, 1969 (the fifteenth day of the first lunar month) in Hainan Tibetan Autonomous Prefecture, Qinghai Province.
 
-The master began to practice Buddhism as a novice monk at the age of six, and became an ordained monk at the age of eighteen. He had studied with Dharma Master Lamaoyong Zeng, Geshe Rinpoche, Lobsang Dorje Vajra Guru, Gejia Rinpoche, Dharma Master Yeshe Gyatso, and Gazang Qusong Vajra Guru and the 10th Panchen Lama.
+The master began to practice Buddhism as a novice monk at the age of six, and became an ordained monk at the age of eighteen. He studied with Dharma Master Lamaoyong Zeng, Geshe Rinpoche, Lobsang Dorje Vajra Guru, Gejia Rinpoche, Dharma Master Yeshe Gyatso, and Gazang Qusong Vajra Guru and the 10th Panchen Lama.
 
-The master is like a teacher, and he has completely obtained the inheritance of the seven masters' hearts and methods, obtained more than 200 kinds of empowerment, more than 300 kinds of empowerment with Xu, more than 280 kinds of guidance, more than 500 scriptures and more than 80 kinds of transmissions and pith instructions.
-
+**The master is like a teacher, and he has completely obtained the inheritance of the seven masters' hearts and methods, obtained more than 200 kinds of empowerment, more than 300 kinds of empowerment with Xu, more than 280 kinds of guidance, more than 500 scriptures and more than 80 kinds of transmissions and pith instructions.**
+---
 The master followed Lamaoyong to increase the Dharma Master for more than 20 years and gained the experience of the Dharma Master throughout his life.
-
+---
 Lamaoyong enlarged the Dharma Master before expressing his silence and instructed the master: **"Your whole career in this life is to turn the wheel of Dharma widely and spread the Dharma for the benefit of all living beings."**
 
 Master Ah Wang studied at Qinghai Buddhist Academy and Taer Monastery Debating School.
 
 During Master Ngawang Gyatso's studies, he completed the five major treatises, the second and second esoteric courses of the five great vajras with extraordinary diligence and wisdom, and mastered all the contents.
 
-Since graduating from Qinghai Buddhist Academy and Ta'er Monastery Debating Academy with excellent grades, the master has been living in Qinghai Tuole Monastery, serving as the Vajra Guru and the presiding officer of the monastery. He taught the monks of Tuole Monastery every day in groups of five great treatises, three ways of Dharmaism, and four tantras, and set up a new sutra debate school in the monastery.
+Since graduating from Qinghai Buddhist Academy and Ta'er Monastery Debating Academy with excellent grades, the master has been living at Qinghai Tuole Monastery, serving as the Vajra Guru and the abbot of the monastery. He teaches the monks of Tuole Monastery every day in groups: lectures on the five great treatises, San Shi Dao, and the four tantras, and has set up a new sutra debating school in the monastery.
 
-Master Ah Wang has now produced several batches of lamas with a Geshe degree (equivalent to a Ph.D.) in Buddhism.
+Master Ah Wang has now produced several batches of lamas with a Geshe degree (equivalent to a Ph.D. in Buddhism).
 
 The master also insists on going into retreat for two months every year.
 
-Master Ah Wang often gives sermons, teachings, precepts, and empowerment ceremonies in both Tibetan and Chinese areas, and often holds patriotic teachings, and patriotic activities in monasteries, making due contributions to the promotion of social harmony and stable development.
+Master Ah Wang often gives sermons, teachings, lectures, and empowerment ceremonies in both Tibetan and Chinese areas, and often holds patriotic teachings, and patriotic activities in monasteries, making due contributions to the promotion of social harmony and stable development.
 
-At the invitation of believers from other places, the master has traveled all over the world to teach the sutras and dharmas to those who are destined to hear them.
+At the invitation of believers from other places, the master has travelled all over the world to teach the sutras and the Dharma to those who are destined to hear them.
 
-The guru is always compassionate and easily approachable, and speaks according to the occasion, and preaches the basic theories and simple practices of Buddhism, such as the Three Paths of Dharma, the Four Refuges, the Seven Branches of Offering, the Dharma of Amitabha Buddha, the Vajrasattva Ritual, and the [Heart Sutra](/english/heartsutranotes) of Prajna Paramita.
+Master Ah Wang is always compassionate and easily approachable, and speaks according to the occasion, and preaches the basic theories and simple practices of Buddhism, such as the San Shi Dao, the Four Refuges, the Seven Point Mandala Offering, the Dharma of Amitabha Buddha, the Vajrasattva Ritual, and the [Heart Sutra](/english/heartsutranotes) of Prajna Paramita.
 
 The master has tens of thousands of disciples of many different nationalities.
 
@@ -138,11 +141,12 @@ The Buddha said: Bhikkhus or wise people should contemplate my words well, like 
 
 **6. The Ultimate**
 
-Any religion can use reasoning to some degree, but not the end. Buddhism is a knowledge of the ultimate, which is the biggest difference between Buddhism and other religions. The truth of what the Buddha said can help reach liberation.
+All religions use reasoning to some degree, but not the end. Buddhism is a knowledge of the ultimate, which is the biggest difference between Buddhism and other religions. The truth of what the Buddha said can help us reach liberation.
 
-Buddhism is a knowledge of the ultimate, which is the biggest difference between Buddhism and other religions.
 
-The truth of what the Buddha said can come to an end. The basic laws of all things in the universe, the origin of life, and the incredible phenomena of cultural development have been fully explained, including social phenomena that cannot be explained by modern science, which are clearly expressed in Buddhist scriptures. In the practice stage, the ultimate liberation, the ultimate emptiness, the ultimate cause and effect, and the ultimate perfection all fully demonstrate that Buddhism is a science that can achieve ultimate perfection through practice and enlightenment.
+The basic laws of all things in the universe, the origin of life, and the incredible phenomena of cultural development have been fully explained, including social phenomena that cannot be explained by modern science, which are clearly expressed in Buddhist scriptures. 
+
+In practical terms, the ultimate liberation, the ultimate emptiness, the ultimate cause and effect, and the ultimate perfection all fully demonstrate that Buddhism is a science that can achieve ultimate perfection through practice and enlightenment.
 
 #### Characteristics of Tibetan Buddhism
 
@@ -160,34 +164,35 @@ Complete training curriculum
 
 **1. Teaching is complete**
 
-Buddha's teachings are divided into Theravada and Mahayana. Mahayana has both the sutra method and the tantra methods. Now there are three major schools of Buddhism, referring to Southern Buddhism, Chinese Buddhism and Tibetan Buddhism. Southern Buddhism is the method of Theravada, it does not have the method of Mahayana. Chinese Buddhism is still dominated by the Mahayana Buddhism, but it does not have the four continuations of Tantric Buddhism. The teachings of Tibetan Buddhism include the Theravada method, the Mahayana Sutra method, and the Mahayana Tantra method of perfection.
+Buddha's teachings are divided into Theravada / Hinayana and Mahayana. Mahayana has both the sutra method and the tantra methods. Now there are three major schools of Buddhism, referred to as Southern Buddhism, Chinese Buddhism and Tibetan Buddhism. Southern Buddhism is the method of Theravada, it does not have the methods of Mahayana. Chinese Buddhism is still dominated by Mahayana Buddhism, but it does not have the four continuations of Tantric Buddhism. The teachings of Tibetan Buddhism include the Theravada method, the Mahayana Sutra method, and the Vajrayana Tantra method of perfection.
 
 **2. The lineage is complete**
 
-Except for the precepts, most of the traditions of Southern Buddhism and Chinese Buddhism have been cut off. However, the inheritance of the precepts, oral transmission, guidance, empowerment, etc. of Tibetan Buddhism has not been broken, and the lineage is pure and complete.
+Except for the sutras, most of the traditions of Southern Buddhism and Chinese Buddhism have been cut off. However, the inheritance of the vows, oral transmissions, guidance, empowerments, etc. of Tibetan Buddhism have not been broken, and the lineage is pure and complete.
 
 **3. The practice is complete**
 
-Southern Buddhism cultivates the precepts for liberation and the thirty-seven paths. Chinese Buddhism cultivates the precepts of separation and liberation, the precepts of Bodhisattva, compassion, bodhicitta, and six degrees of perfection. Tibetan Buddhism practice is complete: the external practice of the Hinayana method, the internal practice of the Mahayana Sutra method and the Tantric practice of the four tantras, and the practice of the three vehicle precepts of Biejie, Bodhisattva and Tantric.
+Southern Buddhism cultivates the vows for liberation and the thirty-seven paths. Chinese Buddhism cultivates the vows of separation and liberation, the vows of Bodhisattvas, compassion, bodhicitta, and six degrees of perfection. Tibetan Buddhist practice is complete: the external practice of the Hinayana method, the internal practice of the Mahayana Sutra method and the Tantric practice of the four tantras, and the practice of the three vehicles of special liberation vows, Bodhisattva vows and Tantric vows.
 
 **4. Well preserved**
 
-When Buddhism spread to Southeast Asian countries, all countries integrated their own local culture into Buddhism, and Buddhism was more or less influenced by local culture. When Buddhism entered China, Taoism and Confucian culture were very prosperous, so Han culture influenced Buddhism, and Buddhism became Han-style Buddhism. When Buddhism was introduced to Tibetan areas, there was no special culture formed in Tibet, so Tibetan culture was formed on the basis of mature Buddhism. Likewise, the Tibetan language is also formed on the basis of Sanskrit. Therefore, Tibetan Buddhism has preserved the original teachings of the Buddha of more than 2,500 years ago.
+When Buddhism spread to Southeast Asian countries, all countries integrated Buddhism into their own local culture, and Buddhism was more or less influenced by local culture. When Buddhism entered China, Taoist and Confucian culture were highly developed, so Han culture influenced Buddhism, and Buddhism there became Han-style Buddhism. When Buddhism was introduced to Tibet, there was no special culture formed in Tibet, so Tibetan culture evolved on the basis of mature Buddhism. Likewise, the Tibetan language is also formed on the basis of Sanskrit. Therefore, Tibetan Buddhism has preserved the original teachings of the Buddha of more than 2,500 years ago.
 
 **5. The course is complete**
 
-The courses of Buddhist study include sutras, tantras, and treatises. The small method and the sutra method taught by the Buddha himself are called sutras. The tantra method taught by the Buddha is called continuation.
+The courses of Buddhist study include sutras, tantras, and treatises. The Hinayana and the sutra method taught by the Buddha himself are called sutras. The tantra method taught by the Buddha is called continuation.
 
 The explanations of the sutras and tantras preached by the Buddhas, by Bodhisattvas and Mahasiddhas are called sutras. There are many Buddhists who study the scriptures directly in the Southern and Chinese Buddhism.
 
-Tibetan Buddhism generally studies the sutras first, and then the tantras, because the content of the tantras is very deep and broad, it is easier to understand the content of the tantras after studying the sutras first.
+Tibetan Buddhism generally studies the sutras first, and then the tantras, because the content of the tantras is very deep and broad, it is easier to understand the content of the tantras having studied the sutras first.
 
-Tibetan Buddhism mainly studies the Five Great Treatises, "The Broad Theory of the Bodhi Path", "The Broad Theory of the Tantric Path" and so on. A treatise contains a lot of sutras, and if you study a treatise well, you will also become familiar with a lot of sutras. Therefore, Tibetan Buddhism first studies the theories, then the scriptures, and then the continuations.
+Tibetan Buddhism mainly studies the Five Great Treatises, "The Great Treatise on the Stages of the Path to Enlightenment", "The Esoteric Essays on the Stages of Tantric Buddhism" and so on. A treatise contains references to a lot of sutras, and if you study a treatise well, you will also become familiar with a lot of sutras. Therefore, Tibetan Buddhism first studies the theories, then the scriptures, and then the continuations (the tantras).
 
-Tibetan Buddhism has the five perfections, pure lineage, and the complete sequence. At the same time, it integrates the essence of 84,000 methods, so it can cure the 84,000 kinds of troubles of modern people, and it is very suitable for contemporary lay people to practice.
+Tibetan Buddhism has the five perfections, pure lineage, and the complete sequence. At the same time, it integrates the essence of 84,000 dharmas, so it can cure the 84,000 kinds of troubles of modern people, and it is very suitable for contemporary lay people to practice.
 
 
 **Table of contents**
+#### {#toc-back}
 
 Four Refuges
 
@@ -197,7 +202,7 @@ Mandala
 
 Vajrasattva
 
-Great service
+Prostrations
 
 Introduction to Tuole Monastery
 
@@ -211,14 +216,15 @@ Tsongkhapa master and apprentice three statues
 Four Refuges
 (English)
 
-In the Guru I take refuge
-
-In the Buddha I take refuge
-
-In the Dharma I take refuge
-
-In the Sangha I take refuge
-
+>
+>In the Guru I take refuge
+>
+>In the Buddha I take refuge
+>
+>In the Dharma I take refuge
+>
+>In the Sangha I take refuge
+>
 (Sanskrit)
 
 Namo Gollumbe
@@ -247,13 +253,13 @@ Sang-gye cho-dang tsog-kyi cho-nam-la
 
 
 
-Please arouse Bodhicitta and listen carefully!
+Please generate Bodhicitta intention and listen carefully!
 
 The Four Refuges refer to taking refuge in the guru, taking refuge in the Buddha, taking refuge in the Dharma, and taking refuge in the Sangha. Among the 84,000 Dharma doors taught by Buddha Shakyamuni, the Four Refuges are the most important. 
 
 Believers are Buddhist disciples after taking refuge in the Three Jewels, and they are not Buddhist disciples if they have not taken refuge. Although people who have not taken refuge can learn the wisdom of Buddhism, they may not be able to learn the complete Dharma. Why?
 
-The reason is that there are many skillful, oral, and secret transmissions in the inheritance. Those who have not taken refuge have no lineage, and those who have not received the transmission cannot learn the complete Dharma.
+The reason is that there are many skilful, oral, and secret transmissions in the inheritance. Those who have not taken refuge have no lineage, and those who have not received the transmission cannot learn the complete Dharma.
 
 The Four Refuges are about: the place of taking refuge, the cause of taking refuge, the merits of the Three Jewels, how to visualize, the merits of taking refuge, and the study of taking refuge.
 
@@ -269,11 +275,11 @@ The five virtues are: Purity of Precepts, Perfect Understanding of Dharma, Great
 
 1. The precepts are pure
 
-Those who have broken the precepts cannot become teachers. If the guru is a monk, the monk's two hundred and fifty-three precepts must be pure, and at least the four root precepts must be pure.
+Those who have broken the vows cannot become teachers. If the guru is a monk, the monk's two hundred and fifty-three vows must be pure, and at least the four root vows must be pure.
 
-If you take the bodhisattva vows or the tantric vows, the bodhisattva vows and the tantric vows must also be purified.
+If you take the bodhisattva vows or the tantric vows, the bodhisattva vows and the tantric vows must also be pure.
 
-The bodhisattva precepts have eighteen fundamental precepts and forty-six branch precepts, and the tantric precepts have fourteen fundamental precepts and eight branch precepts.
+The bodhisattva vows have eighteen fundamental vows and forty-six additional vows, and the tantric vows consist of fourteen fundamental vows and eight addititional vows.
 
 2. Fully understand the Dharma
 
@@ -285,55 +291,55 @@ Such a teacher cannot lead his disciples to the right path, so the teacher must 
 
 3. Great mercy and great compassion
 
-The master treats every disciple with the same love as parents treat their only child, and loves every sentient being, and has a great wish to let sentient beings in the six realms be free from suffering and the causes of suffering.
+The master treats every disciple with the same love as parents treat their only child, and loves every sentient being, and has a great wish to help sentient beings in the six realms be free from suffering and the causes of suffering.
 
 4. Inheritance is pure and complete
 
-Before the Tang Dynasty, both Xianzong and Tantric Buddhism were inherited.
+Before the Tang Dynasty, both Mahayana and Tantric Buddhism were inherited.
 
 After the Tang Dynasty, the inheritance is still continuing is Tantra.
 
-The Four Refugees we are learning today were first passed on from Shakyamuni Buddha to Manjushri, then to Nagarjuna, then to Yuecheng Bodhisattva, then to Venerable Atisha, and then to Tsongkhapa Master, it was passed on to Kezhujie, the eldest disciple of Master Tsongkhapa, then to Dharma King Rako Rinpoche, then to Dharma King Yongzin, and then to Guru Ngawang Gyatso Vajrayana (the seventh master of Ngawang). The teachers are all disciples of Rako Rinpoche).
+The Four Refuges we are learning today were first passed on from Shakyamuni Buddha to Manjushri, then to Nagarjuna, then to Yuecheng Bodhisattva, then to Venerable Atisha, and then to Master Tsongkhapa, it was passed on to Kezhujie, the eldest disciple of Master Tsongkhapa, then to Dharma King Rako Rinpoche, then to Dharma King Yongzeng, and then to Guru Ngawang Gyatso Vajrayana (the seventh master of Ngawang). The teachers are all disciples of Rako Rinpoche).
 
-Tantric traditions include empowerment, oral transmission, guidance, precepts, and so on.
+Tantric traditions include empowerments, oral transmission, guidance, rituals, and so on.
 
-What is lineage purity or impurity? If we disobey the guru, the lineage will be impure; the faith in the guru will remain intact, and the lineage will be pure.
+What is lineage purity or impurity? If we disobey the guru, the lineage will be impure. If faith in the guru remains intact, the lineage will be pure.
 
 5. Understanding Emptiness
 
 The guru does not necessarily have the realization of emptiness, but he must be able to understand true emptiness in words.
 
-A guru who possesses the five virtues is the guru we take refuge in.
+A guru who possesses the five virtues is the guru we can take refuge in.
 
 （(2) Buddha
 
-A Buddha is a person who has cut off the two obstacles, the purest body, speech, and mind, a person who is fully enlightened and omniscient, a person who has obtained the four perfect bodies, and a person with the most complete blessings and wisdom. The Buddha understands all suffering and the causes of suffering, understands the sufferings and afflictions of sentient beings in the six realms, and understands the methods to resolve them.
+A Buddha is a person who has cut off the two obstacles, with the purest body, speech, and mind, a person who is fully enlightened and omniscient, a person who has obtained the four perfect bodies, and a person with the most complete blessings and wisdom. The Buddha understands all suffering and the causes of suffering, understands the sufferings and afflictions of sentient beings in the six realms, and understands the methods to liberate them.
 
-The Buddhas mentioned by the Xianzong refer to the Buddhas of the ten directions and three times, such as Shakyamuni Buddha and Amitabha Buddha.
+The Buddhas mentioned by the Mahayana refer to the Buddhas of the ten directions and three times, such as Shakyamuni Buddha and Amitabha Buddha.
 
-The Buddha mentioned in Tantra includes four deities: the deity of the affairs department, such as the five-nature Manjushri, the thousand-hand Guanyin, the twenty-one Tara, etc.; the deity of the line of action, such as Vairocana Bodhi Buddha, etc.; the deity of the yoga department, such as the Great Sun Tathagata etc.; Supreme Yoga Deity, such as Mahavira, Kalachakra, etc.
+The Buddhas mentioned in Tantra includes four deities: the deity of the affairs department, such as the five-nature Manjushri, the thousand-hand Guanyin, the twenty-one Tara, etc.; the deity of the line of action, such as Vairocana Bodhi Buddha, etc.; the deity of the yoga department, such as the Great Sun Tathagata etc.; Supreme Yoga Deity, such as Mahavira, Kalachakra, etc.
 
-Buddha includes all the Buddhas, both manifest and secret.
+Buddha includes all the Buddhas, both manifest and hidden.
 
-(3) Law
+(3) Dharma
 
-Dhamma refers to teaching and proof.
+Dharma refers to teachings and proofs.
 
-The teachings refer to eighty-four thousand teachings.
+The teachings refer to the eighty-four thousand teachings of the Buddha.
 
 There are 84,000 kinds of afflictions in human beings, and there are 84,000 kinds of methods for dealing with afflictions.
 
 Therefore, the more you learn the Dharma, the better, and the more you can deal with people's troubles.
 
-The realization of the Dharma refers to the enlightenment that practitioners should have, such as precepts, concentration, wisdom, and the five paths.
+The realization of the Dharma refers to the enlightenment that practitioners should have, such as vows, concentration, wisdom, and the five paths.
 
 There are Mahayana and Hinayana.
 
-Mahayana has explicit and secret methods.
+Mahayana has explicit and esoteric methods.
 
 The Hinayana refers to the Southern Tradition, and there is no Mahayana manifest or esoteric method.
 
-The Han traditions are mainly Xian Zong, and there are also some esoteric methods.
+The Han traditions are mainly Mahayana, and there are also some esoteric methods.
 
 There are eight major sects of Chinese Buddhism: Lu Sect, Pure Land Sect, Consciousness-only Sect, San Lun Sect, Huayan Sect, Zen Sect, Tiantai Sect, and Tantric Sect.
 
@@ -343,7 +349,7 @@ Tibetan Buddhism has four major schools and eighteen small schools.
 
 The four major schools are Nyingma, Kagyu, Sakya, and Gelug.
 
-The characteristics of tantra are the external practice of the Hinayana, including the precepts of other liberation; the internal cultivation of bodhicitta, the six degrees of ten thousand actions, and the bodhisattva precepts; the four deities of the tantric practice, especially the second stage of the supreme yoga.
+The characteristics of tantra are the external practice of the Hinayana, including the vows of other liberation; the internal cultivation of bodhicitta, the six degrees of ten thousand actions, and the bodhisattva vows; the four deities of the tantric practice, especially in the second stage of the supreme yoga.
 
 Tibetan Buddhism is combined with Mahayana and Buddhism.
 
@@ -353,37 +359,41 @@ Dharma is these Dharma gates.
 
 Both those who realize emptiness and the devas who realize emptiness are monks.
 
-The Hinayana monks have four fruit positions, including Arahants.
+Hinayana monks have four fruitional positions, including Arhats.
 
-The monks of the Mahayana Buddhism are bodhisattvas from one place to ten places.
+The monks of the Mahayana Buddhism are bodhisattvas of the ten bhumis.
 
-Tantric monks are Bodhisattvas, Dakinis, Dakinis, warriors, warrior mothers, and transcendent Dharma protectors.
+Tantric monks are Bodhisattvas, Dakinis, Dakini warriors, warrior mothers, and transcendent Dharma Protectors.
 
 Four ordinary monks can represent monks, but they are not monks in the true sense.
 
-The contents of the Four Refugees are very extensive, and even a great Geshe (Doctor of Buddhism) would not dare to say that he fully understands the Four Refugees.
+The contents of the Four Refuges are very extensive, and even a great Geshe (Doctor of Buddhism) would not dare to say that he fully understands the Four Refuges.
 
-The reason for taking refuge
+The reasons for taking refuge
 
 (1) Believe in the Three Jewels and understand the merits of the Three Jewels.
 
 (2) The lower rank is afraid of suffering and the suffering of the three evil realms; the middle rank is afraid that he will suffer from the six realms of reincarnation; the upper rank is afraid of the suffering of all beings in the six realms.
 
-Four Refuges Why should we take refuge? What kind of attitude do you take refuge in? For liberation, in order to become a Buddha and save sentient beings, for health, for the sake of success in doing things, it is possible to take refuge for any purpose. There are thousands of reasons for taking refuge.
+Four Refuges: Why should we take refuge? What kind of attitude do you take refuge in? For liberation, in order to become a Buddha and save sentient beings, for health, for the sake of success in doing things, it is possible to take refuge for any purpose. There are thousands of reasons for taking refuge.
 
-The real refuge: the lower clerical way is for the next life to have the leisure and perfection of the seven virtues of human beings and heaven, and not to fall into the three evil realms; the middle clerical way is for liberation; the upper clerical way is to become a Buddha.
+The real refuge: the lower path is for the next life to have the leisure and perfection of the seven virtues of human beings and heaven, and not to fall into the three evil realms; the middle path is for liberation; the upper path is to become a Buddha.
 
 3. The merits of the Three Treasures
 
 The merits of the Three Jewels are: Buddha's merit, Dharma's merit, and Sangha's merit.
 
-(1) Buddha's merits Buddha's merits include the merits of body, speech, mind, and karma.
+(1) Buddha's merits 
 
-1. The merits of the Buddha's body
+Buddha's merits include the merits of body, speech, mind, and karma.
 
-The Buddha's body has thirty-two features and eighty sublime features, that is, thirty-two features such as "the wheel of the hands and feet, and the soles of the feet are like the belly of a turtle", and eighty features such as the "bronze color of the Buddha's claws".
+1. The characteristics of the Buddha's body
 
-The praise of the Buddha's merits recorded in "Yuzan": "The appearance is dignified and dignified, and the eyes are particularly wonderful, like the autumn sky without clouds, and the stars are solemn.
+The Buddha's body has thirty-two signs of perfection and eighty secondary characteristics, that is, thirty-two signs of perfection such as "Thousand-spoked wheel sign on feet, Level feet", and eighty secondary characteristics such as the "bronze color of the Buddha's nails".
+
+The praise of the Buddha's characteristics recorded in "Yu Zan": 
+
+"The appearance is dignified, and the eyes are particularly wonderful, like the autumn sky without clouds, and the stars are solemn.
 
 Nengren is golden in color, and the dharma robes are strictly covered, which is equivalent to the golden mountain top, bound by the clouds.
 
@@ -397,23 +407,29 @@ The right hand should be offered, decorated with a special wheel, soothing with 
 
 When Nengren marches, his feet are like wonderful lotuses, printing and painting this ground, how can the lotus garden be beautiful? "
 
-2. Buddha's speech merits
+2. Qualities of Buddha's Speech
 
-There are sixty-four virtues of the Buddha's speech. When the Buddha taught the scriptures, different people asked different questions, and the Buddha could answer all the questions with just one "ah" character.
+There are sixty-four Qualities of the Buddha's speech. When the Buddha taught the scriptures, different people asked different questions, and the Buddha could answer all the questions with just one "ah".
 
 He never tires of listening to the Dharma taught by the Buddha, and every time he listens to it, he gains incredible results.
 
 People in different countries speak different languages, and one word "ah" can be translated into various languages.
 
-As it is said in "Puxian Xingxiangpin": "Heavenly Dragon Yaksha Kupanta, even human beings and non-human beings, all the speeches of all living beings can be spoken with various sounds.
+As it is said in "Samantabhadra's Wishes": 
 
-"And it is said in the tantra: "Although there is one voice, there are many appearances. "
+"Heavenly Dragon Yaksha Kupanta, even human beings and non-human beings, all the speeches of all living beings can be spoken with various sounds."
 
-Master Tsongkhapa said: "All sentient beings in all the worlds ask all doubts at one time, do everything in front of each one, and appear solemn in body and speech at the same time, even though they are engaged in work and rest.
+And it is said in the tantra: 
 
-It means that disciples who continue to study Buddhism day and night and listen to the sutras are very happy. Every time, they can solve the doubts in their hearts, and there are more and more ways to cut off their troubles.
+"Although there is one voice, there are many appearances. "
 
-When the Buddha preached the scriptures, the Buddha's voice could be heard clearly no matter in the front row or the back row.
+Master Tsongkhapa said: 
+
+"All sentient beings in all the worlds ask all doubts at one time, do everything in front of each one, and appear solemn in body and speech at the same time, even though they are engaged in work and rest.
+
+It means that disciples who continue to study Buddhism day and night and listen to the sutras are very happy. At all times, they can solve the doubts in their hearts, and there are more and more ways to cut off their troubles.
+
+In general, no matter how many beings simultaneously ask different questions to a Buddha, each in his or her own language, a Buddha can answer them all instantly and perfectly with one pronouncement. Each being will hear Buddha’s pronouncement in his or her language and with equal volume, no matter how close or far each is standing.
 
 In the past, Rinpoche Xingsa went to Kham to initiate Kalachakra. A deaf-mute person also participated. Suddenly, the deaf-mute person could hear the voice of Master's sermons, and he could also speak. He was very happy.
 
@@ -421,7 +437,9 @@ The next day he wanted to hear more clearly and sat in front of him, but it was 
 
 It can be seen that the Buddha's words are very powerful.
 
-As for the merits of other speeches, it is said in the "Hundred and Fifty Praises": "Contemplating the deity's lovely face, from what he has heard, it is extremely harmonious and elegant, like the moon's nectar.
+As for the other qualities of speech, it is said in the "Hundred and Fifty Praises": 
+
+"Contemplating the deity's lovely face, from what he has heard, it is extremely harmonious and elegant, like the moon's nectar.
 
 Reverence can be quiet, greed is like a rain cloud.
 
@@ -437,9 +455,11 @@ To congratulate all lacks, to return to all indulgences, to disgust those who ar
 
 Those who can produce wisdom rejoice, those who can increase the wisdom of the middle, and those who can destroy the shadows, these words benefit all living beings. "
 
-3. Buddha's Intentional Merit
+3. Buddha's Qualities of Mind
 
-Referring to the major scriptures, the merits of the Buddha's mind include: the ten powers of the Buddha, the eighteen uncommon dharmas, and the twenty-one kinds of merits of the infallible wisdom.
+Referring to the major scriptures, the qualities of the Buddha's mind include: 
+
+the ten powers of the Buddha, the eighteen uncommon dharmas, and the twenty-one kinds of merits of the infallible wisdom.
 
 Intentional merit can be divided into two types: "wisdom merit" and "compassion merit".
 
@@ -447,11 +467,13 @@ Wisdom and merit, the Buddha can see all dharmas clearly when he enters the time
 
 Such as watching the ummara fruit in the hands.
 
-It is said in "Zan Ying Zan": "The World-Honored One falls into the law of the time, all kinds of seeds are born, like the sour fruit in the palm of the hand, which is the state of the mind.
+It is said in "Zan Ying Zan": 
 
-All dharmas are moving and not moving, if they are one or more, they are like the wind in the sky, and there is nothing to hinder the respect.
+"The World-Honored One falls into the law of the time, all kinds of seeds are born, like the sour fruit in the palm of the hand, which is the state of the mind.
 
-"Compassion and merit, Buddha's love for sentient beings in the six realms is countless times greater than a mother's love for her seriously ill child.
+All dharmas are moving and not moving, if they are one or more, they are like the wind in the sky, and there is nothing to hinder the respect."
+
+Compassion and wisdom, Buddha's love for sentient beings in the six realms is countless times greater than a mother's love for her seriously ill child.
 
 No matter how deeply we cherish ourselves, it cannot be compared to a fraction of the Buddha's compassion for every sentient being.
 
@@ -467,47 +489,78 @@ The Buddha knows what kind of suffering sentient beings have. This is the wisdom
 
 Buddha has the ability and compassion to save all sentient beings.
 
-As long as the cause and condition for saving sentient beings arrives, the Buddha will surely save sentient beings without delay.
+As long as the cause and conditions for saving sentient beings arrives, the Buddha will surely save sentient beings without delay.
 
-(2) Dharma merits
+(2) Qualities of Dharma
 
 Dharma is the way to get rid of suffering and gain happiness. The virtue of Dharma is to free all beings from suffering, to realize their true nature, and to cut off afflictions.
 
 When we do things with a balanced state of mind, we will not be so impatient, we will endure humiliation and tolerance, and we know that to tolerate others is to tolerate ourselves.
 
-(3) The merits of the Sangha
+(3) The Qualities of the Sangha
 
-Sangha include Bodhisattvas, Arahants, and Dharma protectors.
+Sangha includes Bodhisattvas, Arhats, and Dharma Protectors.
 
-1. The merits of the Bodhisattva
+1. The Qualities of the Bodhisattva
 
-The Bodhisattva of the First Land cut off the obstacles of discriminating afflictions and knowledge, realized emptiness, and obtained the five supernatural powers.
+The Bodhisattva of the First Level has cut off the obstacles of discriminating afflictions and knowledge, realized emptiness, and obtained the five supernatural powers.
 
 After leaving the concentration, there are twelve merits: in an instant, you can see a hundred Buddhas; you can get the blessing of a hundred Buddhas; you can reach a hundred pure lands; you can manifest a hundred pure lands; you can shake a hundred worlds; you can live One hundred kalpas; able to know things before and after one hundred kalpas; able to enter one hundred meditations; able to teach one hundred Dharma doors; able to save one hundred sentient beings; able to transform one hundred incarnations; capable of incarnating one for each incarnation Hundreds of relatives.
 
 Every time a Bodhisattva enters a land, his merit increases tenfold compared to the previous Bodhisattva.
 
-For example, a bodhisattva in two places can see a thousand buddhas in a moment, a bodhisattva in three places can see 10,000 Buddhas in a moment, a bodhisattva in four places can see a hundred thousand buddhas in a moment, a bodhisattva in five places can see a million buddhas in a moment, and a bodhisattva in six places can see a million buddhas in a moment. You can see thousands of buddhas in an instant, a bodhisattva in the seventh place can see 100 million buddhas in an instant, a bodhisattva in the eighth can see a billion buddhas in a moment, a bodhisattva in the ninth place can see 10 billion buddhas in a moment, and a bodhisattva in the tenth place can see hundreds of billions in an instant Respect the Buddha.
+**bhumis**
 
-The same goes for the growth of other merits.
+For example, a bodhisattva of the Second Stage can see a thousand buddhas in a moment, a bodhisattva of the Third Stage can see 10,000 Buddhas in a moment, a bodhisattva of the Fourth Stage can see a hundred thousand buddhas in a moment, a bodhisattva of the Fifth Stage can see a million buddhas in a moment, and a bodhisattva of the Sixth Stage can see a million buddhas in a moment. You can see thousands of buddhas in an instant, a bodhisattva of the Seventh Stage can see 100 million buddhas in an instant, a bodhisattva of the Eigth Stage can see a billion buddhas in a moment, a bodhisattva of the Ninth Stage can see 10 billion buddhas in a moment, and a bodhisattva of the Tenth Stage can see hundreds of billions in an instant 
+
+Respect the Buddha.
+
+The same goes for the growth of other qualities.
 
 There are nine grades of inborn afflictions, and nine grades of inborn knowledge obstacles.
 
 Big troubles have big, medium and small pieces, medium troubles have medium big, medium and small pieces, and small troubles have small big, medium and small pieces.
 
-The same is true of the obstacles to the knowledge of the Four Refugees.
+The same is true of the obstacles to the knowledge of the Four Refuges.
+
+---
+
+**MIS - emotional and cognitive obscurations**
+what hinders us from realizing our true nature.
+
+Two obscurations (Tib. སྒྲིབ་པ་གཉིས་, dribpa nyi; Wyl. sgrib pa gnyis) — emotional and cognitive obscurations.
+
+Emotional obscurations are defined according to their essence, cause and function.
+In essence, they are the opposite of the six paramitas, as described in the Gyü Lama:
+
+"Thoughts such as avarice and so on,
+These are the emotional obscurations."
+Their cause is grasping at a personal ego, or the “self of the individual”.
+
+They function to prevent liberation from samsara.
+
+Cognitive obscurations are also defined according to their essence, cause and function.
+In essence, they are thoughts that involve the three conceptual ‘spheres’ of subject, object and action. The Gyü Lama says:
+
+"Thoughts that involve the three spheres,
+These are the cognitive obscurations."
+Their cause is grasping at phenomena as truly existent, or, in other words, the “self of phenomena”.
+
+Their function is to prevent complete enlightenment.
+
+---
 
 The bodhisattvas of the second ground cut off the great afflictions and the hindrances of knowledge, the bodhisattvas of the third ground cut off the great afflictions and the hindrances of the knowledge, the bodhisattvas of the fourth ground cut off the great and small afflictions and the hindrances of the knowledge, and the bodhisattvas of the fifth ground cut off the great afflictions and the hindrances of the knowledge. The bodhisattvas of the sixth ground cut off the hindrances of middle afflictions and the hindrances of knowledge, the bodhisattvas of the seventh ground cut off the hindrances of medium and small afflictions and the hindrances of knowledge, the bodhisattvas of the eighth ground cut off the hindrances of small and great afflictions and the hindrances of knowledge, and the bodhisattvas of the nine grounds cut off the hindrances of small and medium afflictions and hindrances of knowledge. , The Bodhisattvas of the Ten Grounds cut off the obstacles of small afflictions and obstacles of knowledge.
 
-2. The merits of an arahant
+2. The Qualities of an Arhat
 
-Arahants cut off the obstacles of afflictions and obtained the five supernatural powers and various meditations.
+Arhats cut off the obstacles of afflictions and obtain the five supernatural powers and various meditations.
 
-Arahants have the compassion of a mother to all beings, but not the compassion of a father (taking the responsibility of leading all beings from suffering to happiness).
+Arhats have the compassion of a mother towards all beings, but not the compassion of a father (taking the responsibility of leading all beings from suffering to happiness).
 
-An arahant has the wisdom of a bodhisattva of the seven grounds, but has no bodhicitta.
+An Arhat has the wisdom of a bodhisattva of the seventh bhumi, but has no bodhicitta.
 
-3. The virtues of the supernatural guardian deity
+3. The Qualities of the Dharma protector
 
 The transcendent Dharma protector can do things to increase the sustenance, protect the Dharma and practitioners.
 
@@ -519,7 +572,7 @@ The transcendent Dharma protector can do things to increase the sustenance, prot
 
 Visualize an eight-petaled lotus flower on the head, and in the middle of the lotus is Sakyamuni Buddha meditating. His heart glows with white light, and he invites the guru to the Three Jewels (the guru includes the root guru and the lineage guru), and invites all the Buddhas and Tathagatas. Bodhisattvas, warriors and warrior mothers merged into Shakyamuni Buddha.
 
-The rituals of viewing the grain field are:
+The rituals of Generating the Merit Field are:
 
 There is no difference between happiness and emptiness. In the vast emptiness, Samantabhadra makes offerings to the sea of ​​clouds.
 
@@ -527,53 +580,97 @@ The branches, leaves, flowers and fruits are beautiful and solemn, and the top o
 
 Eight snow lions hold the great throne, lotus flowers, sun and moon form the mattress,
 
-Possessing the root guru of the three kindnesses, all Buddhas are the essence.
+On them sits my root Guru, kind in three ways, 
+In essence all Buddhas,
 
-Now the monks are dressed in cassocks, with a smile on one side and two arms,
+In aspect a saffron-robed monk
+With one face, two arms and a radiant white smile.
 
-The right hand speaks, the left hand seals the seal, the bowl is filled with nectar,
+Right hand is in the gesture of expounding the Dharma,
+Left hand is in meditative pose and cradles a begging bowl filled with nectar.
 
-He was dressed in three garments of tulip, with a golden hat on top.
+Draped with three robes of lustrous saffron,
+Head is adorned by a pandit’s gold-coloured hat.
 
-The heart is capable of Rinjing Vajra holding the king, one face and two arms are blue,
+In your heart the all-pervading Lord Vajradhara
+With a body blue in colour, one face and two arms
 
-Holding a bell and pestle, embracing the princess of the realm, benefiting from the innate wisdom of music and emptiness,
+Holding vajra and bell and embracing Vajradhatu Isvari:
+They delight in the play of simultaneous Voidness and Bliss,
 
-All kinds of treasures are regarded as decorations, and the variegated clothes are very strict.
+Are adorned with jeweled ornaments of many designs
+And clothed in garments of heavenly silks.
 
-The four refuges are so solemn and bright, surrounded by five-colored clouds.
+Radiant with thousand of light-rays,
+You are emblazoned with the major and minor marks of a Buddha
+And sit in the Vajra-position enhaloed by a five-coloured rainbow.
 
-Foot-knotted Vajra squat posture, the five aggregates are pure, they are the five Buddhas,
 
-The purity of the four worlds is the four bright concubines, all the bodhisattvas in all places,
+Totally pure, your skandhas are the five Buddhas Gone to Bliss;
 
-Twenty-one thousand Arhats with pores, all branches and branches are King Ming,
+Your four elements the four motherly consorts;
 
-The light is the secret trace of the fork that protects the prescription and the medicine, and all the people in the world are the foot pads.
+The bliss of your senses, your energy channels, sinews and joints are all in reality
+Bodhisattvas.
 
-Zhou Za personally shuns all teachers and teachers, all the gods in the altar of the deity,
+The hairs of your pores are the twenty-one thousand Arhats,
 
-All Buddhas, Bodhisattvas, warriors, dakas, surrounded by a sea of ​​Dharma protectors.
+Yours limbs the wrathful protectors,
 
-Each of the three gates and three vajra images, the hum character shines like a hook,
+The light-rays directional guardians, lords of wealth and their attendants,
 
-From the nature, please invite the wise deity, and the harmony will be stable and stable.
+While all worldly gods are but cushions for your feet.
 
-May all sentient beings be a great supporter and destroy the demon army and its retinue, the heavens,
 
-Knowing that everything is complete, the World-Honored One comes here with his family.
+Surrounding you in their respective order
 
-Zha, Hung, Wan, Ha, are indistinguishable from the samaya.
+Is an encircling sea of actual and lineage Gurus,
+Yidams, hosts of mandala-deities,
 
-After viewing the grain fields, recite the Four Refugees. There are four refuges in Sanskrit, Tibetan, and Chinese, and the four refuges in Sanskrit are mainly recited.
+Buddhas, Bodhisattvas, Viras, Dakinis and Protectors of the Teachings.
 
-Recite the Four Refugees.
+
+The three doors are marked with three Vajras.
+
+From their syllables of HUM, light rays go out and, hook-like,
+
+Draw forth from their natural abodes the Wisdom Beings,
+
+So that they may become inseparably set.
+
+You who are the source of goodness, bliss and perfection,
+
+O root and lineage Gurus, Yidams, Three Jewels of Refuge,
+
+Viras, Dakinis, Dharmapalas and Protectors,
+
+With entourage and of the three times,
+
+By the power of compassion, come forth and abide steadfastly.
+
+Though all things are totally free of inherent coming and going,
+
+Still you arise through your virtuous conduct of wisdom and loving-compassion
+
+In whatsoever forms suit the temperament of varied disciples.
+
+O holy Refuge-Protectors, please come forth with your entourage.
+
+Om Guru Buddha Bodhisattva Dharmapala Sapariwara Eh Hya Hi Dzah Hum Bam Hoh, 
+
+the Wisdom and Symbolic-Beings become non-dual.
+
+---
+
+After Generating the Merit Field, recite the Four Refuges. There are four refuges in Sanskrit, Tibetan, and Chinese, and the four refuges in Sanskrit are mainly recited.
+
+Recite the Four Refuges.
 
 While reciting, visualize the nectar water pouring down from the body of Buddha Sakyamuni. From the outside to the inside, the whole body and mind are washed clean by the nectar water. Small animals such as snakes and frogs are washed with nectar water and flow out from the pores of the body, and all diseases and demons are excreted from the body.
 
 It is the most extraordinary to contemplate while reciting. You can also visualize first and then recite, or you can recite first and then visualize.
 
-After reciting the Four Refugees, the Buddha on the head becomes smaller and smaller. From the top of the head along the red central vein in the middle of the body, it merges into the heart chakra. Visualize that your fleshy heart has become an eight-petal lotus, and the Buddha is in the eight-petal lotus. Close up and slowly stop in your heart.
+After reciting the Four Refuges, the Buddha on the head becomes smaller and smaller. From the top of the head along the red central vein in the middle of the body, it merges into the heart chakra. Visualize that your fleshy heart has become an eight-petal lotus, and the Buddha is in the eight-petal lotus. Close up and slowly stop in your heart.
 
 The Buddha is always in the heart, that is, there is a Buddha in the heart, and there is no difference between the master, the Buddha, and one's own heart.
 
@@ -585,9 +682,9 @@ In order to make offerings to all Buddhas and Bodhisattvas, one should recite "O
 
 After reciting it three times, make offerings to the guru's Three Jewels.
 
-"Om Ah Hum" is the seed mantra of all Buddhas and Tathagatas. When reciting the first time, all the unclean things are purified. When reciting the second time, all the offerings become nectar. When reciting the third time, the offerings become countless offerings. , make offerings to the Buddha in the heart.
+"Om Ah Hum" is the seed mantra of all Buddhas and Tathagatas. When reciting the first time, all the unclean things are purified. When reciting the second time, all the offerings become nectar. When reciting the third time, the offerings become countless offerings. Make offerings to the Buddha in the heart.
 
-This is relatively easy to do. In life, we use our eyes, ears, nose, tongue, body, and mind to make offerings to the Buddha in our hearts.
+This is relatively easy to do. In daily life, we use our eyes, ears, nose, tongue, body, and mind to make offerings to the Buddha in our hearts.
 
 Seeing good things with the eyes, hearing good music with the ears, smelling good fragrances with the nose, tasting good tastes with the tongue, etc., are all offered to the Guru Triple Gem in the heart.
 
@@ -599,20 +696,28 @@ Not falling into the three evil paths, eliminating karmic obstacles, accumulatin
 
 6. Refuge School
 
-To take refuge in the Buddha, one must respect the Buddha, not to take refuge in evil demons, but not to exclude them; to take refuge in the Dharma, one must respect the Dharma and not harm sentient beings; to take refuge in the Sangha, one must respect the Sangha and not make evil friends. Depend on and draw near to the guru. Do your best to listen and think. Give as much as possible to the Three Treasures. Make good karma and help those who have karma to convert to Buddhism. Often recite the Refuge Mantra.
+To take refuge in the Buddha, one must respect the Buddha, not take refuge in evil demons, but not to exclude them.
 
-Practice the Four Refugees
+To take refuge in the Dharma, one must respect the Dharma and not harm sentient beings; 
+
+To take refuge in the Sangha, one must respect the Sangha and not make evil friends. Depend on and draw near to the guru. Do your best to listen and think. Give as much as possible to the Three Treasures. Make good karma and help those who have karma to convert to Buddhism. Often recite the Refuge Mantra.
+
+Practice the Four Refuges
+
 Forward:
 
-Recite the "Heart Sutra" once, "Recite the Sutra often" once, "Longevity Prayer for Ngawang Gyatso Vajra Master" once, "The Three Main Paths" once, "Thirty-five Buddhas Repentance" once, and "Four Refugees" "Seven times in Sanskrit, seven times in Tibetan, and seven times in Chinese.
+Recite the "Heart Sutra" once, "Recite the Sutra often" once, "Longevity Prayer for Ngawang Gyatso Vajra Master" once, "The Three Main Paths" once, "Thirty-five Buddhas of Repentance" once, and "Four Refuges" seven times in Sanskrit, seven times in Tibetan, and seven times in Chinese.
 
-Right Action: Recite the Sanskrit "Four Refugees".
+Right Action: Recite the Sanskrit "Four Refuges".
 
-Closing line: recite "Gelushan Sect's Prosperity Wishes" once and "Great Dedication" three times.
+Closing line: recite "Prayer for the Prosperity of the Gelugpa School" once and "Great Dedication" three times.
 
-宗喀巴大师 picture
+![Tsongkhapa](/images/tsongkhapa.png)
 
-Guru Yoga
+**Master Tsongkhapa**
+
+**Guru Yoga**
+
 The hearts of Tusita's parents are surging like clouds of new cheese
 
 The Dharma King of Universal Wisdom, Xianhui, said that he would like to come here with his disciples
@@ -683,25 +788,27 @@ Dedication: I wish World Tsong Khapa to protect the Mahayana Master personally
 
 There is no retreat between the moments of the wonderful path praised by the Buddha
 
-Guru Yoga Guru Yoga
+**Guru Yoga**
 
-Everyone please listen to the bodhicitta!
+Everyone please generate bodhicitta!
 
 Today we are going to talk about Guru Yoga.
 
-There is a forward practice in Tantra. First, you must recite the Four Refugees 100,000 times, then recite the Guru Yoga 100,000 times, then make the Mantra 100,000 times, and then practice the Vajrasattva 100,000 times.
+There is a forward practice in Tantra. First, you must recite the Four Refuges 100,000 times, then recite the Guru Yoga 100,000 times, then make the Mandala 100,000 times, and then practice the Vajrasattva 100,000 times.
 
-The four preliminaries, plus the prostration 100,000 times is the five preliminaries, plus one hundred thousand times around the pagoda, the six preliminaries, plus the offering of 100,000 cups of water, the seventh preliminaries, and the 100,000 elimination of karma The fire offering (Vajra emptiness fire offering), the eight additions, plus the printing of 100,000 Buddha statues, the nine additions, plus the offering of 100,000 lamps, is called the ten additions.
+The four preliminaries, plus the prostration 100,000 times is the five preliminaries, plus one hundred thousand times around the pagoda, the six preliminaries, plus the offering of 100,000 cups of water, the seventh preliminaries, and the 100,000 elimination of karma 
 
-If you can practice the ten plus actions, you will have a firmer foundation for practicing the Dharma.
+The fire offering (Vajra emptiness fire offering), the eight additions, plus the printing of 100,000 Buddha statues, the nine additions, plus the offering of 100,000 lamps, is called the ten additions.
 
-Usually it is very important to practice four additional lines.
+If you can practice the ten additional actions, you will have a firmer foundation for practicing the Dharma.
+
+Usually it is very important to practice four additional actions.
 
 Guru Yoga is the most important one in the forward movement, and this forward movement is very important.
 
 Guru Yoga means the visualization that the Guru and the Buddha are indistinguishable.
 
-There are several aspects to be understood in the practice of Guru Yoga: the guru, the invitation to Tsongkhapa, the seven-branch offering method, the prayer of Tsongkhapa, integration, and praise.
+There are several aspects to be understood in the practice of Guru Yoga: the guru, the invitation to Tsongkhapa, the seven-point mandala offering, the prayer of Tsongkhapa, integration, and praise.
 
 1. Guru
 
@@ -711,7 +818,7 @@ The masters mentioned here include Mahayana masters and Tsongkhapa masters.
 
 First of all, you need to understand what a guru is.
 
-A guru is a teacher who preaches the scriptures and spreads the Fa.
+A guru is a teacher who preaches the scriptures and spreads the Dharma.
 
 A Mahayana teacher must not only be able to teach scriptures and teach the Dharma, but must also meet ten conditions.
 
@@ -723,29 +830,29 @@ There are five minimum requirements for being a guru:
 
 1. The precepts are pure
 
-If the guru is a monk, all the monks' precepts must be pure.
+If the guru is a monk, all the monks' vows must be pure.
 
-Tibetan Buddhist monks have 253 precepts, and these precepts must be pure.
+Tibetan Buddhist monks have 253 vows, and these vows must be pure.
 
-Unlike Southern Buddhism, monks in Southern Buddhism have 227 precepts.
+Unlike Southern Buddhism, monks in Southern Buddhism have 227 vows.
 
-The inheritance is different, and the precepts are also different.
+The inheritance is different, and the vows are also different.
 
-The precepts can be divided into three types: the precepts of no liberation, the precepts of bodhisattvas, and the precepts of tantra.
+The vows can be divided into three types: the vows of no liberation, the vows of bodhisattvas, and the vows of tantra.
 
-The precepts for not liberation include five precepts at home and eight fastings at home.
+The vows for not liberation include five vows at home and eight fastings at home.
 
 There are three kinds of those who belong to the home, and five kinds of those that belong to the monks.
 
-The monks' precepts, the monk's precepts, the novice precepts, the novice precepts, and the study precepts are the five precepts for renunciation.
+The monks' vows, the monk's vows, the novice vows, the novice vows, and the study vows are the five vows for renunciation.
 
-If the master is a monk, the monk's precepts must be pure.
+If the master is a monk, the monk's vows must be pure.
 
-If you have received the Bodhisattva Precepts, the Bodhisattva Precepts must be pure.
+If you have received the Bodhisattva vows, the Bodhisattva vows must be pure.
 
 If you have already received the tantric vows, the tantric vows must be pure.
 
-If you have broken the precepts, you cannot become a guru, and you cannot become a guru if you have not received the precepts, because he does not have the first condition.
+If you have broken the vows, you cannot become a guru, and you cannot become a guru if you have not received the vows, because he does not have the first condition.
 
 2. To fully understand the Dharma
 
@@ -935,7 +1042,7 @@ Only Master Tsongkhapa has this kind of auspicious appearance, and no other grea
 
 This is one of the eighteen unique characteristics of Master Tsongkhapa, and it is also one of the most extraordinary auspicious signs.
 
-After the birth of Master Tsongkhapa, Dongzhi Rinchen gave him the Dharma name "Lobsang Drakpa". He received the five precepts at the age of three, became a monk at the age of seven, studied various scriptures, and went to Lhasa in Tibet at the age of sixteen.
+After the birth of Master Tsongkhapa, Dongzhi Rinchen gave him the Dharma name "Lobsang Drakpa". He received the five vows at the age of three, became a monk at the age of seven, studied various scriptures, and went to Lhasa in Tibet at the age of sixteen.
 
 At that time, there were many sects in Lhasa, such as Sakya, Nyingma, Kagyu, Kadam, Joonang and so on.
 
@@ -951,9 +1058,9 @@ After learning it well, Master Tsongkhapa studied these dharmas, and combined th
 
 The Gelug Sect of the Yellow Sect has all the methods of other sects, but some of the Gelug sects of the Yellow Sect may not have other sects, such as the thirteen Dawei De Dharmamen, Dawei De personally empowered Tsongkhapa, this Dharma door is only Gelug The sect has it, the other sects don't.
 
-Before Master Tsongkhapa founded the Gelug Sect, practitioners in Tibetan areas were more chaotic in terms of precepts, and there were many practitioners who did not observe precepts or who were not pure.
+Before Master Tsongkhapa founded the Gelug Sect, practitioners in Tibetan areas were more chaotic in terms of vows, and there were many practitioners who did not observe vows or who were not pure.
 
-Master Tsongkhapa made a great vow: No matter whether a practitioner is a monk or a monk, the precepts must be pure.
+Master Tsongkhapa made a great vow: No matter whether a practitioner is a monk or a monk, the vows must be pure.
 
 At the same time, a lot of effort has been put into the discipline, so the disciplines of the Gelug Sect disciples are relatively pure.
 
@@ -965,13 +1072,13 @@ Master Tsongkhapa is very special and perfect in terms of vows, learning, discip
 
 Therefore, when the Fifth Dalai Lama talked about the merits of Master Tsongkhapa, he said that the achievements of all the great siddhas in our Tibetan area in all aspects can be compared to Master Tsongkhapa, and the achievements of any individual are not as good as that of Tsongkhapa. Master Kaba.
 
-For example, some people are not as good as Master Tsongkhapa in precepts, some people are not as good as Master Tsongkhapa in teaching scriptures and teachings, some people are not as good as Master Tsongkhapa in debating scriptures, some people are not as good as Master Tsongkhapa in terms of writings, and some people are not as good as Master Tsongkhapa. Not as good as Master Tsongkhapa.
+For example, some people are not as good as Master Tsongkhapa in vows, some people are not as good as Master Tsongkhapa in teaching scriptures and teachings, some people are not as good as Master Tsongkhapa in debating scriptures, some people are not as good as Master Tsongkhapa in terms of writings, and some people are not as good as Master Tsongkhapa. Not as good as Master Tsongkhapa.
 
 Even the very noble and accomplished master Marpa is not as good as Master Tsongkhapa.
 
-Because, first, the precepts are not as good as Master Tsongkhapa.
+Because, first, the vows are not as good as Master Tsongkhapa.
 
-Master Marpa has five precepts at home, and Master Tsongkhapa is a monk. Second, the inheritance is not as good as that of Master Tsongkhapa.
+Master Marpa has five vows at home, and Master Tsongkhapa is a monk. Second, the inheritance is not as good as that of Master Tsongkhapa.
 
 Master Tsongkhapa has various lineages.
 
@@ -1307,7 +1414,7 @@ heartfelt repentance
 
 How to repent? You can repent in the presence of a Buddha statue or the Three Jewels of the Guru:
 
-I repent of the karma that I have created in my life after life, including all the karma created by my body, speech and mind, the karma created by greed, hatred and delusion, and the karma caused by breaking the precepts.
+I repent of the karma that I have created in my life after life, including all the karma created by my body, speech and mind, the karma created by greed, hatred and delusion, and the karma caused by breaking the vows.
 
 You must repent of all the karma you have created in your life.
 
@@ -1315,9 +1422,9 @@ The karma created by the body includes killing, stealing, and sexual immorality;
 
 The biggest karma in verbal karma is slandering the Buddhadharma, which is as big as killing an arahant.
 
-The "three disciplines" are the precepts of not liberation, the precepts of bodhisattvas, and the precepts of tantric vehicles.
+The "three disciplines" are the vows of not liberation, the vows of bodhisattvas, and the vows of tantric vehicles.
 
-The karma of breaking the precepts must be repented.
+The karma of breaking the vows must be repented.
 
 Don't take empowerments indiscriminately. There are precepts for empowerments. At the very least, you must receive the Bodhisattva precepts. After receiving the Bodhisattva precepts, you must have pure precepts. Breaking the precepts is a huge sin.
 
@@ -1329,7 +1436,7 @@ Lay people have received the five precepts at home, and the five precepts must b
 
 There are two types of refuge in the lay family: the refuge with precepts and the refuge without precepts.
 
-Refugees with precepts include those with one precept, those with two precepts, those with three precepts, and those with five precepts.
+Refuges with precepts include those with one precept, those with two precepts, those with three precepts, and those with five precepts.
 
 Taking refuge without precepts means that you do not need to take home precepts after taking refuge.
 
@@ -1393,7 +1500,7 @@ Master Tsongkhapa founded the Gelug Sect of the Yellow Sect after Wen Sixiu was 
 
 All are welcome.
 
-Master Tsongkhapa made offerings of mandras a million times during his retreat in Vokacheron, Tibet, and we should rejoice in this.
+Master Tsongkhapa made offerings of mandalas a million times during his retreat in Vokacheron, Tibet, and we should rejoice in this.
 
 Master Tsongkhapa's four major industries are the establishment of Gelum Moran, the establishment of Ganden Monastery, the reconstruction of the Maitreya Buddha in Tibet, and the salvation of Tibetan Buddhism (mainly in terms of precepts).
 
@@ -1828,17 +1935,17 @@ End line:
 
 Recite "Ode to the Way of Victory" once, "Gelushan Religion Prosperity" once, and "Great Dedication" three times.
 
-Teacher's Grain Field
+Teacher's Field of Merit
 
-Manzamanza visualization
+MandalaMandala visualization
 
-Teacher's Grain Field
+Teacher's Field of Merit
 
-Manzapan
+Mandalapan
 
-Manzapan
+Mandalapan
 
-Manza
+Mandala
 
 King of Baoshan
 
@@ -1846,7 +1953,7 @@ wishful tree
 
 Satisfied Cow Natural Rice
 
-Manza
+Mandala
 
 Lunbao
 
@@ -1896,7 +2003,7 @@ Intimidate the Ten Directions Zunsheng Building
 
 day
 
-Mandha offering text
+Mandala offering text
 
 Om Ban Zare Ke ah Om is the golden foundation of great purity and freedom
 
@@ -1908,81 +2015,81 @@ Xiniu Hezhou Beiju Luzhou Shenzhou Shengshenzhou Fuzhou Biefuzhou Xiaoxingzhou S
 
 The sun and moon umbrellas intimidate all the heavens and people in the center of the ten directions. The pure, auspicious and perfect treasures are boundless and boundless. The sea of ​​dust solemnly lists the master, the deity, the three treasures, and the salty offerings. Cluster Sumeru, Four Continents, Sun, Moon, Strict Desires, Offerings to All Buddhas, Crowds, Climbing to the Pure Land, Praying for Use
 
-Manza
+**Mandala**
 
-Please arouse Bodhicitta and listen carefully!
+Please generate Bodhicitta and listen carefully!
 
-Today is about Manza.
+Today is about Mandala.
 
-There are several aspects to Manza to understand:
+There are several aspects to Mandala to understand:
 
-The meaning of Mandra, the thirty-seven offerings to Mandra, the merits of Mandra, the seven offerings to Mandra, and how to repair Mandra.
+The meaning of Mandala, the Thirty-seven Point Mandala Offering, the merits of Mandala, the seven point Mandala, and how to repair Mandala.
 
-The meaning of Manza
+The meaning of Mandala
 
-The purest, most complete, and most auspicious things in the entire universe are all offered to Buddhas and Bodhisattvas, and they are called Mandras.
+The purest, most complete, and most auspicious things in the entire universe are all offered to Buddhas and Bodhisattvas, and they are called Mandalas.
 
-Mandha is the way of accumulating good fortune, the most excellent method of accumulating good fortune.
+Mandala is the way of accumulating good fortune, the most excellent method of accumulating good fortune.
 
-The more Manza is repaired, the more blessings will grow.
+The more Mandala is repaired, the more blessings will grow.
 
 The blessings have grown, and everything is done smoothly, and the wishes are fulfilled, and the practice is very fast.
 
 If you want to achieve success in your practice, you need to increase blessings, eliminate karmic obstacles, and get the blessing of the Three Jewels of the Guru. With these conditions, practice can be accomplished.
 
-Mandras can be divided into: outer mandras, inner mandras, mimandras, and emptiness mandras.
+Mandalas can be divided into: outer Mandalas, inner Mandalas, mi Mandalas, and emptiness Mandalas.
 
-We must first understand Waimandra, and we must make offerings to Waimandra.
+We must first understand outer Mandalas, and we must make offerings to outer Mandalas.
 
-Once you understand the outer mantra, and after you become familiar with the offerings, make offerings 100,000 or 200,000 times. After you make offerings slowly for a period of time (two or three months), you can pass on the inner mantras.
+Once you understand the outer Mandalas, and after you become familiar with the offerings, make offerings 100,000 or 200,000 times. After you make offerings slowly for a period of time (two or three months), you can pass on the inner Mandalas.
 
-Waimandha is the foundation. If one is unfamiliar with outermandha and lacks this foundation, then it is impossible to understand Neimandha.
+Outer Mandalas is the foundation. If one is unfamiliar with Outer Mandala and lacks this foundation, then it is impossible to understand Nei Mandala.
 
-Nemandra has made offerings for a period of time and can speak of Mimandra.
+Nei Mandala has made offerings for a period of time and can speak of Mi Mandala.
 
-After Mimandra has practiced for a few years, one can speak of emptiness mandra.
+After Mi Mandala has practiced for a few years, one can speak of emptiness Mandala.
 
-This time we are going to talk about Waimanza.
+This time we are going to talk about Outer Mandala.
 
-There are four outer mandras, and the first one is the thirty-seven offering mandras.
+There are four outer mandalas, and the first one is the thirty-seven point mandala offering.
 
-Why is it called Thirty-Seven Offering Mandha? It has thirty-seven different offerings, and offering these offerings is called the Thirty-Seven Offering Mandha.
+Why is it called Thirty-seven Point Mandala Offering? It has thirty-seven different offerings, and offering these offerings is called the Thirty-seven Point Mandala Offering.
 
 The second one is the Twenty-Three Offering Mantra. It has only twenty-three different offerings, so it is called the Twenty-Three Offering Mantra.
 
-The third one is the Nine Offering Mandha, there are only nine different offerings.
+The third one is the Nine Offering Mandala, there are only nine different offerings.
 
-The fourth is the Seven Offering Mandrak, there are only seven different offerings.
+The fourth is the Seven Offering Mandala, there are only seven different offerings.
 
-Thirty-seven offerings include twenty-three offerings, nine offerings, and seven offerings.
+Thirty-seven Point Mandala Offerings include twenty-three offerings, nine offerings, and seven offerings.
 
-Once you understand the thirty-seven offerings of mantras, you will understand the other three mantras.
+Once you understand the Thirty-seven Point Mandala Offering, you will understand the other three mantras.
 
-Thirty-seven offerings to Mandra have inheritance.
+Thirty-seven Point Mandala Offering have inheritance.
 
 Our lineage is the lineage of Gelugpa, that is, the lineage of Master Tsongkhapa.
 
-There is a place in Lhasa called Vokacheron, where Master Tsongkhapa once retreated and offered thirty-seven offerings a million times to the Mandra.
+There is a place in Lhasa called Vokacheron, where Master Tsongkhapa once retreated and offered Thirty-seven Point Mandala Offering a million times to the Mandala.
 
-At that time, he made offerings to Mandra and used the Bodhi Meridian on his right hand to rub the Mandrak Plate until the skin around the Bodhi Meridian was completely broken and bleeding, and even the bones inside could be seen, to this extent.
+At that time, he made offerings to Mandala and used the Bodhi Meridian on his right hand to rub the Mandala Plate until the skin around the Bodhi Meridian was completely broken and bleeding, and even the bones inside could be seen, to this extent.
 
-Master Tsongkhapa made offerings to the Mandra a million times, accumulating a lot of good fortune, and dedicating this blessing to the disciples who studied with Master Tsongkhapa in the Gelug Sect and the guardian of Gelug Teachers of teaching.
+Master Tsongkhapa made offerings to the Mandala a million times, accumulating a lot of good fortune, and dedicating this blessing to the disciples who studied with Master Tsongkhapa in the Gelug Sect and the guardian of Gelug Teachers of teaching.
 
 Because the blessing of Tsongkhapa's devotion is very, very large, the Gelugpa is usually richer.
 
 Gelug sect monasteries, Gelug sect disciples, and Gelug sect guardians are usually relatively wealthy, which is somewhat different from other sects.
 
-This is the reason why Master Tsongkhapa's offering to Mandra was blessed.
+This is the reason why Master Tsongkhapa's offering to Mandala was blessed.
 
 Our lineage is also the lineage of Master Tsongkhapa.
 
 With the inheritance of such an accomplished guru, if we practice Mantra according to this lineage, we will definitely be blessed by Master Tsongkhapa, and we will definitely be able to accumulate great blessings. This is very important and very important!
 
-2. Thirty-seven offerings to Mandha
+2. Thirty-seven Point Mandala Offering
 
-The first thing in the outer mandra is the thirty-seven offerings of the mandra.
+The first thing in the outer Mandala is the Thirty-seven Point Mandala Offering.
 
-To talk about the Thirty-Seven Offering Mantras, we must first understand the concept of a universe and how the universe came into being.
+To talk about the Thirty-seven Point Mandala Offering, we must first understand the concept of a universe and how the universe came into being.
 
 When the universe first formed, a vast and boundless giant tornado blew up in the sky. This giant tornado was very hard and hard, and not a drop of water could drop into it. Heavy rain fell on the giant tornado for thousands of years.
 
@@ -1992,13 +2099,13 @@ The rain contains hardware, soil of various colors, gold, silver, crystal and ot
 
 After the heavy rain, because gold is relatively heavy, it slowly sank, forming a very thick foundation of gold, several kilometers thick.
 
-Manza formed a boundless ocean on the golden foundation. The waves in the ocean moved and pushed the soil of the seabed to different places in the south, south and northwest, forming various mountains and terrains. In this way, the earth is formed.
+Mandala formed a boundless ocean on the golden foundation. The waves in the ocean moved and pushed the soil of the seabed to different places in the south, south and northwest, forming various mountains and terrains. In this way, the earth is formed.
 
 Outside the earth is the ocean.
 
 When the universe was first formed, it was like this.
 
-Then, when offering the mandra, recite and visualize:
+Then, when offering the Mandala, recite and visualize:
 
 Om Ban Za Pot Mi A Hum
 
@@ -2078,7 +2185,7 @@ It is the name of the earth to the south of Mount Sumeru.
 
 The Nanzhanbuzhou mentioned in the Buddhist scriptures refers to the earth we live in. There are more than 200 countries and a population of more than 7 billion. Each country has many tall buildings, trees, flowers, and gold and silver jewelry. All these must be visualized. Make offerings to Buddhas and Bodhisattvas.
 
-The blessings of offering to Manza are very big, and if you really visualize it, the blessings of making an offering to Manza are huge.
+The blessings of offering to Mandala are very big, and if you really visualize it, the blessings of making an offering to Mandala are huge.
 
 When we make offerings to Nanzhanbuzhou, we must especially visualize the Vajra seat in the middle of Nanzhanbuzhou.
 
@@ -2126,7 +2233,9 @@ There is a pure land of Shambhala in the north of Nanzhanbuzhou.
 
 The Pure Land of Shambhala is the pure land of the world, the pure land of the world, but it has not been found so far.
 
-"Kalachakra" says: There are ninety-six million cities in the Pure Land of Shambhala, where living beings of heaven, humanity, Asura, and inhumans live.
+"Kalachakra" says: 
+
+There are ninety-six million cities in the Pure Land of Shambhala, where living beings of heaven, humanity, Asura, and inhumans live.
 
 The sentient beings in the Pure Land of Shambhala live a life like a god or a human being.
 
@@ -2156,7 +2265,7 @@ Xiniu Hezhou
 
 Ninety-nine percent of people live to be five hundred years old, but if some people have a big obstacle, or because of wars, there are also people who die at the age of four or two hundred, but this is very rare.
 
-Manzabekuruzhou is the name of the earth to the north of Mount Sumeru.
+Mandalabekuruzhou is the name of the earth to the north of Mount Sumeru.
 
 It is the most splendid of the four great earths, and the people on this continent can live a thousand years.
 
@@ -2214,7 +2323,7 @@ But these earths that we are now feeding are the earths that can be inhabited by
 
 The earths in other heavenly realms, the earths inhabited by devas, and the other pure lands are all earths, but they are not the earths mentioned in our offering mantra.
 
-The earths in Manza are all habitable earths.
+The earths in Mandala are all habitable earths.
 
 After the visualization of the thirteen earths is completed, there are a few very special offerings to be visualized: the King of Baoshan, the wishful tree, the ox full of desire, and the natural rice.
 
@@ -2238,7 +2347,7 @@ Natural rice is rice that grows naturally.
 
 People on Beijuluzhou can have natural rice without labor.
 
-Mandha natural rice is offered to Buddhas and Bodhisattvas.
+Mandala natural rice is offered to Buddhas and Bodhisattvas.
 
 Regarding natural rice, in some caves in Nanzhanbuzhou, there were highland barleys as big as peas that were blessed a long time ago. These highland barleys and grains gradually became smaller after hundreds of years.
 
@@ -2370,7 +2479,7 @@ Don't misunderstand these eight goddesses, you must understand.
 
 In the past, I had a disciple from Han. She said that she was relatively poor and could not get wealth in her whole life, so she wanted to find a way to get wealth.
 
-I said you go to Mandrak and gave her a Mandrak offering.
+I said you go to Mandalak and gave her a Mandalak offering.
 
 She took a look at the mantra offering text and said, "Oh, Master! How can you make offerings to the Buddhas and Bodhisattvas with singing and dancing girls? How can you feed these things? I don't offer this.
 
@@ -2380,7 +2489,7 @@ This is where Mandza must explain.
 
 Next is the sun, the moon, and the treasure umbrella, which deter the ten directions of the tower.
 
-Mandra is the sun, and the sun also makes offerings to Buddhas and Bodhisattvas.
+Mandala is the sun, and the sun also makes offerings to Buddhas and Bodhisattvas.
 
 The moon is the moon, and the moon also makes offerings to Buddhas and Bodhisattvas.
 
@@ -2400,13 +2509,13 @@ The eight-legged, winged lion is called the Eight-legged Lion King; the otter fi
 
 129
 
-In this way, all the thirty-seven offerings of Mandha are available.
+In this way, all the Thirty-seven Point Mandala Offering are available.
 
 Mount Sumeru, East Shengshenzhou, South Zhanbuzhou, West Niuhezhou, North Juluzhou, Shenzhou, Shengshenzhou, Fuzhou, Bifuzhou, Xiaoxingzhou, Shengdaoxingzhou, Juluzhou, Youshenglu Zhou, Baoshan King, Ruyi Tree, Desire-filled Cow, Natural Rice, Wheel Treasure, Ruyi Treasure, Queen Treasure, Minister Treasure, Elephant Treasure, Horse Treasure, General Treasure, Giant Treasure Vase, Hippian Girl, Raven Girl, Song Tien Girl, Dancer The goddess, the goddess of flowers, the goddess of burning incense, the goddess of lanterns, the goddess of painting incense, the sun, the moon, and the umbrella, intimidating the ten directions of the towers, a total of thirty-seven.
 
-Thirty-seven offerings Mandha means thirty-seven offerings.
+Thirty-seven Point Mandala Offering means thirty-seven offerings.
 
-In the center of Manzha, all the gods and people are pure and auspicious, the treasures of perfection are everywhere, and in the universe, you can imagine that the jewels in the world and the jewels in the sky are all offered to Buddhas and Bodhisattvas.
+In the center of the Mandala, all the gods and people are pure and auspicious, the treasures of perfection are everywhere, and in the universe, you can imagine that the jewels in the world and the jewels in the sky are all offered to Buddhas and Bodhisattvas.
 
 There are countless seas of boundless dust, solemnly enumerating and visualizing each offering as an infinite number, such as Mount Sumeru, which can be visualized as countless number of Mount Sumeru offering offerings to Buddhas and Bodhisattvas.
 
@@ -2436,13 +2545,13 @@ Sangha is the protector of all bodhisattvas, arahants and supramundanes.
 
 The three treasures must be offered.
 
-This is what Mandha offered.
+This is what Mandala offered.
 
 To pray for the benefit of all beings with compassion, to receive the blessings that have been prayed for is to pray to Buddhas, Bodhisattvas, the Guru, the Three Jewels, to benefit all beings, and to accept these offerings.
 
 After accepting it, give me and other sentient beings the blessings of body, speech, and mind.
 
-3. The merits of Mandha Thirty-seven offerings are the merits of each offering of Mandha.
+3. The merits of Thirty-seven Point Mandala Offering are the merits of each offering of Mandala.
 
 Every offering has a common result, which is to gain wealth.
 
@@ -2454,9 +2563,9 @@ In the past in Tibetan areas, many masters and other people, if they could not s
 
 After the lamp is offered, the eyes gradually get better; offering to the goddess of incense and incense, not only will you get wealth, but the precepts are very pure; offering the sun, not only wealth, but also great wisdom and emptiness wisdom; offering to the moon, not only wealth, but also Bodhicitta; making offerings to the umbrella will not only gain wealth, but also easily reduce one's troubles; 133 making offerings to banners will not only gain wealth, but also gain great authority.
 
-These are all offerings, and each offering has different merits. The merits of the thirty-seven offerings are finished.
+These are all offerings, and each offering has different merits. The merits of the Thirty-seven Point Mandala Offering are finished.
 
-Four and seven offerings to Mandha
+Four and seven offerings to Mandala
 
 The seven offerings are very simple. The offerings are Mount Sumeru, the four continents (East Shengshen Continent, South Zhanbu Continent, West Niu He Continent, and North Julu Continent), sun and moon.
 
@@ -2474,21 +2583,21 @@ Climbing to the Pure Land and praying for use
 
 It is to visualize that the earth is covered with a very fragrant and fragrant layer of incense. Every earth is coated with this incense, and many different flowers are placed. Visualize Mount Sumeru, the four continents, the sun and the moon making offerings to Buddhas and Bodhisattvas. The entire universe makes offerings to Buddhas and Bodhisattvas.
 
-This is the Seven Offering Mandrak.
+This is the Seven Offering Mandalak.
 
-After the seven offerings of Mandra are completed, the Mantra Mantra shall be recited: Mandra Odanggu Rana Mandra Gonnyadayami This mantra means that I will offer the purest universe to the guru, the Three Jewels, "Firm Such as" is the meaning of guru.
+After the seven offerings of Mandala are completed, the Mantra Mantra shall be recited: Mandala Odanggu Rana Mandala Gonnyadayami This mantra means that I will offer the purest universe to the guru, the Three Jewels, "Firm Such as" is the meaning of guru.
 
-Fifth, how to repair Manza.
+Fifth, how to repair Mandala.
 
-First, let's talk about the method of Manzapan repair.
+First, let's talk about the method of Mandalapan repair.
 
-Everyone knows this is called Manzapan.
+Everyone knows this is called Mandalapan.
 
-The empty space below the Manza disk represents the boundless giant tornado when the universe began to form, and the disk above represents the golden foundation of extremely pure freedom.
+The empty space below the Mandala disk represents the boundless giant tornado when the universe began to form, and the disk above represents the golden foundation of extremely pure freedom.
 
-When making offerings to the Mandra, the left hand must take some offerings, such as gold and silver jewelry, various precious stones, or five grains, etc., and then hold it by the side of the Mandra, and then grab some offerings with the right hand, and rub the Mandra with the Bodhi pulse of the right hand. .
+When making offerings to the Mandala, the left hand must take some offerings, such as gold and silver jewelry, various precious stones, or five grains, etc., and then hold it by the side of the Mandala, and then grab some offerings with the right hand, and rub the Mandala with the Bodhi pulse of the right hand. .
 
-There are two methods for wiping the Manzapan: The first method: Wipe clockwise three times.
+There are two methods for wiping the Mandalapan: The first method: Wipe clockwise three times.
 
 The meaning of rubbing it three times is that the first time is to wipe off the afflictions of sentient beings in the six realms, the second time is to wipe away the knowledge obstacles of sentient beings in the six realms, and the third time is to wipe off the habits of sentient beings in the six realms.
 
@@ -2500,7 +2609,7 @@ Rub clockwise twice, then counterclockwise twice.
 
 When rubbing outside (clockwise) for the first time, visualize wiping away all the unclean, impure things from the entire universe.
 
-When rubbing it outside (clockwise) for the second time, visualize the afflictions and knowledge obstacles of all beings in the six realms in the universe, and wipe off all the bad things; when rubbing it inside (counterclockwise) for the first time, arouse If you can get the Buddha's Dharma body, you will know everything.
+When rubbing it outside (clockwise) for the second time, visualize the afflictions and knowledge obstacles of all beings in the six realms in the universe, and wipe off all the bad things; when rubbing it inside (counterclockwise) for the first time, generate If you can get the Buddha's Dharma body, you will know everything.
 
 When you rub it inside (counterclockwise) a second time, you will be able to get the Buddha's physical body (retribution body or incarnation).
 
@@ -2508,9 +2617,9 @@ Just like that.
 
 You can choose from the above two methods.
 
-After wiping, start reciting: "Om Ban Za Po Mi A Hum", place the offering held by the right hand in the center of the Mandra plate, and visualize each offering becoming an earth. "
+After wiping, start reciting: "Om Ban Za Po Mi A Hum", place the offering held by the right hand in the center of the Mandala plate, and visualize each offering becoming an earth. "
 
-Extremely clean and free golden foundation, Om Banzareka ah hum, surrounded by Tiewei Mountain outside", the largest circle represents Tiewei Mountain, placed on the Manza plate, this is the first floor, read "The center is the king of the mountain" Victory over Mount Sumeru," while grabbing some offerings with his right hand and placing them in the middle of the Mandza plate.
+Extremely clean and free golden foundation, Om Banzareka ah hum, surrounded by Tiewei Mountain outside", the largest circle represents Tiewei Mountain, placed on the Mandala plate, this is the first floor, read "The center is the king of the mountain" Victory over Mount Sumeru," while grabbing some offerings with his right hand and placing them in the middle of the Mandza plate.
 
 There are as many grains of rice as there are in the visualization as many Mount Sumeru, or as one Mount Sumeru. "
 
@@ -2540,35 +2649,35 @@ In this way, the third layer is full.
 
 "Immeasurable and boundless dust, as many seas, are solemnly listed, and the guru deity, the Three Jewels, make offerings, and I pray for mercy to benefit all people and accept them. I have prayed for blessings."
 
-Then the top pavilion was taken down and offered seven offerings to the mandra, "The earth is covered with fragrant flowers and brocades, and the sun and moon are all around Xumi. 138 Mandra's intention is to make offerings to all Buddha temples, and everyone climbs the pure land to pray and benefit." Put the building on it, and when you recite this Mantra Mantra, "Odang is as strong as Rena Mandala Gunya Dayami", sprinkle the jewels, this is a very complete offering.
+Then the top pavilion was taken down and offered seven offerings to the Mandala, "The earth is covered with fragrant flowers and brocades, and the sun and moon are all around Xumi. 138 Mandala's intention is to make offerings to all Buddha temples, and everyone climbs the pure land to pray and benefit." Put the building on it, and when you recite this Mantra Mantra, "Odang is as strong as Rena Mandala Gunya Dayami", sprinkle the jewels, this is a very complete offering.
 
 After the offering is over, you can keep it in the Buddhist hall and keep offering it, or you can take it down every day to offer it, but when you take it down, don’t pour it out.
 
-After completing the thirty-seven offerings of mandras, make seven offerings of mandras.
+After completing the Thirty-seven Point Mandala Offering, make seven offerings of mandalas.
 
-Grasp the jewelry with the left hand and take the manza plate, and grasp the jewelry with the right hand and wipe it out (clockwise) three times, or twice clockwise and twice counterclockwise. "
+Grasp the jewelry with the left hand and take the Mandala plate, and grasp the jewelry with the right hand and wipe it out (clockwise) three times, or twice clockwise and twice counterclockwise. "
 
-The earth is covered with fragrant flowers and brocades, the sun and the moon are all around Xumi, and the intention is to make offerings to the Buddhas, and everyone climbs the pure land to pray and benefit." At the same time, the right hand is placed in the center, east, south, west, north, east, west, seven Place the jewels in one direction; "Odang is as strong as Rena Manzara Gunya Dayami", and at the same time sprinkle some jewels on the Manza plate, and then pour it in front of his body.
+The earth is covered with fragrant flowers and brocades, the sun and the moon are all around Xumi, and the intention is to make offerings to the Buddhas, and everyone climbs the pure land to pray and benefit." At the same time, the right hand is placed in the center, east, south, west, north, east, west, seven Place the jewels in one direction; "Odang is as strong as Rena Mandala Gunya Dayami", and at the same time sprinkle some jewels on the Mandala plate, and then pour it in front of his body.
 
-Thirty-seven mantras cannot be done 100,000 times, but seven mantras can be made 139,000 times.
+Thirty-seven Point Mandala Offering cannot be done 100,000 times, but seven mantras can be made 139,000 times.
 
-In the past, Master Tsongkhapa offered thirty-seven offerings to the Mandra a million times.
+In the past, Master Tsongkhapa offered Thirty-seven Point Mandala Offering a million times.
 
-We make the seven offerings of the Mandrak 100,000 times, very simple, that's it.
+We make the seven offerings of the Mandala 100,000 times, very simple, that's it.
 
-When Master Tsongkhapa rubbed the mandra plate, the skin on his right hand was torn off and bleeding.
+When Master Tsongkhapa rubbed the Mandala plate, the skin on his right hand was torn off and bleeding.
 
 When rubbing Mantra, you must use the pulse of your right hand to rub, this pulse is called the Bodhi pulse.
 
 If this bodhi channel is rubbed regularly, it will be easy to obtain compassion and bodhicitta.
 
-If you smoke, the bodhicitta will be blocked, and it will be difficult to arouse bodhicitta. Smoking is really a lot of sins.
+If you smoke, the bodhicitta will be blocked, and it will be difficult to generate bodhicitta. Smoking is really a lot of sins.
 
 The third way, when the "natural rice" is offered, the first floor is full, and the second floor is added. Bao" is the north, "Xiangbao" is the southwest, "Mabao" is the northwest, "General Treasure" is the northeast, "Juzangbo" is the southeast, "Xi Tiannv" is the east, "Rang Tiannv" is the south, "Song" is the southeast. "Tiannv" is west, "Dancing" is north, "Flower" is southeast, "Burning Incense" is southwest, "Lantern" is northwest, and "Turning Incense" is northeast, so the second floor is full.
 
 140
 
-Manzha is then placed on the third floor, the "sun" is east, the "moon" is west, the "treasure umbrella" is south, the "prestigious tower of the ten directions" is north, and "all the heavens and people in the center of Manzha are pure and auspicious, and they are perfect. Treasures" and finally put the top tower on it, "Immeasurable and boundless dust and countless seas, solemnly listed, the guru deity three treasures make offerings, pray for mercy and benefit all people and accept it, and receive blessings that have been prayed for." Then, the top tower was taken down, It is also possible to make seven consecutive offerings of mandras, or thirty-seven offerings of mandras and seven offerings of mandras in a row, and then to offer seven mandras all the time.
+Manzha is then placed on the third floor, the "sun" is east, the "moon" is west, the "treasure umbrella" is south, the "prestigious tower of the ten directions" is north, and "all the heavens and people in the center of Manzha are pure and auspicious, and they are perfect. Treasures" and finally put the top tower on it, "Immeasurable and boundless dust and countless seas, solemnly listed, the guru deity three treasures make offerings, pray for mercy and benefit all people and accept it, and receive blessings that have been prayed for." Then, the top tower was taken down, It is also possible to make seven consecutive offerings of mandalas, or Thirty-seven Point Mandala Offering and seven offerings of mandalas in a row, and then to offer seven mandalas all the time.
 
 Each jewel is visualized as a separate offering.
 
@@ -2576,9 +2685,9 @@ When offering offerings to each continent, each jewel is visualized as the earth
 
 Visualize what you offer, and only then will you offer it well.
 
-The manza plate cannot be empty. The manza plate must be placed with the offerings, and cannot be separated from the offerings. Even if it is only a little bit, it must be placed.
+The Mandala plate cannot be empty. The Mandala plate must be placed with the offerings, and cannot be separated from the offerings. Even if it is only a little bit, it must be placed.
 
-Manza finished.
+Mandala finished.
 
 Good luck everyone!
 
@@ -2586,7 +2695,7 @@ Good luck everyone!
 
 Practice Mantra together: recite "Heart Sutra" once, "Recite Sutra often" once, "Longevity Prayer for Ngawang Gyatso Vajra Master" once, "Seven Branch Offerings" three times, "Guru Yoga" ( Read "The Holy Spirit will be revealed for a long time") once.
 
-Right line: offering "Manza".
+Right line: offering "Mandala".
 
 Closing line: recite "Master Tsongkhapa's Prayer" more than seven times, once for the end of "Guru Yoga", once for the chanting part at the end of "Guru Yoga", once for "Principle of Samantabhadra", once for "Voice for the Prosperity of Gelushan Teaching", "Da Hui" Xiang Wen" three times.
 
@@ -2602,30 +2711,68 @@ The Buddha's father, Vajra, sat on his knees, and the hum character in his heart
 
 The hums in the heart beckon, and all the Buddhas of the Tathagata are empowered, and I pray for the empowerment of Vajrasattva.
 
-Empowerment Mantra: Om Sawada Tagada Abaihegadasa Maya West Riyi Hum deity body is full of nectar, and the nectar at the top door cannot become a Buddha. I pray that all sentient beings in the six realms, including us, will be completely eliminated from all sins.
+Empowerment Mantra: 
+
+Om Sawada Tagada Abaihegadasa Maya West Riyi Hum 
+
+deity body is full of nectar, 
+
+and the nectar at the top door cannot become a Buddha. 
+
+I pray that all sentient beings in the six realms,
+
+including us, will be completely eliminated from all sins.
 
 145
 
-(Male reading) (Female reading) 146
+(Male reading) (Female reading)
 
-bwmandala
+![bwmandala](/images/bwmandala.png)
 
 Vajrasattva
 
-The Hundred-Character Mantra: Om Banzaer Satansa Mama Yamani Bar Yabanzaer Satan Dinowa Low Fork Know Zhuomai Bar Wa Su Tong Kayomai Wa Subo Kayomai Put Waah Move Jae-mai put Wawasawasdi Maitzaya Chasaer Wagama Suza Maizi as Xiriyang Gu Ruhum Hahahaha Hu Banga Bay, Sarwadagata Banzaerma Maimenza Banzaer, wah, hassa, yasa, ah, ah, ah
+The Hundred-syllable Mantra: 
 
-repent
+om benza sato samaya manu palaya benza sato té nopa tishta dridho mé bhava sutokhayo mé bhava supokhayo mé bhava anurakto mé bhava sarva siddhi mé prayatsa sarva karma sutsa mé tsittam shré yah kuru hung ha ha ha ha ho bhagavan sarva tathagata benza ma mé muntsa badzra bhava maha samayasato ah hung pé
 
-I am an ignorant and ignorant person who breaks vows and breaks all precepts. The guru, the Three Jewels, saves and protects. The deity, Sasam Vajradhara, has a vast body of compassion. Cleaned up and eliminated, this deity enters my body, speech, and mind.
+oṃ vajrasattva āḥ
+
+O protector! In my ignorance and delusion
+
+I have gone against and corrupted my samaya.
+
+Lama protector, be my refuge!
+
+Chief of all the maṇḍalas, vajra holder,
+
+Embodiment of great compassion:
+
+Chief of all living beings, in you I take refuge!
+
+I confess all my impairments of the root and branch samayas of the body, speech and mind.
+
+I implore you: let my negative actions, obscurations, wrongdoing and downfalls—all my flaws—be completely cleansed and purified!
+
+The guru is pleased and grants purification.
+
+He melts into light and dissolves into me.
+
 
 Pariṇāmanā
 
-May this merit spread to all
+Through the positivity and merit of this, may I swiftly
+
+Attain the realization of Vajrasattva, and thereby
 
 I and all sentient beings will achieve Buddhahood together.
 
-Vajrasattva
-Please arouse Bodhicitta and listen carefully!
+Every single sentient being
+
+Reach his state of perfection too.
+
+**Vajrasattva**
+
+Please generate Bodhicitta and listen carefully!
 
 To practice Vajrasattva, you need to understand: Vajrasattva, taking refuge, visualizing Vajrasattva, one-hundred-syllable mantra, repentance, and dedication.
 
@@ -2639,13 +2786,13 @@ The Vajrasattva we practice is a deity belonging to the Supreme Yoga Division.
 
 The inheritance of Vajrasattva of double cultivation is only available in the Gelug School, but not in other schools.
 
-This was passed down by Manjushri to Master Tsongkhapa himself, and Master Tsongkhapa passed it on to Kezhujie, and it was passed down slowly. Therefore, this inheritance is only available to the Gelug School.
+This was passed down by Manjushri to Master Tsongkhapa himself, and Master Tsongkhapa passed it on to Kezhujie, and it was passed down gradually. Therefore, this inheritance is only available to the Gelug School.
 
-The purest and most complete lineage among the other schools, the Gelug School has, while the Gelug School has some lineages that the other schools do not have.
+The Gelug School has the purest and most complete lineage among the other schools, while the Gelug School has some lineages that the other schools do not have.
 
-For example, the Vajrasattva of the Supreme Yoga Department is unique to the Gelug School, and its mantra is a hundred-syllable mantra.
+For example, the Vajrasattva of the Supreme Yoga Department is unique to the Gelug School, and its mantra is the hundred-syllable mantra.
 
-The mantra of Vajrasattva of the Yoga Department has only 100 characters, while the one-hundred-syllable mantra of Vajrasattva of the Supreme Yoga Department has 102 characters, that is, the two words "Hum" and "Bah" are added at the end. Character.
+The mantra of Vajrasattva of the Yoga Department has only 100 characters, while the one-hundred-syllable mantra of Vajrasattva of the Supreme Yoga Department has 102 characters, that is, the two words "Hum" and "Ah" are added at the end.
 
 Vajrasattva of Supreme Yoga can eliminate all sins and karma.
 
@@ -2653,45 +2800,45 @@ The Vajrasattva of the Yoga Department, that is, the Vajrasattva of the single p
 
 If the karmic hurdles caused by the broken precepts of the supreme yoga group are to be eliminated, only the deity of the supreme yoga group can be eliminated, and none of the others can be eliminated.
 
-The karma of the ten evil karma, such as the karma that both those who learn Buddhism and those who do not learn Buddhism, can be eliminated by reciting the Thirty-Five Buddhas Repentance and other scriptures.
+The karma of the ten evil karma, such as the karma that both those who learn Buddhism and those who do not learn Buddhism, can be eliminated by reciting the Thirty-Five Buddhas of Repentance and other scriptures.
 
-Including committing the five uninterrupted sins, that is, killing the father, killing the mother, killing an arahant, giving birth to the body and blood of a Buddha, breaking the karma of reconciling with the Sangha, and reciting the thirty-five Buddha repentance texts can also be eliminated.
+Including committing the five uninterrupted sins, that is, killing the father, killing the mother, killing an arhat, giving birth to the body and blood of a Buddha, breaking the karma of reconciling with the Sangha, and reciting the Thirty-Five Buddhas of Repentance texts can also be eliminated.
 
-When Master Tsongkhapa was practicing in Vokachelong, Tibet, Master Tsongkhapa recited the thirty-five Buddha repentance texts, and did prostrations one hundred thousand times while reciting.
+When Master Tsongkhapa was practicing in Vokachelong, Tibet, Master Tsongkhapa recited the Thirty-Five Buddhas of Repentance texts, and did prostrations one hundred thousand times while reciting.
 
-After 100,000 recitations, the ten evil karma and other serious sins were all eliminated, thirty-five Buddhas appeared in person, and Master Tsongkhapa saw thirty-five Buddhas with his own eyes.
+After 100,000 recitations, the ten evil karma and other serious sins were all eliminated, the Thirty-Five Buddhas of Repentance appeared in person, and Master Tsongkhapa saw the Thirty-Five Buddhas of Repentance with his own eyes.
 
 Master Tsongkhapa is the incarnation of Manjushri.
 
-Why do it? Those of us who study with him should do this. This is an expression, and it is the standard for us to practice the Fa.
+Why do it? Those of us who study with him should do this. This is an expression, and it is the standard for us to practice the Dharma.
 
 Therefore, whether it is the Kadam School or the Gelug School, they should recite the thirty-five Buddha repentance texts at night, once or three times, and then go to sleep.
 
 If you go to sleep without reciting, your masters will say, "You have no sin? You have no karma? You just sleep like this?" Very strict.
 
-The merits of the thirty-five Buddhas' repentance texts are explained in Jia Caojie's writings, and the merits are extremely great.
+The merits of the Thirty-Five Buddhas of Repentance texts are explained in Jia Caojie's writings, and the merits are extremely great.
 
-Therefore, Master Tsongkhapa attaches great importance to the thirty-five Buddha's repentance in the aspect of eliminating karmic obstacles in the Dharma.
+Therefore, Master Tsongkhapa attaches great importance to the Thirty-Five Buddhas of Repentance in the aspect of eliminating karmic obstacles in the Dharma.
 
 In the tantric sect, there are four deities in the esoteric sect. In the deity of Shibu, the mantra of the Buddha of the Buddha and the heart mantra of Guanyin Bodhisattva are the most important ones in the deity of Shibu. It can only eliminate the relapse karma below the Ministry of affairs, and cannot eliminate the karma of relapsed karma above the deity of the Ministry of affairs.
 
 Because Guanyin Bodhisattva is the deity of Shibu.
 
-After receiving the empowerment of the deity of Shibu, there are also precepts, which are the precepts of the bodhisattva.
+After receiving the empowerment of the deity of Shibu, there are also vows, which are the vows of the bodhisattvas.
 
-If you break the bodhisattva precepts, you can get rid of it by reciting the Great Compassion Mantra, and you can also get rid of it by reciting "Om Mani Pami Hum", but you can't get rid of it if you break the tantric precepts of the Supreme Yoga Department.
+If you break the bodhisattva vows, you can get rid of it by reciting the Great Compassion Mantra, and you can also get rid of it by reciting "Om Mani Pami Hum", but you can't get rid of it if you break the tantric precepts of the Supreme Yoga Department.
 
 When it came to the deity of the lineage, Tsongkhapa attached great importance to Vairocana Bodhi Buddha.
 
 In the deity of the Yoga Department, great importance is attached to the Great Sun Tathagata.
 
-The Yoga Department also has Vajrasattva, which is a single image of Vajrasattva, and also has a hundred-character mantra, which ends with the word "A".
+The Yoga Department also has Vajrasattva, which is a single image of Vajrasattva, and also has a Hundred-syllable mantra, which ends with the word "Ah".
 
 The Vajrasattva of the Yoga Department can only eliminate the sins of breaking precepts below the Yoga Department. The ten evil karma, the five uninterrupted sins and other karma can be eliminated, but the karma of the Supreme Yoga Department who has broken the Tantric precepts cannot be eliminated.
 
 Vajrasattva of the double body is the deity of the Supreme Yoga Department, which can eliminate all karmic obstacles, including all karmic obstacles that break the precepts of the four tantric schools.
 
-The blessings of Buddhas and Bodhisattvas are great, as are the blessings of teachers, but why can’t we get this blessing? Our karma is very heavy, and the karma tightly shuts the door of body, speech, and mind, so the blessings cannot get in.
+The blessings of Buddhas and Bodhisattvas are great, as are the blessings of teachers, but why can’t we get this blessing? Our karma is very heavy, and the karma tightly shuts the doors of body, speech, and mind, so the blessings cannot get in.
 
 After our karmic hurdles are reduced, blessings can easily enter our body, speech, and mind.
 
@@ -2705,13 +2852,13 @@ The biggest karmic obstacle is slandering the guru. If you want to eliminate thi
 
 Once you have visualized that your guru and Vajrasattva are indistinguishable from each other, and then recite the one-hundred-syllable mantra, even the karma of slandering your guru can be eliminated, and nothing else needs to be said.
 
-The precepts of the supreme tantric vehicle have fourteen fundamental precepts, breaking one precept will lead to hell, let alone breaking all fourteen fundamental precepts.
+The precepts of the supreme tantric vehicle have fourteen fundamental vows, breaking one vow will lead to hell, let alone breaking all fourteen fundamental vows.
 
 If the eight branches of Tantra are broken, they will all go to hell.
 
-So what to do? Reciting Vajrasattva can eliminate all the karma of broken precepts.
+So what to do? Reciting Vajrasattva can eliminate all the karma of broken vows.
 
-We must understand that even if one of the fourteen root precepts is purified, the blessings will be enormous.
+We must understand that even if one of the fourteen root vows is purified, the blessings will be enormous.
 
 One of the eighteen fundamental precepts of the bodhisattva precepts is purified and the reward is great.
 
@@ -2753,13 +2900,13 @@ After the karmic obstacles are eliminated, the blessings of Buddhas and Bodhisat
 
 When practicing the Vajrasattva of the Supreme Yoga Department, that is, the Vajrasattva of the double body image, one should visualize that the master and the double body image of Vajrasattva are indistinguishable.
 
-The Hundred-character Mantra is the heart mantra of Vajrasattva, the master mantra and the heart mantra of all Buddhas and Tathagatas.
+The Hundred-syllable Mantra is the heart mantra of Vajrasattva, the master mantra and the heart mantra of all Buddhas and Tathagatas.
 
-The merits of reciting the Hundred-character Mantra, the merits of Amitabha, the merits of the Great Compassion Mantra, the merits of reciting the Heart Sutra, and the merits of reciting the Earth Store Sutra will all have the merits.
+The merits of reciting the Hundred-syllable Mantra, the merits of Amitabha, the merits of the Great Compassion Mantra, the merits of reciting the Heart Sutra, and the merits of reciting the Earth Store Sutra will all have the merits.
 
 Because you have visualized the guru and the double image of Vajrasattva as one and the same.
 
-Whether you cultivate the Fa well or not depends entirely on this heart.
+Whether you cultivate the Dharma well or not depends entirely on this heart.
 
 If one wishes to repent, sincerely repent, visualize Vajrasattva and recite the Hundred-syllable Mantra.
 
@@ -2773,21 +2920,23 @@ If the four deities, the Buddhas and Tathagatas, the bodhisattvas, the masters, 
 
 Reciting the Vajrasattva mantra once or reciting the hundred-syllable mantra once can eliminate countless karmic obstacles.
 
-The hundred-syllable mantra can be recited without empowerment.
+The hundred-syllable mantra can be recited without first receiving the empowerment.
 
-There are two kinds of visualization: one is the visualization of self-esteem, that is, visualization of oneself as Vajrasattva, which requires empowerment before visualization.
+There are two kinds of visualization: one is the visualization of self-deity, that is, visualization of oneself as Vajrasattva, which requires empowerment before visualization.
 
-The other is the visualization of the deity of the image. The deity of the image is visualized on the opposite side or on the top of the head. The person who has not received the empowerment can also visualize it, as long as he has the oral transmission of the Vajrasattva or the oral transmission of the hundred-syllable mantra That's fine, you don't have to be empowered.
+The other is the visualization of the deity of the image. The deity of the image is visualized on the opposite side or on the top of the head. The person who has not received the empowerment can also visualize it, as long as he has the oral transmission of the Vajrasattva or the oral transmission of the hundred-syllable mantra. That's fine, you don't have to be empowered.
 
 Second, take refuge
 
 All Buddhas, Wonderful Dharma, Zhongzun and even Bodhi, I take refuge
+
 I give all kinds of resources to save sentient beings and wish to become a Buddha
+
 First, take refuge in the Three Jewels of the Guru.
 
-To take refuge in the Guru Three Jewels, visualize the lotus throne in the sky, visualize the Vajrasattva, which is indistinguishable from the Guru, in the lotus throne, and visualize the four deities, Buddhas and Tathagatas, Bodhisattvas, and transcendent Dharma protectors around the Vajrasattva. god.
+To take refuge in the Guru Three Jewels, visualize the lotus throne in the sky, visualize the Vajrasattva, which is indistinguishable from the Guru, on the lotus throne, and visualize the four deities, Buddhas and Tathagatas, Bodhisattvas, and transcendent Dharma protectors around the Vajrasattva. god.
 
-Then recite the Four Refugees three times, and after reciting it, the Bodhicitta will arouse.
+Then recite the Four Refuges three times, and after reciting it, the Bodhicitta aim will be generated.
 
 When arousing bodhicitta, recite "The Buddhas, the Wonderful Dharma, the Congregation, and even Bodhi, I take refuge".
 
@@ -2795,7 +2944,7 @@ When arousing bodhicitta, recite "The Buddhas, the Wonderful Dharma, the Congreg
 
 "Wonderful Dharma" is 84,000 Dharma doors.
 
-"Zhongzun" is the Sangha, including Bodhisattvas, Arahants, and Dharma protectors.
+"Zhongzun" is the Sangha, including Bodhisattvas, Arhats, and Dharma Protectors.
 
 The most honorable among all living beings is the Sangha - "the most respected among all".
 
@@ -2803,7 +2952,9 @@ The most honorable among all living beings is the Sangha - "the most respected a
 
 "Taking refuge in the guru, taking refuge in the Buddha, taking refuge in the Dharma, and taking refuge in the Sangha" are the separate refuges of the Three Jewels, and what we are talking about is the refuge of the Three Jewels together.
 
-"I practice all kinds of alms, and I wish to become a Buddha in order to save sentient beings." This is to generate Bodhicitta.
+"I practice all kinds of alms, and I wish to become a Buddha in order to save sentient beings." 
+
+This is to generate Bodhicitta.
 
 "I practice all kinds of resources such as giving", our current behavior is the behavior of the Bodhisattva, and the practice of the Bodhisattva.
 
@@ -2811,13 +2962,15 @@ Bodhisattvas have many deeds. Generally speaking, they are the six perfections, 
 
 Accomplishments are blessings, the blessings of taking refuge in the Three Jewels, the blessings of giving, the blessings of diligence, the blessings of prajna wisdom, and the blessings of practicing meditation.
 
-What do you do with these blessings and resources? "I wish to become a Buddha in order to save sentient beings." In order to save sentient beings, I want to become a Buddha myself.
+What do you do with these blessings and resources? 
+
+"I wish to become a Buddha in order to save sentient beings." In order to save sentient beings, I want to become a Buddha myself.
 
 This is the heart of generating Bodhicitta and becoming a Buddha.
 
 This is how to generate bodhicitta three times. After generating bodhicitta, because the arousal is very good, the power of reciting any sutra will be very, very powerful! The three important aspects of practice are to initiate, visualize, and dedicate.
 
-That is to say, the practice has to go through three stages: the beginning, the middle, and the latter: the most important thing at the beginning is the intention, the important thing in the middle is the recitation of the ritual or the visualization, and the last important thing is the dedication.
+That is to say, the practice has to go through three stages: the beginning, the middle, and the end: the most important thing at the beginning is the intention, the important thing in the middle is the recitation of the ritual or the visualization, and the last important thing is the dedication.
 
 First of all, get excited.
 
@@ -2839,17 +2992,17 @@ If you recite the scriptures for all these people, the merits will be great.
 
 Reciting sutras for sentient beings in the six realms brings great blessings.
 
-Among the six realms, the most are hell beings, and the least among the six realms are human beings. The realm of heaven is more than the realm of human beings, the realm of asura is more than the realm of heaven, the realm of beasts is more than the realm of Asura, the realm of hungry ghosts is more than the realm of animals, the realm of hell is more than the realm of hungry ghosts. There are countless beings.
+Among the six realms, the most are hell beings, and the least among the six realms are human beings. The realm of heaven is more than the realm of human beings, the realm of asuras is more than the realm of heaven, the realm of beasts is more than the realm of Asura, the realm of hungry ghosts is more than the realm of animals, the realm of hell is more than the realm of hungry ghosts. There are countless beings.
 
-When we recite sutras and practice, we recite sutras and practice for the sake of all sentient beings, then this blessing is a boundless blessing.
+When we recite sutras and practice, if we recite sutras and practice for the sake of all sentient beings, then this blessing is a boundless blessing.
 
 Reciting sutras and practicing in order to become Buddhas in the six realms, the blessings are infinite blessings.
 
 Because the merits of Buddha are infinite.
 
-The blessings of chanting and practicing in order to become an arahant are limited.
+The blessings of chanting and practicing in order to become an arhat are limited.
 
-Because the merits of an arahant are limited.
+Because the merits of an arhat are limited.
 
 So it's important to have a heart.
 
@@ -2859,15 +3012,25 @@ Because the Dharma can benefit all living beings, the Dharma is immeasurable and
 
 It is very important to have the heart in everything, that is to say, it is very important to have the heart in everything.
 
-May all sentient beings be full of happiness and happiness. May all sentient beings be free from suffering and suffering. May all sentient beings never be separated from the wonderful happiness without suffering. May all sentient beings stay away from love, hatred, relatives, and friends. Four immeasurable hearts.
+**The Four Immeasurable Thoughts**
 
-"May all sentient beings be full of happiness and the causes of happiness." The happiness here is peace, joy, and happiness.
+>
+>May all sentient beings have happiness and its causes.
+>
+>May all sentient beings be free from suffering and its causes.
+>
+>May all sentient beings never be separated from sorrowless bliss.
+>
+>May all sentient beings abide in equanimity, free of bias, attachment, and anger.
+>
+
+"May all sentient beings have happiness and its causes." The happiness here is peace, joy, and happiness.
 
 The causes of happiness are the ten good precepts, practice of the Dharma, taking refuge, reciting sutras, and so on.
 
-May all beings find happiness and the cause of happiness.
+May all sentient beings have happiness and its causes.
 
-160 Vajrasattva This is loving-kindness.
+This is loving-kindness.
 
 "May all sentient beings be free from suffering and its causes." Suffering here is suffering and affliction.
 
@@ -2877,7 +3040,7 @@ The causes of affliction are afflictions and karma, and afflictions have six roo
 
 The karma includes the ten evil karma, the karma of breaking the precepts, the karma created by the body, speech and mind, and so on.
 
-May all beings be free from troubles and karma forever.
+May all sentient beings never be separated from sorrowless bliss.
 
 This is compassion.
 
@@ -2885,7 +3048,7 @@ Compassion is important.
 
 The essence of Mahayana Buddhism is great compassion.
 
-"May all sentient beings never lose the wonderful bliss without suffering", this is the heart of joy.
+"May all sentient beings never be separated from sorrowless bliss.", this is the heart of joy.
 
 Undrained happiness is bliss, eternal happiness.
 
@@ -2893,7 +3056,7 @@ Eternal happiness refers to happiness that never disappears, never suffers.
 
 All sentient beings want to obtain wonderful happiness, so we must send this heart, and may they obtain wonderful happiness and never be lost.
 
-"May all sentient beings stay away from love, hatred, closeness and acquaintance, and live in equality and equanimity." Our beings are very attached. When we think that this person is our relatives and friends, we will have a lot of greed. If we think that this person is my enemy, we will have a lot of hatred. If we let go of greed and hatred, we will be very comfortable.
+"May all sentient beings abide in equanimity, free of bias, attachment, and anger." Our beings are very attached. When we think that this person is our relatives and friends, we will have a lot of greed. If we think that this person is my enemy, we will have a lot of hatred. If we let go of greed and hatred, we will be very comfortable.
 
 If you give up greed and hatred, there will be no pressure. The pressure is suppressed by these two afflictions.
 
@@ -2915,9 +3078,9 @@ I'm free from everything
 
 Xianling lived in peace and victorious Bodhi
 
-Sincerely initiate Bodhicitta
+Sincerely generate Bodhicitta
 
-This is bodhicitta. There are two types of bodhicitta: one is the wish to be a bodhichitta, wishing to become a Buddha for all people; the other is to practice the bodhichitta, which is not just a vow, but a practice of generosity, precepts and so on.
+This is bodhicitta. There are two types of bodhicitta: one is the wish to be a bodhisattva, wishing to become a Buddha for all people; the other is to practice bodhichitta, which is not just a vow, but a practice of generosity, vows and so on.
 
 Our retreat now is to do it in action.
 
@@ -2927,7 +3090,7 @@ In addition, when cultivating Vajrasattva, the special intention is that in orde
 
 3. Visualize Vajrasattva.
 
-On the top of one's head, visualize the word "Wan", which turns into an eight-petaled lotus flower, the word "A" in the middle turns into a moon wheel, and the word "Hung" grows on the moon wheel. The hum character, the hum character emits light to benefit others, the immeasurable rays of light enter the hum character, and the hum character becomes the Vajrasattva.
+On the top of one's head, visualize the word "Wan", which turns into an eight-petaled lotus flower, the word "Ah" in the middle turns into a moon wheel, and the word "Hung" grows on the moon wheel. The hum character, the hum character emits light to benefit others, the immeasurable rays of light enter the hum character, and the hum character becomes the Vajrasattva.
 
 For those without empowerment, visualize the word "Bay" on the top of their head.
 
@@ -2949,7 +3112,7 @@ All sentient beings became Vajrasattva.
 
 Making offerings to the guru's Three Jewels is self-interest, and eliminating the karma of sentient beings in the six realms is altruism.
 
-The immeasurable rays of light enter the word "Hu", and all the rays of light that are emitted are taken back and melted into the word "Hu" on the abdomen of the vajra.
+The immeasurable rays of light enter the word "Hum", and all the rays of light that are emitted are taken back and melted into the word "Hu" on the abdomen of the vajra.
 
 Then the vajra on the abdomen with the word "Hung" becomes Vajrasattva in an instant.
 
@@ -2979,7 +3142,11 @@ By praying for the empowerment of Vajrasattva, I become Vajrasattva, and Vajrasa
 
 Those who have not received empowerment, pray to Vajrasattva for empowerment, which is the empowerment of the opposite deity.
 
-On the top of Vajrasattva's head, visualize the Buddhas, Tathagatas and the Buddhas of the five directions, and recite the empowerment mantra: 166 Vajrasattva Om Sawada Takada Abaihegada Samaya Xiri Yi Hung
+On the top of Vajrasattva's head, visualize the Buddhas, Tathagatas and the Buddhas of the five directions, and recite the empowerment mantra: 
+
+**166** Vajrasattva 
+
+Om Sawada Takada Abaihegada Samaya Xiri Yi Hung
 
 The whole body of this deity is full of nectar, and the nectar of the top door cannot be changed into a Buddha.
 
@@ -3001,15 +3168,17 @@ I want to pray to Vajrasattva that all the sins of me and all beings in the six 
 
 After praying, Vajrasattva's body emits immeasurable light, and in each light there is a double-figure Vajrasattva to save sentient beings in the six realms.
 
-4. The Hundred-character Mantra:
+4. The Hundred-syllable Mantra:
 
-Om Banzarsa Samaymani Bharaya Banzaersa Tinowad Chakzhi Jumei Bawasud Doha Yome Bawasupo Poha Yome Bawa Anoja Dome Bawasawas Dime Zaya Zha Sarwa Karma Su Zha Mai Zi as a wash day to raise Gu Ru hum ha ha ha ha Hu Bha Gawa Sa Ri Wada Ta Gada Ban Zha Er Mami Men Zha Ban Zha Er Bawa Ma Hasa There are seven types of visualizations of the Hundred-syllable Mantra of Ma Yasattva and Vajrasattva: the lower row to eliminate karma; the upper row to eliminate karma;埵.
+om benza sato samaya manu palaya benza sato té nopa tishta dridho mé bhava sutokhayo mé bhava supokhayo mé bhava anurakto mé bhava sarva siddhi mé prayatsa sarva karma sutsa mé tsittam shré yah kuru hung ha ha ha ha ho bhagavan sarva tathagata benza ma mé muntsa badzra bhava maha samayasato ah hung pé 
+
+There are seven types of visualizations of the Hundred-syllable Mantra of Vajrasattva and Vajrasattva: the lower row to eliminate karma; the upper row to eliminate karma;埵.
 
 (1) Eliminate karmic obstacles down
 
 The first is lower row visualization, in which obstacles are expelled from under the practitioner's body.
 
-When reciting the Vajrasattva Hundred-Symbol Mantra, visualize the moon plate in the heart of Vajrasattva, a "Hum" character in the middle of the moon plate, and the mantra of Vajrasattva around the "Hum" character - Hundred-character Ming curse.
+When reciting the Vajrasattva Hundred-syllable Mantra, visualize the moon plate in the heart of Vajrasattva, a "Hum" character in the middle of the moon plate, and the mantra of Vajrasattva around the "Hum" character - Hundred-syllable Mantra.
 
 After visualizing the mantra wheel, visualize a lot of white nectar coming out of the mantra wheel. The nectar fills the whole body of Vajrasattva and flows out from the pores of Vajrasattva's body.
 
@@ -3059,7 +3228,7 @@ The visualization of the fourth hundred-syllable mantra is the five-color mantra
 
 Visualize the white hundred-syllable mantra coming out of Vajrasattva's forehead, and the white nectar and white light melt into your forehead, eliminating the karma created by your body, and receiving the body blessing of the Guru Three Jewels.
 
-Then, a red one-hundred-character mantra emerges from Vajrasattva's throat, and red nectar and red light melt into your throat, eliminating the karma created by your mouth, and receiving the blessings of Vajrasattva and other Buddhas and Tathagatas.
+Then, a red one-Hundred-syllable mantra emerges from Vajrasattva's throat, and red nectar and red light melt into your throat, eliminating the karma created by your mouth, and receiving the blessings of Vajrasattva and other Buddhas and Tathagatas.
 
 Then a blue hundred-syllable mantra came out of Vajrasattva's heart, and blue nectar and blue light melted into your heart, eliminating the karma created by the mind, the karma created by greed, hatred, and delusion. Willing to support it.
 
@@ -3077,13 +3246,15 @@ Visualize that all the karma of your body, speech, and thoughts are all in your 
 
 Master Wensaba was a master who became a Buddha.
 
-Master Wen Saba said that the most excellent way to eliminate karmic obstacles is: karmic obstacles are like darkness, blessings are like rays of light, the light of blessings completely eliminates the darkness of karmic obstacles in an instant, and the karmic obstacles disappear in an instant. This blessing is very powerful.
+Master Wen Saba said that the most excellent way to eliminate karmic obstacles is: 
+
+karmic obstacles are like darkness, blessings are like rays of light, the light of blessings completely eliminates the darkness of karmic obstacles in an instant, and the karmic obstacles disappear in an instant. This blessing is very powerful.
 
 (6) Cultivating wisdom
 
 The sixth type of 100-syllable mantra visualization is the visualization of cultivating wisdom.
 
-All the pores of the practitioner visualize the word "Hu", and the word "Hu" emits immeasurable rays of light, and invites the Buddhas and Tathagatas to speak, argue, write, and broad, deep, quick, and bright wisdom, and then the Buddhas and Tathagatas His wisdom has become the Sword of Wisdom, Prajna Sutra, Manjushri Mantra, and Seed Mantra, which are integrated into the word "Hu", and the word "Hu" becomes a million times as bright as the sun's rays, eliminating all ignorance and darkness.
+All the pores of the practitioner visualize the word "Hum", and the word "Hum" emits immeasurable rays of light, and invites the Buddhas and Tathagatas to speak, argue, write, and broad, deep, quick, and bright wisdom, and then the Buddhas and Tathagatas His wisdom has become the Sword of Wisdom, Prajna Sutra, Manjushri Mantra, and Seed Mantra, which are integrated into the word "Hum", and the word "Hum" becomes a million times as bright as the sun's rays, eliminating all ignorance and darkness.
 
 (7) Infinite Vajrasattva
 
@@ -3095,7 +3266,7 @@ This is the method of reciting once to achieve innumerable recitations.
 
 There are many ways to visualize Vajrasattva, and we will introduce the above-mentioned ways of visualization.
 
-The more you recite the Hundred-Character Mantra, the better.
+The more you recite the Hundred-syllable Mantra, the better.
 
 Cultivating together is different from cultivating alone. Now twenty or thirty people are cultivating together, and reciting it once is twenty or thirty times.
 
@@ -3125,15 +3296,19 @@ Vajradhara said good men/good women, breaking vows and sins,
 
 Everything is purified and eliminated, and the deity enters into my body, speech, and mind.
 
-After the visualization, I have to repent: Because I don't know the precepts, I don't know what evil karma is, I have done many wrong things, broken my vows, and broke the precepts.
+After the visualization, I have to repent: 
+
+Because I don't know the precepts, I don't know what evil karma is, I have done many wrong things, broken my vows, and broke the precepts.
 
 When the three precepts are broken, the precepts of not liberation, the precepts of bodhisattvas, and the precepts of tantra are all broken.
 
-Please Guru Three Treasures save me! I want to take refuge in the deity Satan Vajrasattva (that is, Vajrasattva), and I want to take refuge in the guru, the Three Jewels! I have done a lot of wrong things in the past and I have to repent.
+Please Guru Three Treasures save me! I want to take refuge in the deity Vajrasattva (that is, Vajrasattva), and I want to take refuge in the guru, the Three Jewels! I have done a lot of wrong things in the past and I have to repent.
 
 Repent like that.
 
-Then Vajrasattva said: A good man (if it is a woman, it can be said to be a good woman or a good woman), violates the vows and sins, and everything is eliminated.
+Then Vajrasattva said: 
+
+A good man (if it is a woman, it can be said to be a good woman or a good woman), violates the vows and sins, and everything is eliminated.
 
 All guilt is removed.
 
@@ -3203,20 +3378,19 @@ Joint practice of Vajrasattva
 
 Forward:
 
-Recite the "Heart Sutra" once, "Recite the Sutra often" once, "Longevity Prayer for Ngawang Gyatso Vajra Master" once, "Praise for Dependent Origination" once, and "Vajrasattva Practice Dharma" once.
+Recite the "Heart Sutra" once, "Recite the Sutra often" once, "Longevity Prayer for Ngawang Gyatso Vajra Master" once, "In Praise of Dependent Origination" once, and "Vajrasattva Practice Dharma" once.
 
 Right line:
 
-Recite the "Hundred-Character Mantra".
+Recite the "Hundred-syllable Mantra".
 
 End line:
 
 Recite the "Prayers for Goodness after Junior High School" once, "Gelushan Religion Prosperity" once, and "Great Dedication" three times.
 
-picture Protestant 181
+picture Prostrations 181
 
-prostration
-Please arouse Bodhicitta and listen carefully!
+Please generate Bodhicitta and listen carefully!
 
 Today is a big prayer.
 
@@ -3224,11 +3398,11 @@ Prostration can accumulate great blessings, and the blessings can be as great as
 
 The prostration can eliminate karma, and all the karma of body, speech and mind can be eliminated.
 
-The merits of prostration are also great, all the meridians of the whole body can be opened up, and the blessings of Buddhas and Bodhisattvas can be obtained.
+The merits of prostration are also great, all the channels of the whole body can be opened up, and the blessings of Buddhas and Bodhisattvas can be obtained.
 
-The prostration is also a kind of practice in the tantric method to exercise the body.
+Prostration is also a kind of practice in the tantric method to exercise the body.
 
-Therefore, the blessings and merits of the prostration are very great.
+Therefore, the blessings and merits of prostration are very great.
 
 Visualize the Lord.
 
@@ -3246,21 +3420,21 @@ Around Shakyamuni Buddha, there are four deities, Buddhas, Bodhisattvas, Arhats,
 
 On the thrones in front of all the Buddhas are placed the teachings and sutras of the luminous body that they have spoken.
 
-Visualize the blue hum character in the hearts of the deities in the field of resources, the hum character emits light, and the light shines on the pure land of each Buddhist country, bringing the real Shakyamuni Buddha and the lineage patriarchs, masters, deities, Buddhas, and bodhisattvas. , Fate Jue Arhats, Shravaka Arhats, Warriors, Dakinis, Dharma Protectors and other wise deities are invited to join the deity deities who have been visualized in front of them, and can also be visualized as having three types of wisdom, compassion and ability. The Buddhas of merit, all of them showed their supernatural powers, and merged with the deities of the grain field.
+Visualize the blue hum character in the hearts of the deities in the field of resources, the HUM character emits light, and the light shines on the pure land of each Buddhist country, bringing the real Shakyamuni Buddha and the lineage patriarchs, masters, deities, Buddhas, and bodhisattvas. , Fate Jue Arhats, Shravaka Arhats, Warriors, Dakinis, Dharma Protectors and other wise deities are invited to join the deity deities who have been visualized in front of them, and can also be visualized as having three types of wisdom, compassion and ability. The Buddhas of merit, all of them showed their supernatural powers, and merged with the deities of the Field of Merit.
 
 We should believe in our hearts that the real field of merit is right in front of us.
 
 The Buddhist scriptures say that the wisdom of the Buddha is everywhere, because the Buddha is the one who has achieved dual status, and the body and mind have become one. Therefore, wherever the wisdom of the Buddha pervades, the body of the Buddha can also permeate, but we are blocked by karma. Covered and invisible.
 
-The other deities in the grain field are actually manifested by the Buddha, so they also exist in front of us.
+The other deities in the Field of Merit are actually manifested by the Buddha, so they also exist in front of us.
 
 Therefore, the greater our confidence, the greater the blessings and the accumulated merits.
 
 During prostration:
 
-1. Bow down.
+1. Prostration
 
-Visualize yourself transforming into countless avatars, each standing respectfully in front of the grain field below.
+Visualize yourself transforming into countless avatars, each standing respectfully in front of the Field of Merit below.
 
 First, lift up your hands and put your palms together on top of your head, put your thumbs in your palms, visualize holding a wish-fulfilling jewel in your palms when you put your palms together, bow to your guru, and put your palms together on top of your head.
 
@@ -3300,31 +3474,43 @@ The myriad ways to visualize yourself incarnate are crucial in your practice.
 
 If you visualize yourself alone, you will have only one merit; if you visualize countless incarnations, you will have countless merits.
 
-Just thinking about it like this will magnify your merit countless times, so why not do it! In the past, there was a lama in Ta'er Monastery, who completed 30 million big heads in three years.
+Just thinking about it like this will magnify your merit countless times, so why not do it! 
 
-Once, he reported his achievements to the native official living Buddha, a great achiever, and the native official living Buddha said to him: "You have cultivated well, but I only need three minutes to complete your three-year cultivation.
+In the past, there was a lama in Ta'er Monastery, who completed 30 million full prostrations in three years.
 
-"The native official living Buddha said to use this method of visualization.
+Once, he reported his achievements to the native official living Buddha, a great achiever, and the native official living Buddha said to him: 
+
+"You have cultivated well, but I only need three minutes to complete your three-year cultivation."
+
+The native official living Buddha said to use this method of visualization.
 
 In Tibetan areas, whether the elderly or children, they usually do prostrations, exercise in prostrations, and use prostrations to accumulate blessings and eliminate karmic obstacles.
 
-In the past, people from Qinghai went to the Potala Palace and the Jokhang Temple in Lhasa, Tibet for prostrations almost every day, and some people even carried their old mothers to the Potala Palace.
+In the past, people from Qinghai went to the Potala Palace and the Jokhang Temple in Lhasa to do prostrations almost every day, and some people even carried their old mothers to the Potala Palace.
 
 Some old mothers wished to go to the Potala Palace and the Jokhang Temple to worship Shakyamuni Buddha. They were very pious when they could not go alone and asked their sons to help carry them on their backs.
 
-Some people walk 100 meters behind their mothers, put their mothers down, and then come back to do prostrations by themselves. This phenomenon not only happened before, but also happens now.
+Some people walk 100 meters with their mothers on their backs, put their mothers down, and then go back and do prostrations by themselves. This phenomenon not only happened before, but still happens now.
 
-To do this as a child is to honor your parents. To honor your parents to this extent, you walk 100 meters or 200 meters behind your back, put your parents down, and then come back to do prostrations and worship your parents.
+To do this as a child is to honor your parents. To honor your parents to this extent, you walk 100 meters or 200 meters with them on your back, put your parents down, and then go back to do prostrations and worship your parents.
 
-In this way, back 100 meters and come back to do the big prayer, that is to say, only one trip to Lhasa is equivalent to three trips to Lhasa.
+In this way, walking 100 metres and going back to do the big prayer, that is to say, only one trip to Lhasa is equivalent to three trips to Lhasa.
 
-Really very special! Now Qinghai can often be seen, and many people go to Lhasa for prostration. This is a great blessing! I hope you all have more prostrations, good health and good luck!
+Really very special! 
+
+Nowadays this can often be seen in Qinghai, and many people go to Lhasa for prostration. 
+
+This is a great blessing! I hope you all have more prostrations, good health and good luck!
 
 2. Spoken salute.
 
 Visualize that each of your avatars has an infinite number of heads, each head has an infinite number of mouths, and each mouth is chanting the Buddha's praise.
 
-The words of praise can be chosen by yourself, or you can recite: "The body is full of auspiciousness and perfection, satisfying all sentient beings' prayers; seeing all the knowledge and meaning, respectfully praise the Lord Shakyamuni."
+The words of praise can be chosen by yourself, or you can recite: 
+
+"The body is full of auspiciousness and perfection, satisfying all sentient beings' prayers; 
+
+seeing all the knowledge and meaning, respectfully praise the Lord Shakyamuni."
 
 prostration
 
@@ -3332,9 +3518,11 @@ prostration
 
 Generate a sincere heart of faith in the Three Jewels of the Guru.
 
-Always think about the merits of the Three Jewels, read the biographies of Buddhas and Bodhisattvas or read the biographies of the lineage guru, so that a respectful and pure heart towards the guru and the Three Jewels can arise.
+Always think about the merits of the Three Jewels, read the biographies of Buddhas and Bodhisattvas or read the biographies of the lineage gurus, so that a respectful and pure heart towards the guru and the Three Jewels can arise.
 
 This is a courtesy.
+
+---
 
 tuolesi
 

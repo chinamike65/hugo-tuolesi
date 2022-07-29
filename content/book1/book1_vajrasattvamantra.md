@@ -61,3 +61,5 @@ draft: false
 > Be the Vajra-bearer, Being of the Great Bond!
 > 
 > āḥ (hūṃ phaṭ)
+
+om benza sato samaya manu palaya benza sato té nopa tishta dridho mé bhava sutokhayo mé bhava supokhayo mé bhava anurakto mé bhava sarva siddhi mé prayatsa sarva karma sutsa mé tsittam shré yah kuru hung ha ha ha ha ho bhagavan sarva tathagata benza ma mé muntsa badzra bhava maha samayasato ah hung pé
