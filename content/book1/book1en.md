@@ -81,17 +81,16 @@ From 1993 to 2004, the master has come to study with His Holiness Master Yongzen
 
 Master Ngawang Gyatso was born on March 3, 1969 (the fifteenth day of the first lunar month) in Hainan Tibetan Autonomous Prefecture, Qinghai Province.
 
-The master began to practice Buddhism as a novice monk at the age of six, and became an ordained monk at the age of eighteen. He studied with Dharma Master Lamaoyong Zeng, Geshe Rinpoche, Lobsang Dorje Vajra Guru, Gejia Rinpoche, Dharma Master Yeshe Gyatso, and Gazang Qusong Vajra Guru and the 10th Panchen Lama.
+The master began to practice Buddhism as a novice monk at the age of six, and became an ordained monk at the age of eighteen. He studied with Dharma Master Lama Yong Zeng, Geshe Rinpoche, Lobsang Dorje Vajra Guru, Gejia Rinpoche, Dharma Master Yeshe Gyatso, and Gazang Qusong Vajra Guru and the 10th Panchen Lama.
 
-**The master is like a teacher, and he has completely obtained the inheritance of the seven masters' hearts and methods, obtained more than 200 kinds of empowerment, more than 300 kinds of empowerment with Xu, more than 280 kinds of guidance, more than 500 scriptures and more than 80 kinds of transmissions and pith instructions.**
+Master Ah Wang, having followed the precepts of his teachers, received complete transmission of the teachings from his seven masters, the forty-sixth generational heirs of the "Prajna Paramita Sutra", the most important classic of Buddhism. From them he obtained more than 200 kinds of empowerments, more than 300 advanced special empowerments, more than 280 guiding precepts, with more than 500 scriptural sutras and more than 80 oral transmissions of intangible secrets. Therefore, the lineage of the master's doctrinal transmission is extremely complete and especially rare.
 
-The master followed Lamaoyong to increase the Dharma Master for more than 20 years and gained the experience of the Dharma Master throughout his life.
+His Holiness Dharma Master Yongzeng, who was once the sutra teacher of the living Buddha, Sechi, in Lamodeqin Monastery was a person of superior virtue and the complete holder of the transmissions of the Gelugpa tantric teachings. Master Ah Wang followed Master Yongzeng for more than 20 years and absorbed all of the experience of the Venerable Dharma Master. The other six masters are also highly proficient in the esoteric secrets and have sufficient evidence of exceptional scholarly achievements. 
 
-Lamaoyong enlarged the Dharma Master before expressing his silence and instructed the master: **"Your whole career in this life is to turn the wheel of Dharma widely and spread the Dharma for the benefit of all living beings."**
+Lama Yongzeng once told Master Ah Wang: **"Your whole career in this life is to turn the wheel of Dharma widely and spread the Dharma for the benefit of all living beings."**
 
-Master Ah Wang studied at Qinghai Buddhist Academy and Taer Monastery Debating School.
-
-During Master Ngawang Gyatso's studies, he completed the five major treatises, the second and second esoteric courses of the five great vajras with extraordinary diligence and wisdom, and mastered all the contents.
+In addition, Master Ah Wang studied at Qinghai Buddhist College and the Ta'er (Kumbum) Monastery  Debating College of Dialectics (Debating College).
+With a single-minded commitment to study and wide erudition, he completed the study of sutra and tantra, the five major theories of the five great Dharma masters, well ahead of schedule.
 
 Since graduating from Qinghai Buddhist Academy and Ta'er Monastery Debating Academy with excellent grades, the master has been living at Qinghai Tuole Monastery, serving as the Vajra Guru and the abbot of the monastery. He teaches the monks of Tuole Monastery every day in groups: lectures on the five great treatises, San Shi Dao, and the four tantras, and has set up a new sutra debating school in the monastery.
 

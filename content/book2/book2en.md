@@ -47,17 +47,17 @@ Practice the Dharma
 
 Master Ngawang Gyatso was born on March 3, 1969 (the fifteenth day of the first lunar month) in Hainan Tibetan Autonomous Prefecture, Qinghai Province.
 
-The master began to practice Buddhism as a novice monk at the age of six, and became an ordained monk at the age of eighteen. He studied with Dharma Master Lamaoyong Zeng, Geshe Rinpoche, Lobsang Dorje Vajra Guru, Gejia Rinpoche, Dharma Master Yeshe Gyatso, and Gazang Qusong Vajra Guru and the 10th Panchen Lama.
+He began his study of Buddhism at the age of six and became a monk at the age of 18. He had seven teachers including Master Gazang Qusong. He studied with Dharma Master Lamaoyong Zeng, Geshe Rinpoche, Lobsang Dorje Vajra Guru, Gejia Rinpoche, Dharma Master Yeshe Gyatso, and Gazang Qusong Vajra Guru and the 10th Panchen Lama.
 
-**The master is like a teacher, and he has completely obtained the inheritance of the seven masters' hearts and methods, obtained more than 200 kinds of empowerment, more than 300 kinds of empowerment with Xu, more than 280 kinds of guidance, more than 500 scriptures and more than 80 kinds of transmissions and pith instructions.**
----
-The master followed Lamaoyong to increase the Dharma Master for more than 20 years and gained the experience of the Dharma Master throughout his life.
----
-Lamaoyong enlarged the Dharma Master before expressing his silence and instructed the master: **"Your whole career in this life is to turn the wheel of Dharma widely and spread the Dharma for the benefit of all living beings."**
+Master Ah Wang, having followed the precepts of his teachers, received complete transmission of the teachings from his seven masters, the forty-sixth generational heirs of the "Prajna Paramita Sutra", the most important classic of Buddhism. From them he obtained more than 200 kinds of empowerments, more than 300 advanced special empowerments, more than 280 guiding precepts, with more than 500 scriptural sutras and more than 80 oral transmissions of intangible secrets. Therefore, the lineage of the master's doctrinal transmission is extremely complete and especially rare.
 
-Master Ah Wang studied at Qinghai Buddhist Academy and Taer Monastery Debating School.
+His Holiness Dharma Master Yongzeng, who was once the sutra teacher of the living Buddha, Sechi, in Lamodeqin Monastery was a person of superior virtue and the complete holder of the transmissions of the Gelugpa tantric teachings. Master Ah Wang followed Master Yongzeng for more than 20 years and absorbed all of the experience of the Venerable Dharma Master. The other six masters are also highly proficient in the esoteric secrets and have sufficient evidence of exceptional scholarly achievements. 
 
-During Master Ngawang Gyatso's studies, he completed the five major treatises, the second and second esoteric courses of the five great vajras with extraordinary diligence and wisdom, and mastered all the contents.
+Before His Holiness Yongzeng passed away, he once instructed Master Ah Wang: "You must devote your whole life to the cause of turning the wheel of Dharma and spreading the Teachings to benefit the lives of all people."
+
+In addition, Master Ah Wang studied at Qinghai Buddhist College and the Ta'er (Kumbum) Monastery  Debating College of Dialectics (Debating College).
+With a single-minded commitment to study and wide erudition, he completed the study of sutra and tantra, the five major theories of the five great Dharma masters, well ahead of schedule.
+
 
 Since graduating from Qinghai Buddhist Academy and Ta'er Monastery Debating Academy with excellent grades, the master has been living at Qinghai Tuole Monastery, serving as the Vajra Guru and the abbot of the monastery. He teaches the monks of Tuole Monastery every day in groups: lectures on the five great treatises, San Shi Dao, and the four tantras, and has set up a new sutra debating school in the monastery.
 
@@ -257,15 +257,15 @@ Please generate Bodhicitta intention and listen carefully!
 
 The Four Refuges refer to taking refuge in the guru, taking refuge in the Buddha, taking refuge in the Dharma, and taking refuge in the Sangha. Among the 84,000 Dharma doors taught by Buddha Shakyamuni, the Four Refuges are the most important. 
 
-Believers are Buddhist disciples after taking refuge in the Three Jewels, and they are not Buddhist disciples if they have not taken refuge. Although people who have not taken refuge can learn the wisdom of Buddhism, they may not be able to learn the complete Dharma. Why?
+Believers are Buddhist disciples after taking refuge in the Three Jewels, and if they have not taken refuge they are not Buddhists. Although people who have not taken refuge can learn the wisdom of Buddhism, they may not be able to learn the complete Dharma. Why?
 
 The reason is that there are many skilful, oral, and secret transmissions in the inheritance. Those who have not taken refuge have no lineage, and those who have not received the transmission cannot learn the complete Dharma.
 
-The Four Refuges are about: the place of taking refuge, the cause of taking refuge, the merits of the Three Jewels, how to visualize, the merits of taking refuge, and the study of taking refuge.
+The Four Refuges are about: the place of taking refuge, the cause of taking refuge, the merits of the Three Jewels of Refuge, how to visualize, the merits of taking refuge, and the study of taking refuge.
 
 1. A place of refuge
 
-There are the guru and the three jewels of Buddha, Dharma and Sangha in the place of refuge.
+There are the guru and the Three Jewels of Refuge: of Buddha, Dharma and Sangha in the place of refuge.
 
 (1) Guru
 
@@ -371,7 +371,7 @@ The contents of the Four Refuges are very extensive, and even a great Geshe (Doc
 
 The reasons for taking refuge
 
-(1) Believe in the Three Jewels and understand the merits of the Three Jewels.
+(1) Believe in the Three Jewels of Refuge and understand the merits of the Three Jewels of Refuge.
 
 (2) The lower rank is afraid of suffering and the suffering of the three evil realms; the middle rank is afraid that he will suffer from the six realms of reincarnation; the upper rank is afraid of the suffering of all beings in the six realms.
 
@@ -379,7 +379,7 @@ Four Refuges: Why should we take refuge? What kind of attitude do you take refug
 
 The real refuge: the lower path is for the next life to have the leisure and perfection of the seven virtues of human beings and heaven, and not to fall into the three evil realms; the middle path is for liberation; the upper path is to become a Buddha.
 
-3. The merits of the Three Treasures
+3. The merits of the Three Jewels of Refuge
 
 The merits of the Three Jewels are: Buddha's merit, Dharma's merit, and Sangha's merit.
 
@@ -560,17 +560,19 @@ Arhats have the compassion of a mother towards all beings, but not the compassio
 
 An Arhat has the wisdom of a bodhisattva of the seventh bhumi, but has no bodhicitta.
 
-3. The Qualities of the Dharma protector
+3. The Qualities of the Dharma Protector
 
-The transcendent Dharma protector can do things to increase the sustenance, protect the Dharma and practitioners.
+The transcendent Dharma protector can work with rewards and punishments, protect the true Dharma and its practitioners.
 
-(Retire, quench disaster; increase, increase merit; embrace, love all beings; slaughter, slaughter demons.
+A Dharma Protector is an emanation of a Buddha or a Bodhisattva whose main functions are to avert the inner and outer obstacles that prevent practitioners from gaining spiritual realizations, and to arrange all the necessary conditions for their practice.
+
+(Bring relief, quell disasters; increase, increase merit; embrace, love all beings; slaughter, slaughter demons.
 
 )
 
 4. How to visualize
 
-Visualize an eight-petaled lotus flower on the head, and in the middle of the lotus is Sakyamuni Buddha meditating. His heart glows with white light, and he invites the guru to the Three Jewels (the guru includes the root guru and the lineage guru), and invites all the Buddhas and Tathagatas. Bodhisattvas, warriors and warrior mothers merged into Shakyamuni Buddha.
+Visualize an eight-petaled lotus flower on the head, and in the middle of the lotus is Sakyamuni Buddha meditating. His heart glows with white light, and he invites the guru to the Three Jewels of Refuge (the guru includes the root guru and the lineage guru), and invites all the Buddhas and Tathagatas. Bodhisattvas, warriors and warrior mothers merged into Shakyamuni Buddha.
 
 The rituals of Generating the Merit Field are:
 
@@ -680,7 +682,7 @@ There are different kinds of refuge states. This kind of visualization is the si
 
 In order to make offerings to all Buddhas and Bodhisattvas, one should recite "Om Ah Hum" three times.
 
-After reciting it three times, make offerings to the guru's Three Jewels.
+After reciting it three times, make offerings to the guru's Three Jewels of Refuge.
 
 "Om Ah Hum" is the seed mantra of all Buddhas and Tathagatas. When reciting the first time, all the unclean things are purified. When reciting the second time, all the offerings become nectar. When reciting the third time, the offerings become countless offerings. Make offerings to the Buddha in the heart.
 
@@ -688,11 +690,11 @@ This is relatively easy to do. In daily life, we use our eyes, ears, nose, tongu
 
 Seeing good things with the eyes, hearing good music with the ears, smelling good fragrances with the nose, tasting good tastes with the tongue, etc., are all offered to the Guru Triple Gem in the heart.
 
-Eating a meal to make offerings to the Three Jewels, and taking a bath can also bathe the Buddha in your heart, all of which can increase blessings.
+Eating a meal to make offerings to the Three Jewels of Refuge, and taking a bath can also bathe the Buddha in your heart, all of which can increase blessings.
 
 5. The merits of taking refuge
 
-Not falling into the three evil paths, eliminating karmic obstacles, accumulating blessings, obtaining the blessings of the Three Jewels, exorcising demons, not being obstructed by foreign magic, and able to break through obstacles.
+Not falling into the three evil paths, eliminating karmic obstacles, accumulating blessings, obtaining the blessings of the Three Jewels of Refuge, exorcising demons, not being obstructed by foreign magic, and able to break through obstacles.
 
 6. Refuge School
 
@@ -1246,7 +1248,7 @@ Thinking about it like this is very special.
 
 Then there is the Yi Ding Li, the belief in the Three Jewels is the Yi Ding Li, the quiet faith, the belief that does not turn back is the Yi Ding Li.
 
-The function of prostration is to generate respect and purity for the Three Jewels, and it can counteract arrogance. When kneeling down to pray, it will give up arrogance.
+The function of prostration is to generate respect and purity for the Three Jewels of Refuge, and it can counteract arrogance. When kneeling down to pray, it will give up arrogance.
 
 When bowing, recite:
 
@@ -1412,7 +1414,7 @@ It violates the three laws
 
 heartfelt repentance
 
-How to repent? You can repent in the presence of a Buddha statue or the Three Jewels of the Guru:
+How to repent? You can repent in the presence of a Buddha statue or the Three Jewels of Refuge of the Guru:
 
 I repent of the karma that I have created in my life after life, including all the karma created by my body, speech and mind, the karma created by greed, hatred and delusion, and the karma caused by breaking the vows.
 
@@ -1440,13 +1442,13 @@ Refuges with precepts include those with one precept, those with two precepts, t
 
 Taking refuge without precepts means that you do not need to take home precepts after taking refuge.
 
-After taking refuge, you have entered Buddhism and have faith in the Three Jewels. You should do more good deeds and don't retreat from your beliefs.
+After taking refuge, you have entered Buddhism and have faith in the Three Jewels of Refuge. You should do more good deeds and don't retreat from your beliefs.
 
-Some people don't understand that taking refuge has precepts and non-precepts, and they say that you can't take refuge, that you can't do this, you can't do that, and so on.
+Some people don't understand that taking refuge has precepts and non-precepts, and they say that once you have taken refuge, that you can't do this, you can't do that, and so on.
 
 In fact, there are not so many rules for conversion.
 
-Ninety-nine percent of the people in our Tibetan area who take refuge in Buddhism, very few take precepts, and ninety percent of the disciples who take refuge are those who take refuge without precepts.
+Ninety-nine percent of the people in our Tibetan area who take refuge in Buddhism, very few take vows, and ninety percent of the disciples who take refuge are those who take refuge without vows.
 
 "Repent with the deepest heartache", we must repent in this way.
 
@@ -2035,7 +2037,7 @@ The more Mandala is repaired, the more blessings will grow.
 
 The blessings have grown, and everything is done smoothly, and the wishes are fulfilled, and the practice is very fast.
 
-If you want to achieve success in your practice, you need to increase blessings, eliminate karmic obstacles, and get the blessing of the Three Jewels of the Guru. With these conditions, practice can be accomplished.
+If you want to achieve success in your practice, you need to increase blessings, eliminate karmic obstacles, and get the blessing of the Three Jewels of Refuge of the Guru. With these conditions, practice can be accomplished.
 
 Mandalas can be divided into: outer Mandalas, inner Mandalas, mi Mandalas, and emptiness Mandalas.
 
@@ -2523,7 +2525,7 @@ East Sacred Body Continent, South Zhan Bu Continent, every earth can make offeri
 
 So this is called the sea of ​​countless boundless dust.
 
-The guru, the deity, the Three Jewels, the guru to be offered here, mainly refers to one's own root guru and lineage guru.
+The guru, the deity, the Three Jewels of Refuge, the guru to be offered here, mainly refers to one's own root guru and lineage guru.
 
 The lineage guru refers to the guru's guru, all the way up to Shakyamuni Buddha.
 
@@ -2535,7 +2537,7 @@ The deity of the Xingbu is Vairocana Bodhi Buddha, etc. There are many Buddhas a
 
 There are many deities of Shibu. Twenty-one Tara, Manjushri, Avalokitesvara, and God of Wealth are all belonging to Shibu deity and can be offered to these deities.
 
-The Three Jewels are Buddha, Dharma, and Sangha.
+The Three Jewels of Refuge are Buddha, Dharma, and Sangha.
 
 The Buddha is the Buddha Tathagata, the Buddha Tathagata of the ten directions and three times.
 
@@ -2589,15 +2591,15 @@ After the seven offerings of Mandala are completed, the Mantra Mantra shall be r
 
 Fifth, how to repair Mandala.
 
-First, let's talk about the method of Mandalapan repair.
+First, let's talk about the method of Mandala pan repair.
 
-Everyone knows this is called Mandalapan.
+Everyone knows this is called Mandala pan.
 
 The empty space below the Mandala disk represents the boundless giant tornado when the universe began to form, and the disk above represents the golden foundation of extremely pure freedom.
 
 When making offerings to the Mandala, the left hand must take some offerings, such as gold and silver jewelry, various precious stones, or five grains, etc., and then hold it by the side of the Mandala, and then grab some offerings with the right hand, and rub the Mandala with the Bodhi pulse of the right hand. .
 
-There are two methods for wiping the Mandalapan: The first method: Wipe clockwise three times.
+There are two methods for wiping the Mandala pan: The first method: Wipe clockwise three times.
 
 The meaning of rubbing it three times is that the first time is to wipe off the afflictions of sentient beings in the six realms, the second time is to wipe away the knowledge obstacles of sentient beings in the six realms, and the third time is to wipe off the habits of sentient beings in the six realms.
 
@@ -2647,7 +2649,7 @@ In this way, the third layer is full.
 
 "In the center of Manzha, all heaven and man are pure and auspicious, the treasure of perfection" and finally put the top tower on it.
 
-"Immeasurable and boundless dust, as many seas, are solemnly listed, and the guru deity, the Three Jewels, make offerings, and I pray for mercy to benefit all people and accept them. I have prayed for blessings."
+"Immeasurable and boundless dust, as many seas, are solemnly listed, and the guru deity, the Three Jewels of Refuge, make offerings, and I pray for mercy to benefit all people and accept them. I have prayed for blessings."
 
 Then the top pavilion was taken down and offered seven offerings to the Mandala, "The earth is covered with fragrant flowers and brocades, and the sun and moon are all around Xumi. 138 Mandala's intention is to make offerings to all Buddha temples, and everyone climbs the pure land to pray and benefit." Put the building on it, and when you recite this Mantra Mantra, "Odang is as strong as Rena Mandala Gunya Dayami", sprinkle the jewels, this is a very complete offering.
 
@@ -3072,7 +3074,7 @@ Friends and foes have changed a lot. All sentient beings are equal and should be
 
 So always let go.
 
-Taking refuge in the Three Jewels of Buddhism, Dharma and Sangha
+Taking refuge in the Three Jewels of Buddha, Dharma and Sangha
 
 I'm free from everything
 
@@ -3110,7 +3112,7 @@ Then this light shoots out and shines on all beings in the six realms, and all t
 
 All sentient beings became Vajrasattva.
 
-Making offerings to the guru's Three Jewels is self-interest, and eliminating the karma of sentient beings in the six realms is altruism.
+Making offerings to the guru's Three Jewels of Refuge is self-interest, and eliminating the karma of sentient beings in the six realms is altruism.
 
 The immeasurable rays of light enter the word "Hum", and all the rays of light that are emitted are taken back and melted into the word "Hu" on the abdomen of the vajra.
 
@@ -3130,7 +3132,7 @@ The great treasure is decorated with all kinds of solemnities, that is, the Budd
 
 The word "Hung" in the heart glows and invites, and all the Buddhas are transformed into Vajrasattva.
 
-It is the word "Hung" in the mantra wheel of Vajrasattva that emits boundless light, welcoming all Buddhas and Tathagatas and Bodhisattvas, and inviting the Guru and the Three Jewels together, and turning them into Vajrasattva in the process of inviting them.
+It is the word "Hung" in the mantra wheel of Vajrasattva that emits boundless light, welcoming all Buddhas and Tathagatas and Bodhisattvas, and inviting the Guru and the Three Jewels of Refuge together, and turning them into Vajrasattva in the process of inviting them.
 
 "Zha", "Hung", "Wan" and "Ha" are integrated into one, "Zha" reaches the top of Vajrasattva's head, "Hung" is integrated, and "Wan" is indistinguishable. Ha" is how long you can visualize it, and how long it will melt into your body.
 
@@ -3516,141 +3518,149 @@ prostration
 
 3. To pay tribute.
 
-Generate a sincere heart of faith in the Three Jewels of the Guru.
+Generate a sincere heart of faith in the Three Jewels of Refuge of the Guru.
 
-Always think about the merits of the Three Jewels, read the biographies of Buddhas and Bodhisattvas or read the biographies of the lineage gurus, so that a respectful and pure heart towards the guru and the Three Jewels can arise.
+Always think about the merits of the Three Jewels of Refuge, read the biographies of Buddhas and Bodhisattvas or read the biographies of the lineage gurus, so that a respectful and pure heart towards the guru and the Three Jewels of Refuge can arise.
 
 This is a courtesy.
 
 ---
 
-tuolesi
+![tuolesi](/images/tuolesi.png)
 
-Introduction to Tuola Temple
+### The Tuole Monastery above the "lotus platform"{#intro-tuole} 
 
-Tuola Temple above the "lotus platform"
+[Back to Contents]({{< relref "#toc-back" >}})
 
-Tuole (Tuole) Temple is a famous monastery of the Gelug Sect of Tibetan Buddhism, located in the basin between the three grasslands of Muguitan, Balegetan and Dutan in Guinan County, Hainan Tibetan Autonomous Prefecture, Qinghai Province.
+Tuole Monastery is a famous monastery belonging to the Gelug Sect of Tibetan Buddhism, located in the basin between the three grasslands of Muguitan, Balegetan and Dutan in Guinan County, Hainan Tibetan Autonomous Prefecture, Qinghai Province.
 
-The monastery is surrounded by mountains, facing Baiguan Pilgrimage Mountain, backed by Bailong Mountain, supporting Long Mountain on the left and Phoenix Mountain on the right.
+The monastery is surrounded by mountains, facing Baiguan Pilgrimage Mountain, backed by White Dragon Mountain, flanked by Dragon Mountain on the left and Phoenix Mountain on the right.
 
-There are Turtle Mountain, Peacock Mountain, Elephant Mountain, Ba Jixiang Mountain, Foshou Mountain and other hills around it like lotus petals. The temple is located on the hill in the middle that rises like a lotus platform. between green water.
+There are Turtle Mountain, Peacock Mountain, Elephant Mountain, Ba Jixiang Mountain, Foshou Mountain and other hills around like lotus petals. The monastery is located on the hill in the middle that rises like a lotus platform from among green water.
 
 To the south of the temple, the Mangla River flows from south to north; to the north, the Yellow River flows from west to east.
 
-There are three holy lakes in the northeast of the monastery, like three stars falling into the world.
+There are three holy lakes to the northeast of the monastery, like three stars which have fallen to earth.
 
-The river is like a jade belt, and the holy lake is like a bead, protecting this Buddhist holy place.
+The river is like a jade belt, and the holy lakes are like beads, protecting this Buddhist holy place.
 
-In 1916, the incarnation of Vajrapani Bodhisattva, Master Tanchen Nuori, founded the Tuola Temple.
+In 1916, the incarnation of Vajrapani Bodhisattva, Master Tanchen Nuori, founded the Tuole Monastery.
 
-The master recited the six-character mantra 600 million times for the construction of the temple, and recited the "Auspicious Sutra" to bless the address of the temple.
+The master recited the six-character mantra 600 million times for the construction of the temple, and recited the "Mangala Sutra" to bless the consecration of the temple.
 
-In 1927, the master passed away and was reborn as the 21st Dharma King of the Pure Land of Shambhala.
+In 1927, the master passed away and was reborn as the 21st Dharma Master of the Pure Land of Shambhala.
 
-To this day, the monks and believers in the monastery are still blessed by the Dharma King.
+To this day, the monks and believers in the monastery are still blessed by the Dharma Master.
 
-In 2004, Guru Ngawang Gyatso Vajrapani began to rebuild the Tuola Monastery.
+In 2004, Guru Ngawang Gyatso began to rebuild the Tuole Monastery.
 
-The pure precepts and perfect teachings of Tuola Temple attract more and more monks to join.
+The pure precepts and perfect teachings of Tuole Monastery attract more and more monks to join.
 
-Although this is a Gelug monastery, monks from various sects such as Nyingma, Kagyu, Sakya, and Joanang have also gathered here to study and learn from each other.
+Although this is a Gelugpa monastery, monks from various sects such as Nyingma, Kagyu, Sakya, and Joning have also gathered here to study and learn from each other.
 
 Regarding the origin of the monastery, there have been many prophecies by the sages of the past dynasties.
 
-On April 15, 1935, after drinking yogurt in the Potala Palace, the former Tibetan Regent Rezhen Rinpoche turned the porcelain bowl inside out and gave a prophecy: Tuola Monastery will become a part of Ganden Monastery, Drepung Monastery and Sera Monastery in Tibet. The sacred place of Tibetan Buddhism is equally famous, and it is supported by believers from all over the world. In its heyday, the number of monks will reach 5,500.
+On April 15, 1935, after drinking yogurt in the Potala Palace, the former Tibetan Regent Rezhen Rinpoche turned the porcelain bowl inside out and foretold that the Tuole Monastery would become the same as the Tibetan Ganden Monastery, Drepung Monastery and Sera Monastery. The sacred place of Tibetan Buddhism is equally famous, and it is supported by believers from all over the world.
 
-The living Buddha left the monk's hat and the shoulders of the Dharma King Yama as evidence.
+At its full capacity, the number of monks will reach 5,500.
 
-Introduction to Tuo Le Temple Tuo Le Temple, where Tibetan and Chinese are integrated, the place where Tuo Le Temple is today is called Jiarigang (meaning the place where the Han people are concentrated in Chinese), which means the integration of Tibetan and Chinese.
+The living Buddha left the monk's hat and the shoulders of the Dharma Master Yama as evidence.
 
-In 1916, when Tuola Temple was built, the donations for the construction of the temple were donated by believers from both Tibetan and Han places.
+The place where Tuole Monastery is today is called Jiarigang (meaning 'the place where the Han people are concentrated' in Chinese), which means the integration of Tibetan and Chinese.
 
-At that time, there were more than 200 Tibetans and more than 400 Han people in the five villages where the Tuola Temple was jointly built.
+In 1916, when Tuole Temple was built, the donations for the construction of the temple were donated by believers from both Tibetan and Han areas.
 
-During the "Cultural Revolution", Tuola Temple was destroyed.
+At that time, there were more than 200 Tibetans and more than 400 Han people in the five villages where the Tuole Monastery was built.
 
-In 1981, Living Buddha Yigen rebuilt Tuola Temple by the Yellow River with donations from Tibetans and Chinese believers.
+During the "Cultural Revolution", Tuole Monastery was destroyed.
 
-In 1984, Yigen Living Buddha moved to its current location.
+In 1981, Living Buddha Yigen rebuilt Tuole Monastery by the Yellow River with donations from Tibetan and Chinese believers.
 
-In 2004, the new Mahavira Hall and Dharma Protector Hall started to be built by Master Ngawang Gyatso Vajra, which are still jointly built by Tibetan and Chinese believers.
+In 1984, Yigen Living Buddha moved the Monastery to its current location.
 
-Therefore, no matter the past or the present, Tuola Temple is a testimony to the harmony between Tibetan and Chinese people.
+In 2004, construction began on the new Mahavira Hall and Dharma Protector Hall by Master Ngawang Gyatso, which were also jointly built by Tibetan and Chinese believers.
 
-The architecture of Tuola Temple fully embodies the characteristics of the integration of Tibetan and Chinese.
+Therefore, no matter the past or the present, Tuole Monastery is a testimony to the harmony between Tibetan and Chinese people.
 
-For example, the stone pillars and dragon pillars of the Mahavira Hall highlight the Han culture; the Maitreya Buddha at the entrance of the monastery, Jigong, Xuanzang Master, Bodhidharma on the Thangka in the Buddhist Temple, and the sixteen Han-style Arhats in the Mahavira Hall all reflect the Introduced the Han Buddhism culture.
+The architecture of Tuole Monastery fully embodies the characteristics of the integration of Tibetans and Chinese.
 
-The collection of scriptures in Tuola Temple also shows the characteristics of Tibetan-Chinese fusion.
+For example, the stone pillars and dragon pillars of the Mahavira Hall highlight the Han culture; the Maitreya Buddha at the entrance of the monastery, Jigong, Master Xuan Zang, Bodhidharma on the Thangka in the Buddhist Temple, and the sixteen Han-style Arhats in the Mahavira Hall all reflect the introduction of Han Buddhist culture.
 
-There are Chinese version of "Qianlong Tripitaka" and so on in the Collection Pavilion.
+The collection of scriptures in Tuole Monastery also shows the characteristics of Tibetan-Chinese fusion.
 
 There are also collections of Chinese Buddhist texts, such as the Complete Works of Master Hongyi.
 
-The puja at Tuola Temple also has the characteristics of the integration of Tibetan and Chinese.
+The puja at Tuole Monastery also has the characteristics of the integration of Tibetans and Chinese.
 
-The Mahavira Hall of Tuola Temple was consecrated by eminent monks from Tibetan, Han and Southern traditions.
+The Mahavira Hall of Tuole Monastery was consecrated by eminent monks from Tibetan, Han and Southern traditions.
 
-The temple prays for the blessings of Guotai and Min'an every year, such as the burial of the treasure vase and the Dakini Buddha's dharma meeting, which are also attended by believers from both Tibetan and Chinese places.
+The temple holds prayers for the blessings of Guotai and Min'an every year, such as the burial of the treasure vase and the Dakini Buddha's dharma meeting, which are also attended by believers from both Tibetan and Chinese communities.
 
-The integration of Tibetan and Chinese has become an important feature of Tuola Temple.
+The integration of Tibetan and Chinese has become an important feature of Tuole Monastery.
 
-Tuola Temple, where the treasures of Buddha are treasured, is located in the Holy Land of the Mother of Dakinis. There have always been many deeds and travels of the Mother of Dakinis and the enlightened monks.
+Tuole Monastery, where treasures are preserved
 
-On the 10th and 25th of each month, the monastery will hold the Dakini Mother's Dharma Ceremony. Therefore, after the death of the monks and believers here, there are countless people who will be reborn in the Dakini Buddha's Pure Land and the Land of Ultimate Bliss.
+Tuole Monastery is located in the holy place of the Dakini Buddha, and there have always been many deeds and exchanges between the dakini and eminent monks.
 
-Introduction to Tuola Temple There are many magical Buddha treasures in Tuola Temple.
+On the 10th and 25th of every month, the monastery holds the Dakini Buddha's Dharma Ceremony. Therefore, after the death of the monks and believers here, there are countless people who are reborn in the Dakini Buddha's Pure Land and the Land of Ultimate Bliss.
 
-Buddha statues: The Mahavira Hall of Tuola Temple, with a golden outer wall, is extremely majestic. The hall is dedicated to the extremely extraordinary Manjushri, Medicine Buddha, Tathagata, Sakyamuni Buddha, Master Tsongkhapa, Venerable Atisha , Thousand-handed Avalokitesvara, Zuo Ming Buddha Mother, Vajra Hands, nine nine-meter-high Buddha and Bodhisattva statues, and also enshrined with sixteen Arhats and twenty-one Tara.
+There are many magical Buddha treasures in the Tuole Monastery.
+
+Buddha statues: The Mahavira Hall of Tuole Monastery, with a golden outer wall, is extremely majestic. The hall enshrines the extremely extraordinary Manjushri, Medicine Buddha, Tathagata, Sakyamuni Buddha, Master Tsongkhapa, Venerable Atisha , Thousand-handed Avalokitesvara, Zuo Ming Buddha Mother, Vajra Hands, nine nine-meter-high Buddha and Bodhisattva statues, and also enshrined with sixteen Arhats and Twenty-one Taras.
 
 In the Dharma Protector Hall, there is a monastery Danjian Dharma Protector statue whose facial expressions change frequently.
 
-There is a Guanyin statue in the Tantric Temple, about two feet high, which contains a branch of the Bodhi tree when Sakyamuni Buddha became a Buddha under the Bodhi tree - "Vajra branch".
+There is a Guanyin statue in the Tantric Hall, about two feet high, which contains a branch of the Bodhi tree when Sakyamuni Buddha became a Buddha under the Bodhi tree - "Vajra branch".
 
-In addition, there are three Buddha statues of Master Tsongkhapa containing the relics of Master Tsongkhapa's body, which are extremely special.
+In addition, there are three Buddha statues of Tsongkhapa in the temple, which contain the relics of Tsongkhapa's body, which are extremely special.
 
-Buddhist scriptures: There are golden scrolls of Prajna Sutra in the collection of Tuola Temple, several chapters of Buddhist scriptures copied by Venerable Jia Caojie (one of the two disciples of Master Tsongkhapa), and the golden script of the Great Prajna Sutra inherited by the family of Ngawang Gyatso Vajra Master. ".
+Buddhist scriptures: There are golden scrolls of Prajna Sutra in the collection of Tuole Monastery, several chapters of Buddhist scriptures copied by Venerable Jia Caojie (one of the two disciples of Master Tsongkhapa), and the golden character "Great Prajna Sutra" inherited by Ngawang Gyatso's family.
 
-Relics: The Tuola Temple collects the relics of Sakyamuni Buddha, the bone relics of the Bodhisattva, and the bone relics of the Venerable Mujianlian.
+Relics: The Tuole Monastery collects the relics of Sakyamuni Buddha, the bone relics of the Bodhisattva, and the bone relics of the Venerable Mujianlian.
 
 Treasures: Rare treasures such as Manjusri gems, antique instruments inherited from Master Saikangba, etc.
 
-Thangkas: All the murals in Tuola Temple are painted by the lamas of the temple; the thangkas in the temple are all painted by the most famous thangka painters, which can be called the treasures of Tibetan Buddhism.
+Thangkas: All the murals in Tuole Monastery are painted by the lamas of the temple; the thangkas in the temple are all painted by the most famous thangka painters, which can be called real treasures of Tibetan Buddhism.
 
-Ganlu Pills: The Ganlu Pills of Tuole Temple are composed of the nectar dropped by the Buddha statues of Tuole Temple, various Tibetan medicines and the blessings of the guru, and are blessed by the lamas of the whole temple day and night, which are very precious.
+Ganlu Pills: The Ganlu Pills of Tuole Monastery are composed of the nectar dropped by the Buddha statues of Tuole Monastery, various Tibetan medicines and the blessings of the guru, and are blessed by the lamas of the whole monastery day and night. They are very precious.
 
-The monks of the Tuola Temple who cultivate the talents are simple and kind, pure and solemn, of high moral character and elegant in manners.
+Tuole Monastery, where monks are cultivated
 
-In terms of cultivating monks, Tuola Temple pays attention to the combination of the study of the classics and the practice.
+The monks in the monastery are simple and kind, pure and dignified, of high moral character and elegant in manners.
 
-At present, there are hundreds of resident monks in Tuola Temple, and there are many visiting monks.
+In the training of monks, Tuole Monastery pays attention to the combination of the study of the classics and practice.
 
-Since Master Ngawang Gyatso Vajradhara presided over the monastery in 1994, he has worked tirelessly to teach the Five Great Treatises, the Three Paths, and the Four Tantras. The Buddhist Geshe (Doctor of Buddhist Studies).
+At present, there are hundreds of resident monks at Tuole Monastery, as well as many visiting monks.
+
+Since presiding over the monastery in 1994, Master Ngawang Gyatso has worked tirelessly to teach the Five Great Treatises, the Three Ways of Buddhism, and the Four Tantras. The Buddhist Geshe (Doctor of Buddhist Studies).
 
 The guru is earnest and good at guiding, the monks study hard, and the monks are born in large numbers.
 
-Today, the monks in the monastery are all flourishing and prosperous when they hear, think, practice, and debate.
+Today, the monks in the monastery are all flourishing and prosperous when they study, think, practice, and debate.
 
-Since 2002, the monastery has co-hosted the "Anda Dharma Conference" with the Laga Temple and Shizang Temple in Qinghai, and jointly held the "Dharma Conference" with Hainan Prefecture, all of which have achieved good results, thus winning many eminent monks, great virtues and social media. Highly praised by people from all walks of life.
+Since 2002, the monastery has co-hosted the "Anda Dharma Conference" with the Laga Temple and Shizang Temple in Qinghai, and the "Dharma Debate Conference" with Hainan Prefecture and is highly praised by people from all walks of life.
 
-Today, Tuole Monastery has trained more than 30 lecturing masters from lamas, and many monks and lay believers worship them as teachers.
+Today, Tuole Monastery has trained more than 30 lecturing masters from novice lamas, and many monks and lay believers worship them as teachers.
 
-In terms of practice, the monks in the monastery diligently study, think and practice, solemnly observe the precepts, and have been insisting on retreating for two months every year.
+In terms of practice, the monks in the monastery diligently study, think and practice, solemnly observe the precepts, and have been making retreats for two months every year.
 
-Over the years, Master Ngawang Gyatso Vajra has often taught scriptures and Dharma in Tibet and Han, and has also traveled around the world to teach Buddhists all over the world. His disciples are all over the world.
+Over the years, Master Ngawang Gyatso has often taught scriptures and Dharma in Tibet and China, and has also travelled around the world to teach Buddhists. His disciples are all over the world.
 
-The master emphasizes patriotism, love of education, and love of the people, and advocates great social harmony, great national unity, great world peace, and great perfection of practice.
+The guru emphasizes patriotism, love of education, and love of the people, and advocates great social harmony, great national unity, great world peace, and great perfection of practice.
 
-In 2009, as an outstanding representative of Tibetan Buddhist monks, Master Ngawang Gyatso Vajra participated in the puja to commemorate the 10th anniversary of Macau's return to the motherland, praying for Macau, and offering blessings to tens of thousands of believers at the scene.
+In 2009, as an outstanding representative of Tibetan Buddhist monks, Master Ngawang Gyatso participated in the 10th anniversary ceremony of Macao's return to the mainland, praying for Macao, and bestowing blessings on tens of thousands of believers.
 
-In response to the great wish of Master Ngawang Gyatso Vajrapani to spread the Dharma and benefit students, the growing number of monks to study and the needs of a large number of pilgrims, the infrastructure of the monastery is constantly expanding. In the next few years, Tuola Temple will successively build Maitreya Hall, Tara Hall, two Dharma Protector Halls, Buddha Hall, Library, Buddhist Academy, Monk House, One Hundred Pagodas, Mani Sutra Road and other buildings. .
+In response to the great wish of Ngawang Gyatso to spread the Dharma and benefit students, the ever-growing number of monks and pilgrims, the infrastructure of the monastery is constantly being expanded.
 
-Under the support of the believers in the ten directions, in the near future, Tuola Temple will be presented to the believers in the ten directions with a brand-new appearance.
+In the next few years, Tuole Monastery will build a Maitreya Hall, a Tara Hall, two Dharma Protector Halls, a Buddha Hall, a Library, a Buddhist Academy, a Residence for Monks, One Hundred stupas, a Mani Sutra Road and other buildings.
+
+With the support of believers in the ten directions, in the near future, Tuole Monastery will be presented with a brand-new appearance.
 
 May all sentient beings be freed from the sea of ​​misery and be safe forever!
 
-(Disciples arranged in Shenzhen according to the recording of Master Ngawang Gyatso Vajra Guru)
+(Arranged by followers in Shenzhen according to the recording of Master Ngawang Gyatso Vajra Guru)
 
-EndLogo
+![EndLogo](/images/endlogo.png)
+
+This mantra is set in the scriptures to eliminate the sin of mistaken crossing
 

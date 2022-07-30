@@ -69,7 +69,7 @@ While cultivating the younger monks' talents, the master never forgets to learn 
 
 2020 Niánchū, xīnguān fèiyán liúxíng qíjiān, shàng shī xiānhòu liǎng cì bìguān, wéi tiānxià cāngshēng niàn sòng bǎi wàn yè yī fú mǔ xīn zhòu, bǎi wàn liù zì zhēnyán, qí qǐng zhū fú púsà jiāchí, bìngyì zǎo chú.
 
-At the beginning of 2020, during the COVID-19 pandemic, the master went into retreat twice and recited the Mantra of Parnashavari a million times, and a million times the Six-Character Great Bright Mantra (Auṃ maṇi padme hūṃ), and prayed to all the Buddhas and Bodhisattvas, for all the people of the world.
+At the beginning of 2020, during the COVID-19 pandemic, the master went into retreat twice and recited the Mantra of Parnashavari a million times, and a million times the Six-syllable Great Bright Mantra (Auṃ maṇi padme hūṃ), and prayed to all the Buddhas and Bodhisattvas, for all the people of the world.
 
 **雍增法王示寂前，曾付嘱阿旺上师：“你要将一生投入到广转法轮、弘法利生的事业中去。”**
 
@@ -105,7 +105,7 @@ Master Ah Wang was deeply influenced by the 10th Panchen Lama and advocated that
 
 Zài cǐ jīchǔ shàng, zhújiàn xíngchéngle fójiào de chuánchéng, lì jī, xiūxíng, hóngyáng děng sīxiǎng tǐxì: Chuánchéng shàng jiélì zhèngběn hù běn, bǎohù hǎo fǎ mài de qīngjìng jí chúncuì, bǐngchéng jiàoyì, bù jiā zá rènhé wúguān de lǐjiě, jiàoshòu, bù shě běn qiú mò, suíbōzhúliú.
 
-On this basis, an ideological system of inheritance, strong foundation, practice, and promotion of Buddhism has gradually formed: In knowledge transmission, it strives to preserve the original texts, protect their purity and purity of the Dharma lineage, and promote the teachings without adding any unrelated understanding or commentary. This work is unending and continuous.
+On this basis, an ideological system of inheritance, strong foundation, practice, and promotion of Buddhism has gradually formed: In knowledge transmission, it strives to preserve the original texts, protect their purity and the purity of the Dharma lineage, and promote the teachings without adding any unrelated understanding or commentary. This work is unending and continuous.
 
 **在世间的立基上，主张佛教要中国化、时代化、大众化、实践化。**
 
@@ -117,7 +117,7 @@ We think, that from a worldly point of view, Buddhism should be adapted for Chin
 
 Xiūxíng shàng, yào xiǎn zōng hé mìzōng xiāng jiéhé, jiàolǐ yǔ shí xiū xiāng jiéhé.
 
-In Buddhist practice, exoteric Buddhism and esoteric Buddhism should be combined, and these teachings should also joined with practical cultivation.
+In Buddhist practice, exoteric Buddhism and esoteric Buddhism should be combined, and these teachings should also be combined with practical cultivation.
 
 **佛法的弘扬上，要守正创新、与时俱进、应机说法，既要严守传承、教理，又要在传播方式上不断创新，所说所教还要随缘，灵活、契机，通俗入世。**
 
@@ -159,7 +159,7 @@ This series of books analyzes many problems of modern life in easy-to-understand
 
 Zài “zhìhuì yǔlù” yī shū zhōng, shàng shī yòng fēngqù shēngdòng de yǔyán, yóuqiǎn rù shēn, zhídǐ rénxīn, yǐnqǐ rénmen línghún shēn chǔ de gòngmíng.
 
-In the book "Quotations of Wisdom", the master uses witty and clear language, from simple examples to more profound ideas, resonating with the depths of their souls.
+In the book "Quotations of Wisdom", the master uses witty and clear language, from simple examples to more profound ideas, resonating with the depths of their being.
 
 
 **阿旺上师说，不管是南传、汉传还是藏传佛教，都是佛陀的正法，都在讲解脱、成佛，都是非常殊胜的。**
