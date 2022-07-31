@@ -109,25 +109,25 @@ The compassion of Buddhism brings harmonious coexistence to human beings.
 
 **2. Liberation**
 
-Ordinary religions may promise that practitioners can go to heaven in their teachings, but they do not talk about complete liberation.
+Ordinary religions may promise that practitioners can go to heaven in their teachings, but they do not talk about ultimate or complete liberation.
 
-Buddhist practitioners can achieve liberation through practice.
+Buddhist practitioners can attain liberation through practice.
 
 The method of liberation from birth, old age, sickness and death is only available in Buddhism, not in any other religion.
 
 **3. Cause and effect**
 
-The teachings of most religions hold that the universe and everything that is characteristic of Buddhism was created by one Lord.
+The teachings of most religions hold that the universe and everything that is characteristic of Buddhism was created by one Lord or God.
 
 Buddhism teaches the theory of cause and effect, that is, whatever kind of cause you create, that kind of effect will be produced in return.
 
-Good is rewarded with good, evil is rewarded with evil, and both suffering and happiness are the results of good and evil karma.
+Good is rewarded with good, evil is rewarded with evil, and both suffering and happiness are the results of constructive and destructive karma.
 
 There is no savior, one's own destiny should be changed by oneself.
 
 Stop worrying.
 
-General religions advocate the good and the evil, but the methods for dealing with afflictions are incomplete.
+General religions talk about good and evil, but the methods for dealing with suffering are incomplete.
 
 **4. End of Suffering**
 
@@ -137,14 +137,26 @@ Learning Buddhism can bring an end to any troubles you may have.
 
 Other religions only talk about faith and not logic, while Buddhism talks about logic and truth.
 
-The Buddha said: Bhikkhus or wise people should contemplate my words well, like refining, cutting and grinding gold.
+The Buddha said: 
+
+>
+>O bhikshus and wise men, just as a goldsmith would 
+>
+>test his gold by burning, cutting, and rubbing it, so
+>
+>you must examine my words and accept them, but not
+>
+>merely out of reverence for me.
+>
+>–-  Ghanavyuha sutra (Sutra of Dense Array)
+>
 
 **6. The Ultimate**
 
 All religions use reasoning to some degree, but not the end. Buddhism is a knowledge of the ultimate, which is the biggest difference between Buddhism and other religions. The truth of what the Buddha said can help us reach liberation.
 
 
-The basic laws of all things in the universe, the origin of life, and the incredible phenomena of cultural development have been fully explained, including social phenomena that cannot be explained by modern science, which are clearly expressed in Buddhist scriptures. 
+The basic laws of all things in the universe, the origin of life, and the incredible phenomena of cultural development have been fully explained, including social phenomena that cannot be explained by modern science are clearly expressed in Buddhist scriptures. 
 
 In practical terms, the ultimate liberation, the ultimate emptiness, the ultimate cause and effect, and the ultimate perfection all fully demonstrate that Buddhism is a science that can achieve ultimate perfection through practice and enlightenment.
 
@@ -164,21 +176,21 @@ Complete training curriculum
 
 **1. Teaching is complete**
 
-Buddha's teachings are divided into Theravada / Hinayana and Mahayana. Mahayana has both the sutra method and the tantra methods. Now there are three major schools of Buddhism, referred to as Southern Buddhism, Chinese Buddhism and Tibetan Buddhism. Southern Buddhism is the method of Theravada, it does not have the methods of Mahayana. Chinese Buddhism is still dominated by Mahayana Buddhism, but it does not have the four continuations of Tantric Buddhism. The teachings of Tibetan Buddhism include the Theravada method, the Mahayana Sutra method, and the Vajrayana Tantra method of perfection.
+Buddha's teachings are divided into Theravada / Hinayana and Mahayana. Mahayana has both the sutra method and the tantra methods. There are three major schools of Buddhism, referred to as Southern Buddhism, Chinese Buddhism and Tibetan Buddhism. Southern Buddhism is the method of Theravada, it does not have the methods of Mahayana. Chinese Buddhism is still dominated by Mahayana Buddhism, but it does not have the four continuations of Tantric Buddhism. The teachings of Tibetan Buddhism include the Theravada method, the Mahayana Sutra method, and the Vajrayana Tantra methods of perfection.
 
 **2. The lineage is complete**
 
-Except for the sutras, most of the traditions of Southern Buddhism and Chinese Buddhism have been cut off. However, the inheritance of the vows, oral transmissions, guidance, empowerments, etc. of Tibetan Buddhism have not been broken, and the lineage is pure and complete.
+Except for the sutras, most of the traditions of Southern Buddhism and Chinese Buddhism have been cut off from their sources. However, the transmission lineage of precepts, oral transmissions, guidance, empowerments, etc. of Tibetan Buddhism are unbroken, and the lineage is pure and complete.
 
 **3. The practice is complete**
 
-Southern Buddhism cultivates the vows for liberation and the thirty-seven paths. Chinese Buddhism cultivates the vows of separation and liberation, the vows of Bodhisattvas, compassion, bodhicitta, and six degrees of perfection. Tibetan Buddhist practice is complete: the external practice of the Hinayana method, the internal practice of the Mahayana Sutra method and the Tantric practice of the four tantras, and the practice of the three vehicles of special liberation vows, Bodhisattva vows and Tantric vows.
+Southern Buddhism cultivates the vows for liberation and the thirty-seven paths. Chinese Buddhism cultivates the vows of separation and liberation, the vows of Bodhisattvas, compassion, bodhicitta, and six degrees of perfection. Tibetan Buddhist practice is complete: the external practice of the Hinayana method, the internal practice of the Mahayana Sutra method and the Tantric practice of the four classes of tantra, and the practice of the three vehicles of special liberation vows, Bodhisattva vows and Tantric vows.
 
 **4. Well preserved**
 
 When Buddhism spread to Southeast Asian countries, all countries integrated Buddhism into their own local culture, and Buddhism was more or less influenced by local culture. When Buddhism entered China, Taoist and Confucian culture were highly developed, so Han culture influenced Buddhism, and Buddhism there became Han-style Buddhism. When Buddhism was introduced to Tibet, there was no special culture formed in Tibet, so Tibetan culture evolved on the basis of mature Buddhism. Likewise, the Tibetan language is also formed on the basis of Sanskrit. Therefore, Tibetan Buddhism has preserved the original teachings of the Buddha of more than 2,500 years ago.
 
-**5. The course is complete**
+**5. The course of education is complete**
 
 The courses of Buddhist study include sutras, tantras, and treatises. The Hinayana and the sutra method taught by the Buddha himself are called sutras. The tantra method taught by the Buddha is called continuation.
 
@@ -186,9 +198,9 @@ The explanations of the sutras and tantras preached by the Buddhas, by Bodhisatt
 
 Tibetan Buddhism generally studies the sutras first, and then the tantras, because the content of the tantras is very deep and broad, it is easier to understand the content of the tantras having studied the sutras first.
 
-Tibetan Buddhism mainly studies the Five Great Treatises, "The Great Treatise on the Stages of the Path to Enlightenment", "The Esoteric Essays on the Stages of Tantric Buddhism" and so on. A treatise contains references to a lot of sutras, and if you study a treatise well, you will also become familiar with a lot of sutras. Therefore, Tibetan Buddhism first studies the theories, then the scriptures, and then the continuations (the tantras).
+Tibetan Buddhism mainly studies the Five Great Treatises, "The Great Treatise on the Stages of the Path to Enlightenment", "The Esoteric Essays on the Stages of Tantric Buddhism" and so on. A treatise contains references to a lot of sutras, and if you study a treatise well, you will also become familiar with many sutras. Therefore, Tibetan Buddhism first studies the theories, then the scriptures, and then the continuations (the tantras).
 
-Tibetan Buddhism has the five perfections, pure lineage, and the complete sequence. At the same time, it integrates the essence of 84,000 dharmas, so it can cure the 84,000 kinds of troubles of modern people, and it is very suitable for contemporary lay people to practice.
+Tibetan Buddhism has the five perfections, pure lineage, and the complete sequence of education. At the same time, it integrates the essence of 84,000 dharmas, so it can cure the 84,000 kinds of troubles of modern people, and it is very suitable for contemporary lay people to practice.
 
 
 **Table of contents**
@@ -204,12 +216,12 @@ Vajrasattva
 
 Prostrations
 
-Introduction to Tuole Monastery
+##### [Introduction to Tuole Monastery]({{< relref "#intro-tuole" >}})
 
 
 ![宗喀巴师徒三尊](/images/tsongkhapa3apprentices.png)
 
-Tsongkhapa master and apprentice three statues
+Master Tsongkhapa and main disciples
 
 ![皈依境](/images/refuge.png) 
 
@@ -227,7 +239,7 @@ Four Refuges
 >
 (Sanskrit)
 
-Namo Gollumbe
+Namo Guru Beh
 
 Namo Buddhaya
 
@@ -243,13 +255,13 @@ Saṃghaṃ śaraṇaṃ gacchāmi
 
 (Tibetan)
 
-Lama Rajaschi
+LAMA LA KYABSUM CHI-O
 
-#### སངས་རྒྱས་ཆོས་དང་ཚོགས་ཀྱི་མཆོག་རྣམས་ལ།
+SANGGYE LA KYABSUM CHI-O
 
-Sanjay Rajaschi
+CHOE LA KYABSUM CHI-O
 
-Sang-gye cho-dang tsog-kyi cho-nam-la
+GEDUN LA KYABSUM CHI-O
 
 
 

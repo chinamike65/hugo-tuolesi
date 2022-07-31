@@ -61,7 +61,7 @@ Practice requires an ordered sequence of steps
 
 ##### [Gelugpa Prosperity Wishes]({{< relref "#gelug-prosperity" >}})
 
-##### [Introduction to Tuole Temple]({{< relref "#intro-tuole" >}})
+##### [Introduction to Tuole Monastery]({{< relref "#intro-tuole" >}})
 
 
 
