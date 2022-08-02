@@ -311,7 +311,7 @@ Before the Tang Dynasty, both Mahayana and Tantric Buddhism were inherited.
 
 After the Tang Dynasty, the inheritance is still continuing is Tantra.
 
-The Four Refuges we are learning today were first passed on from Shakyamuni Buddha to Manjushri, then to Nagarjuna, then to Yuecheng Bodhisattva, then to Venerable Atisha, and then to Master Tsongkhapa, it was passed on to Kezhujie, the eldest disciple of Master Tsongkhapa, then to Dharma King Rako Rinpoche, then to Dharma King Yongzeng, and then to Guru Ngawang Gyatso Vajrayana (the seventh master of Ngawang). The teachers are all disciples of Rako Rinpoche).
+The Four Refuges we are learning today were first passed on from Shakyamuni Buddha to Manjushri, then to Nagarjuna, then to Yuecheng Bodhisattva, then to Venerable Atisha, and then to Master Tsongkhapa, it was passed on to Khedrup Je, the eldest disciple of Master Tsongkhapa, then to Dharma King Rako Rinpoche, then to Dharma King Yongzeng, and then to Guru Ngawang Gyatso Vajrayana (the seventh master of Ngawang). The teachers are all disciples of Rako Rinpoche).
 
 Tantric traditions include empowerments, oral transmission, guidance, rituals, and so on.
 
@@ -353,7 +353,7 @@ The Hinayana refers to the Southern Tradition, and there is no Mahayana manifest
 
 The Han traditions are mainly Mahayana, and there are also some esoteric methods.
 
-There are eight major sects of Chinese Buddhism: Lu Sect, Pure Land Sect, Consciousness-only Sect, San Lun Sect, Huayan Sect, Zen Sect, Tiantai Sect, and Tantric Sect.
+There are eight major schools of Chinese Buddhism: Lu school, Pure Land school, Consciousness-only school, San Lun school, Huayan school, Zen school, Tiantai school, and Tantric school.
 
 Tibetan tradition is a combination of explicit and secret.
 
@@ -562,7 +562,7 @@ Their function is to prevent complete enlightenment.
 
 ---
 
-The bodhisattvas of the second ground cut off the great afflictions and the hindrances of knowledge, the bodhisattvas of the third ground cut off the great afflictions and the hindrances of the knowledge, the bodhisattvas of the fourth ground cut off the great and small afflictions and the hindrances of the knowledge, and the bodhisattvas of the fifth ground cut off the great afflictions and the hindrances of the knowledge. The bodhisattvas of the sixth ground cut off the hindrances of middle afflictions and the hindrances of knowledge, the bodhisattvas of the seventh ground cut off the hindrances of medium and small afflictions and the hindrances of knowledge, the bodhisattvas of the eighth ground cut off the hindrances of small and great afflictions and the hindrances of knowledge, and the bodhisattvas of the nine grounds cut off the hindrances of small and medium afflictions and hindrances of knowledge. , The Bodhisattvas of the Ten Grounds cut off the obstacles of small afflictions and obstacles of knowledge.
+The bodhisattvas of the second stage cut off the great afflictions and the hindrances of knowledge, the bodhisattvas of the third stage cut off the great afflictions and the hindrances of the knowledge, the bodhisattvas of the fourth stage cut off the great and small afflictions and the hindrances of the knowledge, and the bodhisattvas of the fifth stage cut off the great afflictions and the hindrances of the knowledge. The bodhisattvas of the sixth stage cut off the hindrances of middle afflictions and the hindrances of knowledge, the bodhisattvas of the seventh stage cut off the hindrances of medium and small afflictions and the hindrances of knowledge, the bodhisattvas of the eighth stage cut off the hindrances of small and great afflictions and the hindrances of knowledge, and the bodhisattvas of the nine stages cut off the hindrances of small and medium afflictions and hindrances of knowledge. , The Bodhisattvas of the Ten Grounds cut off the obstacles of small afflictions and obstacles of knowledge.
 
 2. The Qualities of an Arhat
 
@@ -796,7 +796,7 @@ The ultimate truth of Buddhas and Bodhisattvas is emptiness and profound meaning
 
 Make the right credible theory who else but you
 
-The Eighth Karmapa, leader of the Karma Kagyu sect, praised:
+The Eighth Karmapa, leader of the Karma Kagyu school, praised:
 
 When the evil winds of the Northern Buddha's Sacred Religion invaded and declined
 
@@ -902,7 +902,7 @@ This is the third condition of being a guru.
 
 Buddhism now includes Tibetan Buddhism, Chinese Buddhism, and Southern Buddhism.
 
-All the inheritances of Tibetan Buddhism in these three sects have been preserved relatively intact from the Buddha Shakyamuni to the present, and the transmission lineage has not been broken.
+All the inheritances of Tibetan Buddhism in these three schools have been preserved relatively intact from the Buddha Shakyamuni to the present, and the transmission lineage has not been broken.
 
 Every scripture has a lineage, a lineage of empowerment, a lineage of sermons, and a lineage of oral transmission.
 
@@ -910,7 +910,7 @@ With the lineage, you can get the blessings of the Dharma, and there will be no 
 
 Lineage is very important, for example: Dharma is a mobile phone, lineage is a signal, inheritance is a very important condition.
 
-Among the three major sects, many of the lineage paths of Chinese Buddhism have been broken, as have those of Southern Buddhism.
+Among the three major schools, many of the lineage paths of Chinese Buddhism have been broken, as have those of Southern Buddhism.
 
 But the lineage of Tibetan Buddhism has never been broken, and the lineage is very complete.
 
@@ -976,11 +976,11 @@ Whether you can get the blessings of the Buddhas and Bodhisattvas depends on whe
 
 Guru Yoga varies from school to school.
 
-Guru Yoga is a very special method unique to Tantric Buddhism. Only Tibetan Buddhism among the three major sects of Sutra and Theravada do not have Guru Yoga.
+Guru Yoga is a very special method unique to Tantric Buddhism. Only Tibetan Buddhism among the three major schools of Sutra and Theravada do not have Guru Yoga.
 
 Guru Yoga of the Nyingma School of Tibetan Buddhism is the visualization that Guru Rinpoche is indistinguishable from one's own Guru.
 
-The Kagyu sect also has Guru Yoga, where the Masters Vajrapani or Marpa are no different from their own masters.
+The Kagyu school also has Guru Yoga, where the Masters Vajrapani or Marpa are no different from their own masters.
 
 Guru Yoga of the Gelugpa is a visualization that Tsongkhapa is indistinguishable from one's root guru.
 
@@ -1040,7 +1040,7 @@ Before Nagarjuna Bodhisattva passed away, he called his disciples to him and tol
 
 The eldest disciple of Nagarjuna Bodhisattva, Chandrakirti Bodhisattva, also vowed to be a disciple of Master Tsongkhapa.
 
-The eldest disciple of Master Tsongkhapa, Kezhujie, is the reincarnation of the Chandrakirti Bodhisattva.
+The eldest disciple of Master Tsongkhapa, Khedrup Je, is the reincarnation of the Candrakirti Bodhisattva.
 
 Many practitioners know prophecies regarding Tsongkhapa are not limited to one or two lines of Buddhist scriptures, nor even to just one or two sutras.
 
@@ -1054,7 +1054,7 @@ He said: I will now using the Kalachakra calendar to calculate that Tsongkhapa w
 
 So he sent his eldest disciple,  Choje Dondrub Rinchen, to the Amdo area and told him: 
 
-"Dondrub Rinchen, go to Amdo, and Tsongkhapa, the incarnation of Manjushri, will be born soon.
+"Dondrub Rinchen, go to Amdo, where Tsongkhapa, the incarnation of Manjushri, will be born soon.
 
 Once he is born, you will give him my legal name, Lobsang Drakpa.
 
@@ -1064,13 +1064,13 @@ Then Dondrub Rinchen went from Lhasa to Amdo (now Quge Mountain near the Ta'er M
 
 After a period of retreat, Master Tsongkhapa was really born.
 
-It was while he was in retreat one morning to cultivate the great mighty virtue, and the great mighty virtue appeared to him and said, "I am going to be born today, you come and visit me.
+It was while he was in retreat one morning to cultivate the great Yamantaka, and the great Yamantaka appeared to him and said, "I am going to be born today, you come and visit me."
 
-"On that day, Master Tsongkhapa was born.
+On that day, Master Tsongkhapa was born.
 
 When Master Tsongkhapa was born, as soon as he was born, the umbilical cord was cut, and a sandalwood tree grew where a drop of blood fell.
 
-This sandalwood tree has 100,000 leaves, and each leaf has a Buddha.
+This sandalwood tree has 100,000 leaves, and each leaf holds a Buddha image.
 
 Only Master Tsongkhapa has this kind of auspicious appearance, and no other great siddhis have it.
 
@@ -1078,19 +1078,19 @@ This is one of the eighteen unique characteristics of Master Tsongkhapa, and it 
 
 After the birth of Master Tsongkhapa, Dondrub Rinchen gave him the Dharma name "Lobsang Drakpa". He received the five practitioner vows at the age of three, became a monk at the age of seven, studied various scriptures, and went to Lhasa in Tibet at the age of sixteen.
 
-At that time, there were many sects in Lhasa, such as Sakya, Nyingma, Kagyu, Kadam, Joonang and so on.
+At that time, there were many schools in Lhasa, such as Sakya, Nyingma, Kagyu, Kadam, Joonang and so on.
 
-Master Tsongkhapa learned the Dharma of various schools, and studied with more than forty masters who were very distinguished in each school at that time.
+Master Tsongkhapa learned the teachings of various schools, and studied with more than forty masters who were very distinguished in each school at that time.
 
-He learned all the teachings of Nyingma from the master of Nyingma.
+He learned all the teachings of Nyingma from the masters of Nyingma.
 
-He learned all the methods of the Kagyu sect with the teachers of the Kagyu sect.
+He learned all the methods of the Kagyu school with the teachers of the Kagyu school.
 
-He learned all the methods of each sect from the masters of the Sakya, Kadam, Joonang and other sects.
+He learned all the methods of each school from the masters of the Sakya, Kadam, Joonang and other schools.
 
-After learning it well, Master Tsongkhapa studied these dharmas, and combined the purest, most complete lineages, the most noble, and the most essential of the sects to create a new school - the Gelugpa School of the Yellow Hat.
+After learning it well, Master Tsongkhapa studied these dharmas, and combined the purest, most complete lineages, the most noble, and the most essential of all the schools to create a new school - the Gelugpa School of the Yellow Hat.
 
-Gelugpa School of the Yellow Hat has all the methods of other sects, but some of the other sects do not have teachings from the Gelugpa School, such as the thirteen Dawei De Dharma doors, Dawei De personally empowered Tsongkhapa, this Dharma door is only found in the Gelugpa School. The other schools don't have this.
+The Gelugpa School of the Yellow Hat has all the methods of other schools, but some of the other schools do not have teachings from the Gelugpa School, such as the Thirteen-Deity Yamantaka Dharma doors, Yamantaka personally empowered Tsongkhapa, this Dharma door is only found in the Gelugpa School. The other schools don't have this.
 
 Before Master Tsongkhapa founded the Gelugpa School, practitioners in Tibetan areas were more chaotic in terms of vows, and there were many practitioners who did not observe vows or who were not pure.
 
@@ -1102,7 +1102,7 @@ At the same time, a lot of effort has been put into the discipline, so the disci
 
 In the past, the study of the five major theories and the study of the scriptures were carried out by the Sakya and Kadam schools, but gradually the Sakya school itself did not have this method, and later it became the method of the Gelug school.
 
-Now all the sects who want to study the debating of scriptures go to the monasteries of the Gelug sect to study.
+Now all the schools who want to study the debating of scriptures go to the monasteries of the Gelug school to study.
 
 Master Tsongkhapa is very special and perfect in terms of vows, learning, discipline, and right view.
 
@@ -1112,19 +1112,19 @@ Even the very noble and accomplished Master Marpa is not as good as Master Tsong
 
 Because, first, the vows are not as good as Master Tsongkhapa.
 
-Master Marpa has five vows at home, and Master Tsongkhapa is a monk. Second, the inheritance is not as good as that of Master Tsongkhapa.
+Master Marpa took the five lay practitioner vows, and Master Tsongkhapa was a monk. Second, the transmission lineage is not as good as that of Master Tsongkhapa.
 
 Master Tsongkhapa has various lineages.
 
 Master Tsongkhapa received the entire lineage of Guru Marpa, as well as the lineage of many other schools, such as the Sakya and Nyingma schools.
 
-Master Tsongkhapa has the lineage that Guru Marpa does not have.
+Master Tsongkhapa has lineage that Guru Marpa does not have.
 
-This time when we talk about Master Tsongkhapa's guru yoga, we must visualize that Master Tsongkhapa is indistinguishable from our own guru, so that we can not only receive the blessing of Master Tsongkhapa, but also the blessings of the Buddhas and Tathagatas.
+This time when we talk about Master Tsongkhapa's Guru Yoga, we must visualize that Master Tsongkhapa is indistinguishable from our own guru, so that we can not only receive the blessing of Master Tsongkhapa, but also the blessings of the Buddhas and Tathagatas.
 
 Reciting the prayers of Master Tsongkhapa means reciting the prayers of the Buddhas and Tathagatas, because Master Tsongkhapa is the incarnation of the Buddhas and Tathagatas.
 
-Reciting the mantra of Master Tsongkhapa means reciting the mantra of the four deities, because Master Tsongkhapa is the incarnation of the four deities.
+Reciting the mantra of Master Tsongkhapa means reciting the mantra of the Four Deities, because Master Tsongkhapa is the incarnation of the Four Deities.
 
 After Master Tsongkhapa passed away, there were many incarnations. 
 There are five recognized incarnations: 
@@ -1133,23 +1133,23 @@ one incarnation in the Land of Ultimate Bliss;
 
 one incarnation in the Pure Land of the Dakini;
 
-one incarnation in the Pure Land of Great Mighty Virtue; 
+one incarnation in the Tushita Maitreya Temple,Pure Land of Maitreya Boddhisattva; 
 
 one incarnation in the Pure Land of Manjushri.
 
-When we practice Tsongkhapa's guru yoga these days, we pray to one of these five incarnations.
+When we practice Tsongkhapa's Guru Yoga these days, we pray to one of these five incarnations.
 
 Which one is the easiest to attain? The incarnation of Master Tsongkhapa in the Tusita Heaven of Maitreya is the easiest for us to ask for.
 
 What method should I use to invite? First of all, visualize the Tusita Heaven in the distant sky, visualize Maitreya’s Pure Land in the Tusita Heaven, and visualize Maitreya Buddha in the Maitreya Hall. Maitreya Buddha is sitting on a throne. Sitting there like the above is called the sitting method of growth.
 
-Maitreya Buddha's mind visualizes the Ruyi knot (the Ruyi knot is like a Chinese knot), and inside the Ruyi knot visualizes the three masters and disciples of Tsongkhapa: Tsongkhapa, Jia Caojie, and Kezhujie.
+Maitreya Buddha's mind visualizes the Ruyi knot (the Ruyi knot is like a Chinese knot), and inside the Ruyi knot visualizes the master and two disciples of Tsongkhapa: Tsongkhapa,  Gyaltshap, and Khedrup Je.
 
-Master Tsongkhapa represents Manjusri, Jia Caojie represents Guanyin, Kezhujie represents Vajrapani, and the three masters and apprentices represent the three masters.
+Master Tsongkhapa represents Manjusri, Gyaltshap represents Guanyin, Khedrup Je represents Vajrapani, and the master and two disciples represent the three masters.
 
 Just visualize the wish-fulfilling gem in Maitreya Buddha's heart with the three masters and disciples of Tsongkhapa in it, and then greet him like this in his heart: 
 
-The three masters and disciples of Tsongkhapa, to accumulate blessings for all beings in the six realms, and to promote the Dharma, I welcome you. Come here, please, into the sky ahead of myself.
+The master and two disciples of Tsongkhapa, to accumulate blessings for all beings in the six realms, and to promote the Dharma, I welcome you. Come here, please, into the sky ahead of myself.
 
 Just visualize the three figures of Tsongkhapa and his disciples coming out of Maitreya Buddha's wishful gem and sitting on three white clouds.
 
@@ -1163,25 +1163,26 @@ Here begins the interpretation of the Guru Yoga text.
 
 2. Welcoming Master Tsongkhapa:
 
-Tusita's heart
+From the heart of the Lord of the Gaden devas (Maitreya Buddha) emerges a brilliant white cloud, like a great mass of fresh yoghurt.
 
-Like a cloud of new cheese
+Atop sits Tsongkhapa all knowing, King of Dharma; 
 
-All-wise Dharma King virtuous
+We request your coming to this place along with your great disciples.
 
-May the disciples come here
 
-"The heart of the master of the Tusita Heavens", the master of the Tusita Heaven is Maitreya Buddha.
+"From the heart of the Lord of the Gaden devas", the master of the Tushita Heaven is Maitreya Buddha.
 
-"Blooming like a cloud of new cheese, the Dharma King of all wisdom is called wise", wise
+"a brilliant white cloud, like a great mass of fresh yoghurt.
 
-It is called the Dharma name of Master Tsongkhapa, and the name is Lobsang Drapa in Tibetan.
+Atop sits Tsongkhapa all knowing, King of Dharma; ". Great Wisdom
 
-"May the same disciples come here." At this time, Tsongkhapa's three disciples
+H is called by the Dharma name of Master Tsongkhapa, and the name is Lobsang Drakpa in Tibetan.
 
-Zun sat on the top of the three white clouds and floated into the air in front of him.
+"along with your great disciples." At this time, Tsongkhapa's two disciples
 
-Three, seven offerings
+They sat on the top of the three white clouds and floated into the air in front of him.
+
+3. Seven-branch Offerings
 
 (1) Long Life Prayer
 
@@ -1193,7 +1194,7 @@ May this faith prevail over the field of blessing
 
 Live for a hundred kalpas
 
-In order to carry forward the Dharma, I pray that the three masters and disciples of Tsongkhapa will live on the throne of lions that I offer for hundreds of kalpas.
+In order to carry forward the Dharma, I pray that the Master and two  disciples of Tsongkhapa will live on the throne of lions that I offer for hundreds of kalpas.
 
 You should know the kind of throne carried by the eight lions. The eight lions represent the eight freedoms. There is a lotus on the throne. The lotus represents renunciation. In the middle of the lotus is a sun disc. There is a moon disc on the sun plate, and the moon disc represents the compassion, bodhicitta and convenient method of the three masters and disciples of Tsongkhapa.
 
@@ -1563,7 +1564,7 @@ We should follow the merits of Master Xi Tsongkhapa, such as cultivating, lectur
 
 At that time, there were more than 660,000 monks in the six major monasteries in Tibet, and Master Tsongkhapa was the most accomplished master in the six major monasteries.
 
-Master Tsongkhapa founded the Gelug Sect of the Yellow Hat after Wen Sixiu was completed.
+Master Tsongkhapa founded the Gelug school of the Yellow Hat after Wen Sixiu was completed.
 
 All are welcome.
 
@@ -2237,11 +2238,11 @@ There is a place in Lhasa called Vokacheron, where Master Tsongkhapa once retrea
 
 At that time, he made Mandala offerings and used the Bodhi Meridian on his right hand to rub the Mandala Plate until the skin around the Bodhi Meridian was completely broken and bleeding, and even the bones inside could be seen, to this extent.
 
-Master Tsongkhapa made Mandala offerings a million times, accumulating a lot of good fortune, and dedicating this blessing to the disciples who studied with Master Tsongkhapa in the Gelug Sect and the guardian of Gelug Teachers of teaching.
+Master Tsongkhapa made Mandala offerings a million times, accumulating a lot of good fortune, and dedicating this blessing to the disciples who studied with Master Tsongkhapa in the Gelug school and the guardian of Gelug Teachers of teaching.
 
 Because the blessing of Tsongkhapa's devotion is very, very large, the Gelugpa is usually richer.
 
-Gelug sect monasteries, Gelug sect disciples, and Gelug sect guardians are usually relatively wealthy, which is somewhat different from other sects.
+Gelug school monasteries, Gelug school disciples, and Gelug school guardians are usually relatively wealthy, which is somewhat different from other schools.
 
 This is the reason why Master Tsongkhapa's Mandala offering  was blessed.
 
@@ -2956,7 +2957,7 @@ The Vajrasattva we practice is a deity belonging to the Supreme Yoga Division.
 
 The inheritance of Vajrasattva of double cultivation is only available in the Gelug School, but not in other schools.
 
-This was passed down by Manjushri to Master Tsongkhapa himself, and Master Tsongkhapa passed it on to Kezhujie, and it was passed down gradually. Therefore, this inheritance is only available to the Gelug School.
+This was passed down by Manjushri to Master Tsongkhapa himself, and Master Tsongkhapa passed it on to Khedrup Je, and it was passed down gradually. Therefore, this inheritance is only available to the Gelug School.
 
 The Gelug School has the purest and most complete lineage among the other schools, while the Gelug School has some lineages that the other schools do not have.
 
@@ -2986,11 +2987,11 @@ Therefore, whether it is the Kadam School or the Gelug School, they should recit
 
 If you go to sleep without reciting, your masters will say, "You have no sin? You have no karma? You just sleep like this?" Very strict.
 
-The merits of the Thirty-Five Buddhas of Repentance texts are explained in Jia Caojie's writings, and the merits are extremely great.
+The merits of the Thirty-Five Buddhas of Repentance texts are explained in  Gyaltshap's writings, and the merits are extremely great.
 
 Therefore, Master Tsongkhapa attaches great importance to the Thirty-Five Buddhas of Repentance in the aspect of eliminating karmic obstacles in the Dharma.
 
-In the tantric sect, there are four deities in the esoteric sect. In the deity of Shibu, the mantra of the Buddha of the Buddha and the heart mantra of Guanyin Bodhisattva are the most important ones in the deity of Shibu. It can only eliminate the relapse karma below the Ministry of affairs, and cannot eliminate the karma of relapsed karma above the deity of the Ministry of affairs.
+In the tantric school, there are four deities in the esoteric school. In the deity of Shibu, the mantra of the Buddha of the Buddha and the heart mantra of Guanyin Bodhisattva are the most important ones in the deity of Shibu. It can only eliminate the relapse karma below the Ministry of affairs, and cannot eliminate the karma of relapsed karma above the deity of the Ministry of affairs.
 
 Because Guanyin Bodhisattva is the deity of Shibu.
 
@@ -3700,7 +3701,7 @@ This is a courtesy.
 
 [Back to Contents]({{< relref "#toc-back" >}})
 
-Tuole Monastery is a famous monastery belonging to the Gelug Sect of Tibetan Buddhism, located in the basin between the three grasslands of Muguitan, Balegetan and Dutan in Guinan County, Hainan Tibetan Autonomous Prefecture, Qinghai Province.
+Tuole Monastery is a famous monastery belonging to the Gelug school of Tibetan Buddhism, located in the basin between the three grasslands of Muguitan, Balegetan and Dutan in Guinan County, Hainan Tibetan Autonomous Prefecture, Qinghai Province.
 
 The monastery is surrounded by mountains, facing Baiguan Pilgrimage Mountain, backed by White Dragon Mountain, flanked by Dragon Mountain on the left and Phoenix Mountain on the right.
 
@@ -3724,7 +3725,7 @@ In 2004, Guru Ngawang Gyatso began to rebuild the Tuole Monastery.
 
 The pure precepts and perfect teachings of Tuole Monastery attract more and more monks to join.
 
-Although this is a Gelugpa monastery, monks from various sects such as Nyingma, Kagyu, Sakya, and Joning have also gathered here to study and learn from each other.
+Although this is a Gelugpa monastery, monks from various schools such as Nyingma, Kagyu, Sakya, and Joning have also gathered here to study and learn from each other.
 
 Regarding the origin of the monastery, there have been many prophecies by the sages of the past dynasties.
 
@@ -3782,7 +3783,7 @@ There is a Guanyin statue in the Tantric Hall, about two feet high, which contai
 
 In addition, there are three Buddha statues of Tsongkhapa in the temple, which contain the relics of Tsongkhapa's body, which are extremely special.
 
-Buddhist scriptures: There are golden scrolls of Prajna Sutra in the collection of Tuole Monastery, several chapters of Buddhist scriptures copied by Venerable Jia Caojie (one of the two disciples of Master Tsongkhapa), and the golden character "Great Prajna Sutra" inherited by Ngawang Gyatso's family.
+Buddhist scriptures: There are golden scrolls of Prajna Sutra in the collection of Tuole Monastery, several chapters of Buddhist scriptures copied by Venerable Gyaltshap (one of the two disciples of Master Tsongkhapa), and the golden character "Great Prajna Sutra" inherited by Ngawang Gyatso's family.
 
 Relics: The Tuole Monastery collects the relics of Sakyamuni Buddha, the bone relics of the Bodhisattva, and the bone relics of the Venerable Mujianlian.
 
