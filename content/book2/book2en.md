@@ -212,7 +212,7 @@ Guru Yoga
 
 Mandala
 
-Vajrasattva
+##### [Vajrasattva]({{< relref "#vajra-sattva" >}})
 
 Prostrations
 
@@ -297,7 +297,7 @@ The bodhisattva vows have eighteen fundamental vows and forty-six additional vow
 
 If you only understand Sutra and don't understand Tantra, you will slander Tantra; if you only understand Tantra but don't understand Sutra, you will slander Sutra.
 
-Not understanding the Dharma, and slandering the Dharma is a great sin.
+Not understanding the Dharma, and disparaging the Dharma is a great sin.
 
 Such a teacher cannot lead his disciples to the right path, so the teacher must be proficient in 84,000 kinds of dharmas, and must have a very complete understanding of the sutras.
 
@@ -732,53 +732,57 @@ Closing line: recite "Prayer for the Prosperity of the Gelugpa School" once and 
 
 **Guru Yoga**
 
-The hearts of Tusita's parents are surging like clouds of new cheese
+From the heart of the Lord of the Gaden devas (Maitreya Buddha) emerges a brilliant white cloud, like a great mass of fresh yoghurt.
 
-The Dharma King of Universal Wisdom, Xianhui, said that he would like to come here with his disciples
+Atop sits Tsongkhapa all knowing, King of Dharma; 
 
-The supreme master on the lotus moon in the constellation Leo in the front sky smiles
+we request your coming to this place along with your great disciples.
 
-May this faith surpass Futian and live for a hundred kalpas for the Hongsheng Sect
+My Lord Guru is seated before me upon a lion-throne, lotus and moon cushion. His body is white and he smiles blissfully. 
 
-All that I know, the wisdom, the meaning, the sages, the good ears
+Please remain many eons and serve as the great merit field for the growth of my mind’s faith, and for the increase of Lord Buddha’s teachings.
 
-Name He Yaoduan Strictly Respect Great Sage
+His omniscient wisdom-mind encompasses all that is existent. His voice is a profound teaching, which ornaments the ear of the fortunate pupil. 
 
-Ruyi merit water, flowers, fragrance, incense, lamps, etc.
+His body’s beautiful radiance evokes wondrous admiration. 
 
-Realize the intention to change the sea of ​​clouds to offer offerings to the guru to win the blessing field
+To Lama Tsongkhapa whom merely viewing, hearing or contemplating earns one great merit, I make prostration.
 
-All the beginningless accumulation of body, speech and will to create unwholesome karma
+I present to you, great field of merit, Tsongkhapa, beautiful offerings, water, a display of flowers, fragrant incense, butter-lamps, perfumes and more both physical and mental offerings, vast as the clouds and wide as the ocean.
 
-More violations of the Three Laws
+The unwholesome actions of body, speech and mind, which I have accumulated over a measureless period, especially actions contrary to the three vows (Vinaya, Bodhisattva, Vajrayana), I regret extremely from the depths of my heart, and I reveal each and every such action.
 
-In this turbid world, diligently cultivate the eight dharmas that are full of hearing and leisure
+We totally rejoice in your magnificent achievements, my Lord, who received numerous teachings and performed the practices with utmost diligence, who abandoned the eight worldly objectives and made the most meaningful use of the eighteen opportune conditions during these degenerate times.
 
-The vast deeds created by the lord, I am happy with my heart
+All you holy Gurus, unerring in conduct, may you precipitate a rain of realisation of Bodhicitta and Shunyata from the clouds of all-knowing compassion which fills the Dharmakaya sky, providing for the field of disciples precisely what is needed.
 
-The Supreme Being of the Most Exalted Masters Dharma Body Kongbu Compassion Wisdom Cloud
+May the Vajra body of Tsongkhapa created from the purity of clear light, free of the rising and setting of cyclic existence but visible to the ordinary viewer only in its unsubtle, physical form, stay on unchanging, without waning, until Samsara ends.
 
-May the soil transformed by the machine become a wonderful rain of magic
-
-To the best of all the good roots I have accumulated to benefit the Dharma and sentient beings
-
-May the career of His Holiness Tsongkhapa be manifested for a long time
-
-The earth is covered with fragrant flowers and brocades, Xumi, the four continents, the sun and the moon are strict
-
-Intentional predestined offerings to all Buddhas and all to climb to the Pure Land to pray for use
+May this merit accumulated by myself and others, beneficially serve all sentient beings and the Buddhadharma and especially may the essential teachings of the unerring master Tsongkhapa, become clear and enduring.
 
 Master Tsongkhapa's prayer: (Chinese translation in parentheses, do not read)
 
-Mingmei blames Wei to see the hot color of straight wheat in person, like Wang Wujiang's sadness (no karma and sadness)
+Je Tsongkhapa, crown jewel of the holy Masters of the land of snows, 
 
-Duhong Ma Lu Jiong Zaisang Weide Gangchen Kebezu Jian Tsongkhapa (Secret Master of the Destroying Demon Army) (Snow Region Zhiyan Tsongkhapa)
+You are Avalokiteshvara, great goldmine of Compassion untainted by ego’s delusion. 
 
-Prayer in front of Lobsang Zabe Shara Sowadi (Losang Zahua)
+You are Manjushri, great Master of stainless wisdom. 
 
-The supreme treasure of the master who is full of victorious virtue will always sit in the lotus of my heart
+You are Vajrapani, great subduer of all the gatherings of demons. 
 
-The vast heart of compassion holds me to the achievements of body, speech and mind
+At your feet, famed Lobsang Drakpa, I humbly bow and earnestly request that all sentient beings achieve Enlightenment.
+
+Dear worthy root Guru, please ascend the lotus seat atop the head of myself and the other beings, and in your great kindness please remain with us. 
+
+Bestow upon us the blessings of your body, speech and mind.
+
+Precious, noble, root Guru, please occupy the lotus seat within our hearts and in your great kindness remain with us. 
+
+Please grant us your blessings for our temporal success and for the supreme attainment.
+
+Beloved, noble, root Guru, please occupy the lotus seat within our hearts and in your great kindness remain with us. 
+
+Please stay on until we achieve the great goal of Enlightenment.
 
 Master Tsongkhapa's praise:
 
@@ -808,7 +812,7 @@ Everyone please generate bodhicitta!
 
 Today we are going to talk about Guru Yoga.
 
-There is a forward practice in Tantra. First, you must recite the Four Refuges 100,000 times, then recite the Guru Yoga 100,000 times, then make the Mandala 100,000 times, and then practice the Vajrasattva 100,000 times.
+There is a preliminary practice in Tantra. First, you must recite the Four Refuges 100,000 times, then recite the Guru Yoga 100,000 times, then offer the Mandala 100,000 times, and then practice the Vajrasattva 100,000 times.
 
 The four preliminaries, plus the prostration 100,000 times is the five preliminaries, plus one hundred thousand times around the pagoda, the six preliminaries, plus the offering of 100,000 cups of water, the seventh preliminaries, and the 100,000 elimination of karma 
 
@@ -816,9 +820,9 @@ The fire offering (Vajra emptiness fire offering), the eight additions, plus the
 
 If you can practice the ten additional actions, you will have a firmer foundation for practicing the Dharma.
 
-Usually it is very important to practice four additional actions.
+Usually it is very important to practice the first four additional actions.
 
-Guru Yoga is the most important one in the forward movement, and this forward movement is very important.
+Guru Yoga is the most important one in the preliminary movement.
 
 Guru Yoga means the visualization that the Guru and the Buddha are indistinguishable.
 
@@ -832,27 +836,27 @@ The masters mentioned here include Mahayana masters and Tsongkhapa masters.
 
 First of all, you need to understand what a guru is.
 
-A guru is a teacher who preaches the scriptures and spreads the Dharma.
+A guru is a teacher who teaches the scriptures and spreads the Dharma.
 
 A Mahayana teacher must not only be able to teach scriptures and teach the Dharma, but must also meet ten conditions.
 
-A tantric guru must add twenty virtue signs to the ten conditions.
+A tantric guru must add twenty virtuous signs to the ten conditions.
 
-Twenty signs of virtue are ten signs of virtue inside and ten signs of virtue outside.
+The Twenty signs of virtue are divided into ten inner signs of virtue and ten outer signs of virtue.
 
 There are five minimum requirements for being a guru:
 
-1. The precepts are pure
+1. Pure Vows
 
 If the guru is a monk, all the monks' vows must be pure.
 
 Tibetan Buddhist monks have 253 vows, and these vows must be pure.
 
-Unlike Southern Buddhism, monks in Southern Buddhism have 227 vows.
+In Southern Buddhism, monks have 227 vows.
 
-The inheritance is different, and the vows are also different.
+The lineage is different, and the vows are also different.
 
-The vows can be divided into three types: the vows of no liberation, the vows of bodhisattvas, and the vows of tantra.
+The vows can be divided into three types: the vows of non-liberation, the vows of bodhisattvas, and the vows of tantra.
 
 The vows for not liberation include five vows at home and eight fastings at home.
 
@@ -866,67 +870,69 @@ If you have received the Bodhisattva vows, the Bodhisattva vows must be pure.
 
 If you have already received the tantric vows, the tantric vows must be pure.
 
-If you have broken the vows, you cannot become a guru, and you cannot become a guru if you have not received the vows, because he does not have the first condition.
+If you have broken the vows, you cannot become a guru, and you cannot become a guru if you have not received the vows, because the first condition has not been met.
 
-2. To fully understand the Dharma
+2. Full understanding of the Dharma
 
 Dharma is divided into Hinayana and Mahayana.
 
-Mahayana is divided into sutra and tantric methods.
+Mahayana is divided into Sutra and Tantra.
 
 As a guru, the Theravada, Mahayana, Sutra, and Tantra methods must be fully understood, and 84,000 types of methods must be mastered.
 
-If you are only proficient in one, or if you are only proficient in the small method but not in the Mahayana, you are not called a guru. The guru must be proficient in 84,000 methods.
+If you are only proficient in one, or if you are only proficient in the Hinayana but not in the Mahayana, you are not called a guru. The guru must be proficient in 84,000 methods.
 
 The study of Tibetan Buddhism is done by debating the scriptures. Usually, the Dharma of the Mahayana Buddhism and the Dharma of Theravada are studied first. These Dharmas take 16 years to study, and at least 11 or 12 years.
 
-After finishing these studies, I will study Tantra. The four sutras of Tantra need to be studied for seven or eight years, and they should be studied by means of debating the scriptures. , Esoteric Four Continuations.
+After finishing these studies, I will study Tantra. The four classes of Tantra need to be studied for seven or eight years, and they should be studied by means of debating the scriptures.
 
-Mastering the five great treatises and the four tantras is equivalent to learning 84,000 dharmas.
+Four Classes of Tantra.
+
+Mastering the five great treatises and the four classes of tantra is equivalent to learning 84,000 dharmas.
 
 This is the second condition of being a guru.
 
 3. Great mercy and great compassion
 
-Everyone is equal in front of the master. The master loves every disciple, loves every sentient being, and must be so compassionate and compassionate.
+Everyone is equal in front of the master. The master loves every disciple, loves every sentient being, and must be extremely compassionate.
 
 This is the third condition of being a guru.
 
-4. There is a complete and pure inheritance
+4. There is a complete and unbroken lineage
 
 Buddhism now includes Tibetan Buddhism, Chinese Buddhism, and Southern Buddhism.
 
-All the inheritances of Tibetan Buddhism in these three sects have been preserved relatively intact from the Buddha Shakyamuni to the present, and the inheritance has not been broken.
+All the inheritances of Tibetan Buddhism in these three sects have been preserved relatively intact from the Buddha Shakyamuni to the present, and the transmission lineage has not been broken.
 
 Every scripture has a lineage, a lineage of empowerment, a lineage of sermons, and a lineage of oral transmission.
 
-With the inheritance, you can get the blessings of the Dharma, and there will be no misunderstandings.
+With the lineage, you can get the blessings of the Dharma, and there will be no misunderstandings.
 
-Inheritance is very important, for example: Fa is a mobile phone, inheritance is a signal, inheritance is a very important condition.
+Lineage is very important, for example: Dharma is a mobile phone, lineage is a signal, inheritance is a very important condition.
 
-Among the three major sects, many of the inheritance of Chinese Buddhism has now been cut off, as has Southern Buddhism.
+Among the three major sects, many of the lineage paths of Chinese Buddhism have been broken, as have those of Southern Buddhism.
 
-But the inheritance of Tibetan Buddhism has never been broken, and the inheritance is very complete.
+But the lineage of Tibetan Buddhism has never been broken, and the lineage is very complete.
 
-Our lineage is the lineage of the Gelug Sect of the Yellow Sect. It was the forty-fifth generation from Buddha Shakyamuni to my master, and the forty-sixth generation to me.
+Our lineage is the lineage of the Gelugpa School of the Yellow Hat. There are 45 generations from Buddha Shakyamuni to my master, and I am the forty-sixth generation.
 
-The algorithm of each inheritance is different. For example, the inheritance of some scriptures has reached more than 80 generations, and there are also more than 90 generations.
+The algorithm of each lieage is different. For example, the inheritance of some scriptures has reached more than 80 generations, and there are also more than 90 generations.
 
-The inheritance of the Prajna Sutra is now the forty-sixth generation.
+The lineage of the Prajna Sutra is now the in the forty-sixth generation.
 
-The Prajna Sutra has only been passed down from generation to generation for forty-six generations, and other inheritances have reached more than 90 generations, or even more than 100 generations.
+The Prajna Sutra has been passed down from generation to generation for forty-six generations, and other lineages have reached more than 90 generations, or even more than 100 generations.
 
 Why is there such a big difference? Nagarjuna Bodhisattva, the inheritor of the Prajna Sutra, lived for 600 years, and Yuecheng Bodhisattva lived for 356 years.
 
-Since there are many masters who have lived for hundreds of years, the inheritance of the Prajna Sutra has only reached forty-six generations.
+Since there are many masters who have lived for hundreds of years, the lineage of the Prajna Sutra has only reached forty-six generations.
 
 Lineage masters such as Nagarjuna have lived to be hundreds of years old. Because of this origin, people who study Madhyamika generally live longer.
 
-This is the fourth one as a guru??
+This is the fourth condition for being a guru.
 
 5. Understanding Emptiness
 
-The guru does not necessarily realize emptiness, but at least he can understand emptiness in words.
+The guru does not necessarily need to have realized emptiness, but at least he can understand emptiness intellectually.
 
 If the guru does not understand emptiness, he cannot lead the disciple on the path of liberation, because emptiness is the root of liberation.
 
@@ -934,69 +940,79 @@ This is the fifth condition of being a guru.
 
 Only those who meet these five conditions can be called a guru.
 
-Taking refuge in such a teacher can receive the blessings of the Buddhas and Tathagatas.
+By taking refuge in such a teacher one can receive the blessings of the all the Buddhas and Tathagatas.
 
-When practicing Guru Yoga, both the guru and the Buddha must visualize indistinguishably in order to receive blessings.
+When practicing Guru Yoga, both the guru and the Buddha must be seen as indistinguishable in order to receive blessings.
 
-If you visualize the master and the Buddha indistinguishably, you can get the blessings of the Buddhas and Tathagatas; visualize the guru and the Arahants as if they are indistinguishable, and you can get the blessings of the Arahants; visualize the teacher as an ordinary person and gain nothing. Blessing, because ordinary ordinary people do not have the blessing power.
+If you visualize the master and the Buddha as being indistinguishable, you can get the blessings of the Buddhas and Tathagatas; visualize the guru and the Arhats as if they are indistinguishable, and you can get the blessings of the Arhats; visualize the teacher as an ordinary person and gain nothing. Blessing, because ordinary people do not have the blessing power.
 
-The strength of the guru's blessing depends on the confidence of the disciple. How confident the disciple is, the greater the blessing of the guru.
+The strength of the guru's blessing depends on the confidence of the disciple. According to how confident the disciple is, the greater the blessing of the guru.
 
-The disciple regards the guru as the Buddhas and Tathagatas, and if they have this confidence, they can obtain the blessings of the Buddhas and Tathagatas.
+The disciple regards the guru as being the same as the Buddhas and Tathagatas, and if they have this confidence, they can obtain the blessings of the Buddhas and Tathagatas.
 
-The guru can be an ordinary person, or the guru can be an ordinary person.
+The guru can be a normal, ordinary person too.
 
 Whether the guru is a Buddha or not is unimportant, but confidence in the guru is the most important thing. The belief that a guru and a Buddha are indistinguishable is very important.
 
-Tantric practice can instantly become a Buddha.
+Through Tantric practice one can instantly become a Buddha.
 
-There are many convenient ways to become a Buddha, and guru yoga is the most excellent one among the many convenient ways.
+There are many convenient ways to become a Buddha, and Guru Yoga is the most excellent one among the many convenient ways.
 
-From the point of view of the sutras, a person must at least have the blessings of three asamkhya kalpas when he becomes a Buddha.
+From the point of view of the Sutras, a person must at least have the blessings of three asamkhya kalpas when he becomes a Buddha.
 
 A kalpa has 12.9 billion years.
 
 If we can truly practice Guru Yoga, it will be easy to accumulate blessings, eliminate karmic obstacles, and more easily obtain the blessings of the Buddhas and Tathagatas.
 
-The blessings of the Buddhas and Tathagatas are as vast and ubiquitous as the sun's rays. Our troubles are like garbage everywhere. The blessing of the master is like the light of a magnifying glass. It is easy to burn the troubled garbage with the light of the magnifying glass. burn.
+The blessings of the Buddhas and Tathagatas are as vast and ubiquitous as the sun's rays. Our sufferings are like garbage strewn everywhere. The blessing of the master is like the focused light of a magnifying glass. It is easy to burn the garbage of suffering with the light of the magnifying glass.
 
-We first concentrate the blessings of the Buddhas and Tathagatas on the body, speech and mind of the guru, and then the guru's blessings and the blessings of the Buddhas and Bodhisattvas give us blessings. This blessing can cut off our troubles and eliminate our worries. karma and suffering.
+We first concentrate the blessings of the Buddhas and Tathagatas on the body, speech and mind of the guru, and then the guru's blessings and the blessings of the Buddhas and Bodhisattvas give us blessings. This blessing can cut off our troubles and eliminate our worries, karma and suffering.
 
 What is blessing? The energy of Buddhas and Bodhisattvas is called blessing.
 
-This energy can change our life, it can cut off our troubles, it can eliminate our pain.
+This energy can change our lives, it can cut off our troubles, it can eliminate our pain.
 
 Whether you can get the blessings of the Buddhas and Bodhisattvas depends on whether you have practiced Guru Yoga.
 
 Guru Yoga varies from school to school.
 
-Guru Yoga is a very special method unique to Tantric Buddhism. The three major sects of Sutra and Theravada do not have Guru Yoga, but only Tibetan Buddhism.
+Guru Yoga is a very special method unique to Tantric Buddhism. Only Tibetan Buddhism among the three major sects of Sutra and Theravada do not have Guru Yoga.
 
-Guru Yoga of the Nyingma School of Tibetan Buddhism is the visualization that Guru Rinpoche is indistinguishable from his own Guru.
+Guru Yoga of the Nyingma School of Tibetan Buddhism is the visualization that Guru Rinpoche is indistinguishable from one's own Guru.
 
-The Kagyu sect also has guru yoga, where the Vajrapani or Marpa masters are no different from their own masters.
+The Kagyu sect also has Guru Yoga, where the Masters Vajrapani or Marpa are no different from their own masters.
 
-Guru Yoga of the Gelugpa is a visualization that Tsongkhapa is indistinguishable from his root guru.
+Guru Yoga of the Gelugpa is a visualization that Tsongkhapa is indistinguishable from one's root guru.
 
-To understand Guru Yoga of Gelugpa, we must first understand what kind of person Tsongkhapa is.
+To understand the Guru Yoga of Gelugpa, we must first understand what kind of person Tsongkhapa is.
 
 (2) Master Tsongkhapa
 
 Master Tsongkhapa is the founder of the Gelug School, and many Buddhist scriptures have recorded Master Tsongkhapa.
 
-When Buddha Shakyamuni was about to pass away, Manjushri Bodhisattva bowed to Buddha Shakyamuni three times and asked, "Buddha Shakyamuni, you have passed away, who will carry forward the Mahayana Dharma that will be cultivated in the future?" Sakyamuni The Buddha said: "Manjushri's true body and the incarnation of all Buddhas and Tathagatas, Tsongkhapa, have come to promote the Dharma door of Xianxian and Tantric practice."
+When Buddha Shakyamuni was about to pass away, Manjushri Bodhisattva bowed to Buddha Shakyamuni three times and asked, "Buddha Shakyamuni, once you have passed away, who will carry forward the Mahayana Dharma that will be cultivated in the future?" The Buddha Sakyamuni replied: 
+
+"After I pass away and my pure doctrine is absent,
+
+You will appear as an ordinary being,
+
+Performing the deeds of a Buddha
+
+And establishing the Joyful Land, the great Protector,
+
+In the Land of the Snows."
 
 Master Tsongkhapa was called the second Buddha when he was prophesied by the Buddha.
 
-Many masters have also been prophesied. For example, when Nagarjuna Bodhisattva was prophesied, he said that he was an invincible guru. When Wusang Bodhisattva was prophesied, he said that he was the most excellent guru who taught knowledge-only. Only Master Tsongkhapa was predicted in the name of the two Buddhas.
+Many masters have also been prophesied. For example, when Nagarjuna Bodhisattva was prophesied, he said that he was an invincible guru. When Asanga Bodhisattva was prophesied, he said that he was the most excellent guru who taught knowledge-only. Only Master Tsongkhapa was predicted in the name of the two Buddhas.
 
 Buddha Shakyamuni had different prophecies to Master Tsongkhapa.
 
-Sometimes it is said to be the incarnation of Sakyamuni Buddha himself, sometimes it is said to be the incarnation of Manjushri, sometimes it is said to be the incarnation of Guanyin Bodhisattva, sometimes it is said to be the incarnation of Maitreya Bodhisattva, and sometimes it is said that it is the second coming of Vajra Hand Bodhisattva. Sometimes it is said that Amitabha has returned, and there are so many different prophecies.
+Sometimes he is said to be the incarnation of Sakyamuni Buddha himself, sometimes he is said to be the incarnation of Manjushri, sometimes he is said to be the incarnation of Guanyin Bodhisattva, sometimes he is said to be the incarnation of Maitreya Bodhisattva, and sometimes he is said to be the second coming of Vajrapani Bodhisattva. Sometimes it is said that Amitabha has returned, and there are so many different prophecies.
 
 These statements are not contradictory, because Master Tsongkhapa is the incarnation of all Buddhas and Tathagatas.
 
-There are only four incarnations of the Buddhas and Tathagatas: Master Tsongkhapa is the incarnation of the Buddhas and Tathagatas, Guanyin is the incarnation of the compassion of the Buddhas and Tathagatas, Manjushri is the incarnation of the wisdom of the Buddhas and Tathagatas, and the Vajra Hand is the incarnation of the abilities of the Buddhas and Tathagatas.
+There are only four incarnations of the Buddhas and Tathagatas: Master Tsongkhapa is the incarnation of the Buddhas and Tathagatas, Guanyin is the incarnation of the compassion of the Buddhas and Tathagatas, Manjushri is the incarnation of the wisdom of the Buddhas and Tathagatas, and the Vajrapani is the incarnation of the abilities of the Buddhas and Tathagatas.
 
 Is Buddha Shakyamuni the incarnation of Buddhas and Tathagatas? no.
 
@@ -1004,7 +1020,7 @@ Shakyamuni Buddha was an ordinary person who became a Buddha through cultivation
 
 Amitabha Buddha is also an ordinary person who cultivated his heart and became a Buddha.
 
-Tsongkhapa, Avalokitesvara, Manjusri, and Vajra Hand are different. These four are the incarnations of all Buddhas and Tathagatas.
+Tsongkhapa, Avalokitesvara, Manjusri, and Vajrapani are different. These four are the incarnations of all Buddhas and Tathagatas.
 
 Padmasambhava also predicted Tsongkhapa.
 
@@ -1012,39 +1028,43 @@ Guru Rinpoche said: My incarnation Tsongkhapa appeared.
 
 Master Tsongkhapa is the incarnation of Guru Rinpoche himself.
 
-When Majila was about to prophesy Master Tsongkhapa, Majila asked all his disciples to come over and said: Tsongkhapa will be born in the Amdo area. Tsongkhapa is the incarnation of all Buddhas and Tathagatas. You all vow that in the future To be a disciple of Tsongkhapa, to be a disciple of Tsongkhapa is to be a disciple of all Buddhas and Tathagatas, to practice Tsongkhapa’s Dharma door is to cultivate all Buddhas and Tathagatas’ Dharma doors, to make offerings to Tsongkhapa is to make offerings to all Buddhas and Tathagatas, so You all make a vow to be Tsongkhapa's disciples.
+When Machig Labdrön was about to prophesy Master Tsongkhapa, she asked all his disciples to come over and said:
 
-All the disciples of Majilazhun vowed to be the disciples of Master Tsongkhapa. When Master Tsongkhapa taught the scriptures and preached the Fa, many disciples came back from the disciples of Majilazhun.
+ Tsongkhapa will be born in the Amdo area. Tsongkhapa is the incarnation of all Buddhas and Tathagatas. You all vow that in the future To be a disciple of Tsongkhapa, to be a disciple of Tsongkhapa is to be a disciple of all Buddhas and Tathagatas, to practice Tsongkhapa’s Dharma door is to cultivate all Buddhas and Tathagatas’ Dharma doors, to make offerings to Tsongkhapa is to make offerings to all Buddhas and Tathagatas, so you all make a vow to be Tsongkhapa's disciples.
 
-The same is true for Nagarjuna Bodhisattva and Yuecheng Bodhisattva.
+All the disciples of Machig Labdrön vowed to be the disciples of Master Tsongkhapa. When Master Tsongkhapa taught the scriptures and preached the Dharma, many disciples came from among the disciples of Machig Labdrön.
 
-Before Nagarjuna Bodhisattva passed away, let the disciples come and tell them that in the future, the incarnation of Manjushri Bodhisattva Tsongkhapa will be born, and Tsongkhapa will carry forward the Dharma of Xian and Mistress, and make them vow to be Tsongkhapa's disciples and Tsongkhapa's disciples. You can become a Buddha instantly.
+The same is true for Nagarjuna Bodhisattva and Chandrakirti Bodhisattva.
 
-The eldest disciple of Nagarjuna Bodhisattva, Yuecheng Bodhisattva, also vowed to be a disciple of Master Tsongkhapa.
+Before Nagarjuna Bodhisattva passed away, he called his disciples to him and told them that in the future, the incarnation of Manjushri Bodhisattva Tsongkhapa will be born, and Tsongkhapa will carry forward the fusion of the Sutra and Tantra Dharma, and made them vow to be Tsongkhapa's disciples and followers. A follower of Tsongkhapa can become a Buddha in this lifetime.
 
-The eldest disciple of Master Tsongkhapa, Kezhujie, is the second coming of the Bodhisattva Yuecheng.
+The eldest disciple of Nagarjuna Bodhisattva, Chandrakirti Bodhisattva, also vowed to be a disciple of Master Tsongkhapa.
 
-Many practitioners know that there are not only one or two lines of Tsongkhapa in the Buddhist scriptures, nor just one or two sutras.
+The eldest disciple of Master Tsongkhapa, Kezhujie, is the reincarnation of the Chandrakirti Bodhisattva.
 
-Therefore, before the birth of Master Tsongkhapa, the previous masters all wanted to see Master Tsongkhapa, and they all vowed to be disciples of Master Tsongkhapa.
+Many practitioners know prophecies regarding Tsongkhapa are not limited to one or two lines of Buddhist scriptures, nor even to just one or two sutras.
 
-Every time Master Tsongkhapa talks about emptiness or Madhyamika, there are thousands of eminent monks listening, and there are hundreds who realize emptiness after listening, which is very extraordinary.
+Therefore, from before the birth of Master Tsongkhapa, the previous masters all wanted to see Master Tsongkhapa, and they all vowed to be disciples of Master Tsongkhapa.
+
+Every time Master Tsongkhapa talked about emptiness or Madhyamika, there were thousands of eminent monks listening, and there were hundreds who realized emptiness after listening, which is very extraordinary.
 
 Before the birth of Master Tsongkhapa, there was a master named Lobsang Drakpa, who was the most accomplished master in Ali, Tibet at that time.
 
-He said: I am now using the Kalachakra calendar to calculate that Tsongkhapa will be born soon.
+He said: I will now using the Kalachakra calendar to calculate that Tsongkhapa will be born soon.
 
-So he sent his eldest disciple, Dongzhi Rinchen, to the Amdo area and told him: Dongzhi Rinchen, you go to Amdo, and Tsongkhapa, the incarnation of Manjushri, will be born soon.
+So he sent his eldest disciple,  Choje Dondrub Rinchen, to the Amdo area and told him: 
 
-After he was born, you gave him my legal name, Lobsang Drakpa.
+"Dondrub Rinchen, go to Amdo, and Tsongkhapa, the incarnation of Manjushri, will be born soon.
 
-Now that I am old and unable to walk, my greatest wish in life is to give this name to Tsongkhapa.
+Once he is born, you will give him my legal name, Lobsang Drakpa.
 
-Then Dongzhi Rinchen went from Lhasa to Amdo (now Quge Mountain near the Ta'er Monastery) and retreated.
+Now that I am old and unable to walk, my greatest wish in life is to give this name to Tsongkhapa."
+
+Then Dondrub Rinchen went from Lhasa to Amdo (now Quge Mountain near the Ta'er Monastery) and went into retreat.
 
 After a period of retreat, Master Tsongkhapa was really born.
 
-It was when he was in retreat one morning to cultivate the great mighty virtue, and the great mighty virtue appeared to him and said, "I am going to be born today, you come and visit me.
+It was while he was in retreat one morning to cultivate the great mighty virtue, and the great mighty virtue appeared to him and said, "I am going to be born today, you come and visit me.
 
 "On that day, Master Tsongkhapa was born.
 
@@ -1056,27 +1076,29 @@ Only Master Tsongkhapa has this kind of auspicious appearance, and no other grea
 
 This is one of the eighteen unique characteristics of Master Tsongkhapa, and it is also one of the most extraordinary auspicious signs.
 
-After the birth of Master Tsongkhapa, Dongzhi Rinchen gave him the Dharma name "Lobsang Drakpa". He received the five vows at the age of three, became a monk at the age of seven, studied various scriptures, and went to Lhasa in Tibet at the age of sixteen.
+After the birth of Master Tsongkhapa, Dondrub Rinchen gave him the Dharma name "Lobsang Drakpa". He received the five practitioner vows at the age of three, became a monk at the age of seven, studied various scriptures, and went to Lhasa in Tibet at the age of sixteen.
 
 At that time, there were many sects in Lhasa, such as Sakya, Nyingma, Kagyu, Kadam, Joonang and so on.
 
-Master Tsongkhapa learned the Dharma of various schools, and worshipped more than forty masters who were very distinguished in each school at that time.
+Master Tsongkhapa learned the Dharma of various schools, and studied with more than forty masters who were very distinguished in each school at that time.
 
-Learned all the methods of Nyingma from the master of Nyingma.
+He learned all the teachings of Nyingma from the master of Nyingma.
 
-Learned all the methods of the Kagyu sect with the teachers of the Kagyu sect.
+He learned all the methods of the Kagyu sect with the teachers of the Kagyu sect.
 
-Learned all the methods of each sect from the masters of the Sakya, Kadam, Joonang and other sects.
+He learned all the methods of each sect from the masters of the Sakya, Kadam, Joonang and other sects.
 
-After learning it well, Master Tsongkhapa studied these dharmas, and combined the purest, most complete inheritance, the most noble, and the most essence of the sects to create a sect - the Gelug Sect of the Yellow Sect.
+After learning it well, Master Tsongkhapa studied these dharmas, and combined the purest, most complete lineages, the most noble, and the most essential of the sects to create a new school - the Gelugpa School of the Yellow Hat.
 
-The Gelug Sect of the Yellow Sect has all the methods of other sects, but some of the Gelug sects of the Yellow Sect may not have other sects, such as the thirteen Dawei De Dharmamen, Dawei De personally empowered Tsongkhapa, this Dharma door is only Gelug The sect has it, the other sects don't.
+Gelugpa School of the Yellow Hat has all the methods of other sects, but some of the other sects do not have teachings from the Gelugpa School, such as the thirteen Dawei De Dharma doors, Dawei De personally empowered Tsongkhapa, this Dharma door is only found in the Gelugpa School. The other schools don't have this.
 
-Before Master Tsongkhapa founded the Gelug Sect, practitioners in Tibetan areas were more chaotic in terms of vows, and there were many practitioners who did not observe vows or who were not pure.
+Before Master Tsongkhapa founded the Gelugpa School, practitioners in Tibetan areas were more chaotic in terms of vows, and there were many practitioners who did not observe vows or who were not pure.
 
-Master Tsongkhapa made a great vow: No matter whether a practitioner is a monk or a monk, the vows must be pure.
+Master Tsongkhapa made a great vow: 
 
-At the same time, a lot of effort has been put into the discipline, so the disciplines of the Gelug Sect disciples are relatively pure.
+**No matter whether a practitioner is a monk or a monk, the vows must be pure.**
+
+At the same time, a lot of effort has been put into the discipline, so the disciplines of the Gelugpa School disciples are relatively pure.
 
 In the past, the study of the five major theories and the study of the scriptures were carried out by the Sakya and Kadam schools, but gradually the Sakya school itself did not have this method, and later it became the method of the Gelug school.
 
@@ -1084,11 +1106,9 @@ Now all the sects who want to study the debating of scriptures go to the monaste
 
 Master Tsongkhapa is very special and perfect in terms of vows, learning, discipline, and right view.
 
-Therefore, when the Fifth Dalai Lama talked about the merits of Master Tsongkhapa, he said that the achievements of all the great siddhas in our Tibetan area in all aspects can be compared to Master Tsongkhapa, and the achievements of any individual are not as good as that of Tsongkhapa. Master Kaba.
+The Fifth Dalai Lama once said that of all the great siddhas of the Tibetan areas combined, none of them are as good as Master Tsongkhapa. Some great siddhis are not as good as Tsongkhapa in terms of achievement, some are not as good as Tsongkhapa in teaching scriptures, some are not as good as Tsongkhapa in debating scriptures, some are not as good as Tsongkhapa in training disciples, so it is said that all the great siddhas in the entire Tibetan area combined are comparable to Master Tsongkhapa, and no single person is as good as Master Tsongkhapa.
 
-For example, some people are not as good as Master Tsongkhapa in vows, some people are not as good as Master Tsongkhapa in teaching scriptures and teachings, some people are not as good as Master Tsongkhapa in debating scriptures, some people are not as good as Master Tsongkhapa in terms of writings, and some people are not as good as Master Tsongkhapa. Not as good as Master Tsongkhapa.
-
-Even the very noble and accomplished master Marpa is not as good as Master Tsongkhapa.
+Even the very noble and accomplished Master Marpa is not as good as Master Tsongkhapa.
 
 Because, first, the vows are not as good as Master Tsongkhapa.
 
@@ -1100,35 +1120,46 @@ Master Tsongkhapa received the entire lineage of Guru Marpa, as well as the line
 
 Master Tsongkhapa has the lineage that Guru Marpa does not have.
 
-This time when we talk about Master Tsongkhapa's guru yoga, we must visualize that Master Tsongkhapa is indistinguishable from his guru, so that we can not only receive the blessing of Master Tsongkhapa, but also the blessings of the Buddhas and Tathagatas.
+This time when we talk about Master Tsongkhapa's guru yoga, we must visualize that Master Tsongkhapa is indistinguishable from our own guru, so that we can not only receive the blessing of Master Tsongkhapa, but also the blessings of the Buddhas and Tathagatas.
 
 Reciting the prayers of Master Tsongkhapa means reciting the prayers of the Buddhas and Tathagatas, because Master Tsongkhapa is the incarnation of the Buddhas and Tathagatas.
 
 Reciting the mantra of Master Tsongkhapa means reciting the mantra of the four deities, because Master Tsongkhapa is the incarnation of the four deities.
 
-After Master Tsongkhapa passed away, there were many incarnations. There are five recognized incarnations: one incarnates in the Land of Ultimate Bliss; one incarnates in the Pure Land of Dakini; On the pure land of great mighty virtue; an incarnation on the pure land of Manjushri.
+After Master Tsongkhapa passed away, there were many incarnations. 
+There are five recognized incarnations: 
 
-When we do Tsongkhapa's guru yoga now, we pray to one of these five incarnations.
+one incarnation in the Land of Ultimate Bliss; 
 
-Which one is the easiest to get? The incarnation of Master Tsongkhapa in the Tusita Tian Maitreya Institute is the easiest for us to ask for.
+one incarnation in the Pure Land of the Dakini;
 
-What method should I use to invite? First of all, visualize the Tusita Heaven in the distant sky, visualize Maitreya Maitreya’s Pure Land in the Tusita Heaven, and visualize Maitreya Buddha in the Maitreya Academy. Maitreya Buddha is like sitting on a sofa. Sitting there like the above is called the sitting method of growth.
+one incarnation in the Pure Land of Great Mighty Virtue; 
+
+one incarnation in the Pure Land of Manjushri.
+
+When we practice Tsongkhapa's guru yoga these days, we pray to one of these five incarnations.
+
+Which one is the easiest to attain? The incarnation of Master Tsongkhapa in the Tusita Heaven of Maitreya is the easiest for us to ask for.
+
+What method should I use to invite? First of all, visualize the Tusita Heaven in the distant sky, visualize Maitreya’s Pure Land in the Tusita Heaven, and visualize Maitreya Buddha in the Maitreya Hall. Maitreya Buddha is sitting on a throne. Sitting there like the above is called the sitting method of growth.
 
 Maitreya Buddha's mind visualizes the Ruyi knot (the Ruyi knot is like a Chinese knot), and inside the Ruyi knot visualizes the three masters and disciples of Tsongkhapa: Tsongkhapa, Jia Caojie, and Kezhujie.
 
-Master Tsongkhapa represents Manjusri, Jia Caojie represents Guanyin, Kezhujie represents Vajra Hand, and the three masters and apprentices represent the three masters.
+Master Tsongkhapa represents Manjusri, Jia Caojie represents Guanyin, Kezhujie represents Vajrapani, and the three masters and apprentices represent the three masters.
 
-Just visualize the wish-fulfilling knot in Maitreya Buddha's heart with the three masters and disciples of Tsongkhapa in it, and then greet him like this in his heart: The three masters and disciples of Tsongkhapa, to accumulate blessings for all beings in the six realms, and to promote the Dharma, I welcome you. Come here, please, into the sky ahead of myself.
+Just visualize the wish-fulfilling gem in Maitreya Buddha's heart with the three masters and disciples of Tsongkhapa in it, and then greet him like this in his heart: 
 
-Just visualize the three statues of Tsongkhapa and his disciples coming out of Maitreya Buddha's wishful knot and sitting on three white clouds.
+The three masters and disciples of Tsongkhapa, to accumulate blessings for all beings in the six realms, and to promote the Dharma, I welcome you. Come here, please, into the sky ahead of myself.
 
-Three clouds just floated, from Tushitien to the sky in front of you all at once.
+Just visualize the three figures of Tsongkhapa and his disciples coming out of Maitreya Buddha's wishful gem and sitting on three white clouds.
 
-You must first make a long-lived prayer to Master Tsongkhapa.
+Three clouds just floated, from Tusita Heaven to the sky in front of you all at once.
 
-How to pray for Tsongkhapa to live in the world for a long time? All the blessings that he has accumulated in his lifetimes have become the throne of lions, and the three thrones of lions make offerings to the three masters and disciples of Tsongkhapa.
+You must first make a long-life prayer to Master Tsongkhapa.
 
-55 Here begins the interpretation of the Guru Yoga text.
+How do we pray for Tsongkhapa to live in the world for a long time? All the blessings that he has accumulated in his lifetimes have become the throne of lions, and the three thrones of lions make offerings to the three masters and disciples of Tsongkhapa.
+
+Here begins the interpretation of the Guru Yoga text.
 
 2. Welcoming Master Tsongkhapa:
 
@@ -1140,11 +1171,11 @@ All-wise Dharma King virtuous
 
 May the disciples come here
 
-"The heart of the master of the Tusita Heavens", the master of the Tusita is Maitreya Buddha.
+"The heart of the master of the Tusita Heavens", the master of the Tusita Heaven is Maitreya Buddha.
 
 "Blooming like a cloud of new cheese, the Dharma King of all wisdom is called wise", wise
 
-It is called the Dharma name of Master Tsongkhapa, and it is called Lobsang Drapa in Tibetan.
+It is called the Dharma name of Master Tsongkhapa, and the name is Lobsang Drapa in Tibetan.
 
 "May the same disciples come here." At this time, Tsongkhapa's three disciples
 
@@ -1152,7 +1183,7 @@ Zun sat on the top of the three white clouds and floated into the air in front o
 
 Three, seven offerings
 
-(1) long-lived
+(1) Long Life Prayer
 
 On the lotus moon in the constellation Leo
 
@@ -1164,41 +1195,41 @@ Live for a hundred kalpas
 
 In order to carry forward the Dharma, I pray that the three masters and disciples of Tsongkhapa will live on the throne of lions that I offer for hundreds of kalpas.
 
-You should know the kind of throne carried by the eight lions. The eight lions represent the eight freedoms. There is a lotus on the throne. The lotus represents renunciation. In the middle of the lotus is a sun plate. There is a moon plate on the sun plate, and the moon plate represents the compassion, bodhicitta and convenient method of the three masters and disciples of Tsongkhapa.
+You should know the kind of throne carried by the eight lions. The eight lions represent the eight freedoms. There is a lotus on the throne. The lotus represents renunciation. In the middle of the lotus is a sun disc. There is a moon disc on the sun plate, and the moon disc represents the compassion, bodhicitta and convenient method of the three masters and disciples of Tsongkhapa.
 
-The three masters and disciples of Tsongkhapa sat on the moon plate. In order to promote the Dharma and benefit all beings, the three masters and disciples of Tsongkhapa lived for hundreds of kalpas.
+The three masters and disciples of Tsongkhapa sat on the moon disc. In order to promote the Dharma and benefit all beings, the three masters and disciples of Tsongkhapa lived for hundreds of kalpas.
 
 A kalpa lasts 12.9 billion years, and it is necessary to live for a long, long time. This is a prayer to live in the world for a long time.
 
-Now your master is the same as Master Tsongkhapa. You have prayed for Master Tsongkhapa to live long, and your teacher will live long.
+Now your master is the same as Master Tsongkhapa. When you pray for Master Tsongkhapa to live a long life, your teacher will also live for a long time.
 
-What does this do? Many virtuous masters come and go freely. If they want to come to this world, they will arrive immediately after making a vow. If they want to leave this world, they will leave immediately after a dozen "Powa Fa". They come and go very freely.
+What does this do? Many virtuous masters come and go freely. If they want to come to this world, they will arrive immediately after making a vow. If they want to leave this world, they will leave immediately after a dozen "Powa Fat". They come and go very freely.
 
-This kind of master should always pray for him to live in the world for a long time. This is very useful. He will not easily show his death, and he can live in the world for a long time.
+We should always pray for this kind of master to live in the world for a long time. This is very useful. He will not easily show his death, and he can live in the world for a long time.
 
-——————————————For example, when my master Yongzeng Dharma King was eighty-five years old, he became seriously ill. He couldn’t eat or drink water, and he completely cut off his diet.
+——————————————For example, when my master Yongzeng Dharma Master was eighty-five years old, he became seriously ill. He couldn’t eat or drink water, and he completely cut off his diet.
 
-The disciples asked Master to take a look at the hospital. Master said that it was useless to go to the hospital and the disease could not be cured.
+The disciples asked Master to go to the hospital. Master said that it was useless to go to the hospital and that the disease could not be cured.
 
 At the strong request of the disciples, Master went to the hospital for an examination, and it was found that he had advanced gastric cancer.
 
 There's no other way. After returning from the hospital, Master is going to pass away, and he's going to arrange for the scriptures to be given to whom... So he started to arrange the funeral.
 
-All the disciples of Dharma King Yongzeng were very sad in their hearts. They all gathered together to ask Master to live in the world for a long time. They all knelt in front of the Master and prayed: Master, you want to live in the world for a long time. If you don't live in the world, we won't get up.
+All the disciples of Dharma Master Yongzeng were very sad in their hearts. They all gathered together to ask Master to live in the world for a long time. They all knelt in front of the Master and prayed: Master, we want you to live in the world for a long time. If you don't live in the world, we won't get up.
 
-He knelt down in front of the master and prayed for a long life.
+They knelt down in front of the master and prayed for a long life.
 
-However, the master said: "Everyone, get up, I don't have the ability.
+However, the master said: "Everyone, get up, I don't have this power."
 
-"But everyone kept kneeling there and praying to the guru for a long time.
+But everyone kept kneeling there and praying to the guru for a long time.
 
 Finally, the master said, "Get up, everyone, how long do you want me to live? How long do you want me to live?" An old lama in front of him said that he wanted the master to live a hundred years.
 
 Master was eighty-five years old at that time, and the master said: Ninety-seven, ninety-eight is a hundred years old, okay! The old lama said: Yes, yes.
 
-The master said, "Get up and cook for me.
+The master said, "Get up and cook for me."
 
-"Everyone got up and cooked for the master. The master ate well, and there was nothing to do. You could drink tea and eat. After that, the master was free of all diseases and lived to be ninety-seven years old.
+Everyone got up and cooked for the master. The master ate well, and there was nothing to do. He could drink tea and eat. After that, the master was free of all diseases and lived to be ninety-seven years old.
 
 Master passed away in May when he was ninety-seven years old.
 
@@ -1206,9 +1237,11 @@ This kind of master will pass away when he is eighty-five years old. If everyone
 
 Everyone should understand that praying to the guru to live for a long time has such an effect.
 
-Then why did the master get stomach cancer? It is the energy of exchanging bodhicitta that absorbs the suffering of others.
+Then why did the master get stomach cancer? 
 
-There is a master in Guide in Qinghai Province called Master Taxiu, who is my master's master, that is, the master of Dharma King Yongzeng.
+It is the energy of exchanging bodhicitta that absorbs the suffering of others.
+
+There is a master in Gui De in Qinghai Province called Master Taxiu, who is my master's master, that is, the master of Dharma Master Yongzeng.
 
 At that time, there were many people with large tumors on their necks.
 
@@ -1216,7 +1249,7 @@ Master Taxiu attracted these people's tumors by exchanging bodhicitta from him.
 
 Because he sent out such self-exchange bodhicitta, a tumor grew on his neck gradually, and it grew bigger and bigger.
 
-Since then, the tumor disease in the Guide area of ​​Qinghai Province has been completely eliminated.
+Since then, the tumor disease in the Gui De area of ​​Qinghai Province has been completely eliminated.
 
 The tumor on Master Taxiu's neck gradually disappeared after two or three years.
 
@@ -1228,41 +1261,57 @@ Bowing includes bowing in words and deeds.
 
 There are many different prostrations, including Hinayana, Mahayana, Sutra, and Tantra.
 
-The most complete prostration is: put the two thumbs in the palms, then close the palms, prostrate to the guru, the Buddha, the Dharma, and the monk, open the palms, visualize there is a wish-fulfilling jewel in the palm, and the wish-fulfilling jewel has become countless. A wish-fulfilling treasure is offered to the guru's Three Jewels, and then the head touches the ground, and the five bodies bow down to the ground. This is a very consummate little prayer.
+The most complete prostration is: 
+
+Put the two thumbs in the palms, then close the palms, prostrate to the guru, the Buddha, the Dharma, and the Sangha, open the palms, visualize there is a wish-fulfilling jewel in the palm, and the wish-fulfilling jewel has become countless. A wish-fulfilling treasure is offered to the guru's Three Jewels, and then the head touches the ground, and the five bodies bow down to the ground. This is a very consummate little prayer.
 
 After doing the small prayer, then lie down on the whole body and do the big prayer. This kind of worship is very rewarding.
 
 A prostration can accumulate the same blessings as a wheel-turning king, eliminate karma in body, speech, and mind, and obtain the blessings of Buddhas and Tathagatas in body, speech, and mind.
 
-To pay homage to the guru, put your hands together and put your palms on the top of your head, you can get the blessing of the guru, and the merit is to be reborn in the pure land.
+To pay homage to the guru, put your hands together and put your palms on the top of your head, you can get the blessing of the guru, and the benefit is to be reborn in the pure land.
 
 Promise to the Buddha, put your hands together and put your palms on your forehead, you can get the blessings of all Buddhas and Tathagatas, and can eliminate the karma created by your body.
 
 Promise, put your hands together and put your palms on your throat, you can get the blessings of 84,000 Dharma doors, and can eliminate the karma of oral creation.
 
-Promise to the monk, put your hands together and put your palms on your heart, you can get the blessings of Bodhisattvas, Arahants, and Dharma protectors.
+Promise to the Sangha, put your hands together and put your palms on your heart, you can get the blessings of Bodhisattvas, Arhats, and Dharma protectors.
 
-Because bodhisattvas, arahants, and transcendent Dharma protectors are all Sangha treasures, they can eliminate karma created by intention and accumulate great blessings.
+Because bodhisattvas, arhats, and transcendent Dharma protectors are all Sangha treasures, they can eliminate karma created by intention and accumulate great blessings.
 
 Prostration is also a kind of exercise, and prostration is the best exercise for the whole body. On the one hand, the exercise will bring blessings and eliminate karma, which is very special.
 
-When doing this kind of worship, do not exclude the worship of the sutras, nor the worship of the Hinayana.
+When doing this kind of worship, do not exclude the worship of the Sutras, nor the worship of the Hinayana.
 
-The obeisance of the Xianzong also has the obeisance of body, speech and mind, while the obeisance of the Hinayana is only of the body and mind.
+The Prostration of the Mahayana also has the Prostration of body, speech and mind, while the Prostrations of the Hinayana is only of the body and mind.
 
 Although they are all bowing down, there are still some differences in terms of whether they are consummated or not.
 
-When prostrating, the first is to prostrate with one's body, recite the prostration text, and at the same time visualize the body transforming into countless bodies, bowing to the three deities of Tsongkhapa, master and apprentice, and bowing to the three jewels of the guru.
+When prostrating, the first is to prostrate with one's body, recite the prostration text, and at the same time visualize the body transforming into countless bodies, bowing to the three deities of Master Tsongkhapa and his apprentices, and bowing to the three jewels of the guru.
 
-Then there is the prostration of the mouth, visualizing every pore of the body becoming a mouth with a tongue, and each mouth recites the prayer of Master Tsongkhapa: Mingmei blames Wei to see the hot color, straight wheat, and the like of Jiang Bei. Duhong Ma Lu Jiong Zaishan Weide Gangchen Kebezujian Tsongkhapa Lobsang Zabesha La Sowadi.
+Then there is the prostration of the mouth, visualizing every pore of the body becoming a mouth with a tongue, and each mouth recites the prayer of Master Tsongkhapa: 
+
+----
+>
+>Objectless compassion, Chenrezig,
+>
+>Lord of stainless wisdom, Manjushri,
+>
+>Conquering mara’s horders, Vajrapani,
+>
+>Crown jewel of the Sages of the Land of Snows, Tsongkhapa,
+>
+>Losang Drakpa, at your feet, I pray.
+>
+----
 
 Thinking about it like this is very special.
 
-Then there is the Yi Ding Li, the belief in the Three Jewels is the Yi Ding Li, the quiet faith, the belief that does not turn back is the Yi Ding Li.
+Then there is Bowing Down, the belief in the Three Jewels is  Bowing Down, the quiet faith, the belief that does not turn back is Bowing Down.
 
-The function of prostration is to generate respect and purity for the Three Jewels of Refuge, and it can counteract arrogance. When kneeling down to pray, it will give up arrogance.
+The function of prostration or bowing is to generate respect and purity for the Three Jewels of Refuge, and it can counteract arrogance. When kneeling down to pray, we will give up arrogance.
 
-When bowing, recite:
+When bowing down, recite:
 
 Knowing all the wisdom
 
@@ -1282,11 +1331,13 @@ He taught the scriptures based on the foundation of his disciples.
 
 Master Tsongkhapa wrote nineteen (according to the Ta'er Monastery edition) very thick works in his lifetime, each of which is the essence of eighty-four thousand teachings.
 
-There used to be a great siddha who said: Suppose the Tripitaka of Ganzhuer and Danzhuer was destroyed by others (that is the karma of slandering the Dharma), and it no longer exists, as long as the ten thousand words of Master Tsongkhapa If the nine books exist, then the Dharma will remain splendid and will not be destroyed. Everyone knows the essence of the 84,000 Dharma schools of Shakyamuni Buddha. It is difficult to understand the true meaning of the Buddhist scriptures directly by reading the scriptures.
+There used to be a great siddha who said: 
 
-No matter how deep the foundation of sentient beings is, the Fa that Buddha Shakyamuni taught will be as deep.
+Suppose the Tripitaka of Ganzhuer and Danzhuer was destroyed by others (that is the karma of disparaging the Dharma), and it no longer exists, as long as the ten thousand words of Master Tsongkhapa If the nine books exist, then the Dharma will remain splendid and will not be destroyed. Everyone knows the essence of the 84,000 Dharma schools of Shakyamuni Buddha. It is difficult to understand the true meaning of the Buddhist scriptures directly by reading the scriptures.
 
-For example, the Fa taught by Buddha Shakyamuni to the bodhisattvas of the ten places is not suitable for ordinary sentient beings; the Fa taught by Buddha Shakyamuni to Yaksha sentient beings is only suitable for Yaksha sentient beings and not suitable for other sentient beings.
+No matter how deep the foundation of sentient beings is, the Dharma that Buddha Shakyamuni taught will be as deep.
+
+For example, the Dharma taught by Buddha Shakyamuni to the bodhisattvas of the ten places is not suitable for ordinary sentient beings; the Dharma taught by Buddha Shakyamuni to Yaksha sentient beings is only suitable for Yaksha sentient beings and not suitable for other sentient beings.
 
 So for different foundations, Buddha Shakyamuni taught different methods.
 
@@ -1354,7 +1405,7 @@ Offering lamps not only brings wealth, but also enlightens wisdom.
 
 Some people have problems with their eyes, but if they provide 100,000 or a million lamps, their eyes will get better. There are many such cases.
 
-The teacher's body, speech and meaning are incredible.
+The teacher's body, speech and mind are incredible.
 
 For example, Zhangjia Living Buddha, the national teacher of Emperor Qianlong, was blind, his eyelids drooped down, and he could not open it no matter how he opened it.
 
@@ -1388,13 +1439,15 @@ Once, one of his disciples returned to the secular world and was very afraid to 
 
 Originally, he shouldn't wear a hat when he sees Master, and he has to take off his hat when he sees Master, but he still wears a hat.
 
-When I came in, the master said who you are, I can't see it.
+When I came in, the master said who you are, I can't see you.
 
 But when he approached, Master said, "Hey, why are you wearing a hat to see Master?" It was because he forgot to take off his hat when he was nervous.
 
 Then the master said, "Come closer, I don't know who you are.
 
-Where is your head? "He said, "Master, your head is under the hat. Just now, under that hat was my head."
+Where is your head? "
+
+He said, "Master, your head is under the hat. Just now, under that hat was my head."
 
 "So the naked eye can have it or not, and the wise eye can see everything.
 
@@ -1430,11 +1483,11 @@ How to repent? You can repent in the presence of a Buddha statue or the Three Je
 
 I repent of the karma that I have created in my life after life, including all the karma created by my body, speech and mind, the karma created by greed, hatred and delusion, and the karma caused by breaking the vows.
 
-You must repent of all the karma you have created in your life.
+You must repent of all the karma you have created in your lifetimes.
 
 The karma created by the body includes killing, stealing, and sexual immorality; the karma created by the mouth includes lying, alienating, malicious, and flattering.
 
-The biggest karma in verbal karma is slandering the Buddhadharma, which is as big as killing an arahant.
+The biggest karma in verbal karma is disparaging the Buddhadharma, which is as big as killing an arhat.
 
 The "three disciplines" are the vows of not liberation, the vows of bodhisattvas, and the vows of tantric vehicles.
 
@@ -1494,9 +1547,9 @@ There are five areas to rejoice in:
 
 2. Rejoice in the merits and blessings of all Bodhisattvas;
 
-3. Hearing the merits and blessings of an arahant with the happy voice;
+3. Hearing the merits and blessings of an arhat with the happy voice;
 
-4. Acknowledge the merits and blessings of an arahant according to the predestined relationship;
+4. Acknowledge the merits and blessings of an arhat according to the predestined relationship;
 
 5. Rejoice in the merits and blessings of ordinary people (people who have not realized emptiness).
 
@@ -1510,17 +1563,17 @@ We should follow the merits of Master Xi Tsongkhapa, such as cultivating, lectur
 
 At that time, there were more than 660,000 monks in the six major monasteries in Tibet, and Master Tsongkhapa was the most accomplished master in the six major monasteries.
 
-Master Tsongkhapa founded the Gelug Sect of the Yellow Sect after Wen Sixiu was completed.
+Master Tsongkhapa founded the Gelug Sect of the Yellow Hat after Wen Sixiu was completed.
 
 All are welcome.
 
 Master Tsongkhapa made offerings of mandalas a million times during his retreat in Vokacheron, Tibet, and we should rejoice in this.
 
-Master Tsongkhapa's four major industries are the establishment of Gelum Moran, the establishment of Ganden Monastery, the reconstruction of the Maitreya Buddha in Tibet, and the salvation of Tibetan Buddhism (mainly in terms of precepts).
+Master Tsongkhapa's four major industries are the establishment of the Monlam festival, the establishment of Ganden Monastery, the reconstruction of the Maitreya Buddha in Tibet, and the salvation of Tibetan Buddhism (mainly in terms of precepts).
 
-Master Tsongkhapa founded Gelumoran (Gelug Dharma).
+Master Tsongkhapa founded the Monlam festival (Gelug Dharma).
 
-Grum Moran is held every year from the 1st to the 15th day of the first lunar month, offering tens of thousands of tormas, 100,000 lamps, 100,000 glasses of water, tens of thousands of flowers (Zambaga) and so on every day.
+The Monlam festival is held every year from the 1st to the 15th day of the first lunar month, offering tens of thousands of tormas, 100,000 lamps, 100,000 glasses of water, tens of thousands of flowers (Zambaga) and so on every day.
 
 Tens of thousands of Tibetans and Tsongkhapa do this puja every year.
 
@@ -1532,13 +1585,23 @@ We should rejoice in these blessings and merits.
 
 "The eight dharmas are not empty when the time is full."
 
-The eight worldly dharmas refer to: want to be praised, not criticized; want to gain, not want to lose; want happiness, not pain; want fame, not obscurity or neglect.
+The eight worldly dharmas refer to: 
+
+want to be praised, not criticized; 
+
+want to gain, not want to lose; 
+
+want happiness, not pain; 
+
+want fame, not obscurity or neglect.
 
 What does it mean to cut off the eight dharmas in the world? When someone praises you, you are happy; when someone scolds you, you are miserable.
 
 Master Tsongkhapa will not do this, it doesn't matter if he praises him or scolds him.
 
-Praise, do not be greedy; scold, do not get angry.
+Praise, do not be greedy; 
+
+scold, do not get angry.
 
 Most people are happy when they have offerings, but they are not happy when they don’t.
 
@@ -1554,7 +1617,9 @@ This is the eight ways of breaking the world.
 
 When the eight worldly dharmas are broken, the mind will be truly balanced.
 
-Why are we unbalanced now? It’s because we haven’t broken the world’s eight dharmas, so we crave praise and can’t stand being scolded.
+Why are we unbalanced now? 
+
+It’s because we haven’t broken the world’s eight dharmas, so we crave praise and can’t stand being scolded.
 
 When you have reached a certain level in your practice, not only will you not be angry when you are scolded, but it will also be regarded as eliminating karma.
 
@@ -1568,11 +1633,13 @@ This is important.
 
 Venerable Atisha had two Brahmin disciples who were very bad-tempered, and the other disciples persuaded Venerable Atisha to drive these two disciples out.
 
-Venerable Atisha said: No, these two are my masters. Whether I can succeed in practicing forbearance depends on them.
+Venerable Atisha said: 
+
+No, these two are my masters. Whether I can succeed in practicing forbearance depends on them.
 
 Who dares to scold me in the Tibetan area now? No one dared to scold me, only the two of them dared to scold me, and the two of them were my masters.
 
-(6) Please turn the Falun
+(6) Please turn the Wheel of Dharma
 
 supreme masters
 
@@ -1582,13 +1649,13 @@ Willing to weigh the soil of the machine
 
 Universal rain of magic
 
-Please meditate in your heart when turning the wheel of Falun: I pray to the three masters and disciples of Tsongkhapa, to turn the wheel of Falun mercifully to save all sentient beings.
+Please meditate in your heart when turning the Wheel of Dharma: I pray to the three masters and disciples of Tsongkhapa, to turn the Wheel of Dharma mercifully to save all sentient beings.
 
-The function of turning the Falun is to save sentient beings in the six realms.
+The function of turning the Wheel of Dharma is to save sentient beings in the six realms.
 
 I made this request a few times in my heart, and then visualized that the three masters and disciples of Tsongkhapa transformed many incarnations to go to various places in the world, and transformed many masters to go to various places to teach scriptures, teach the Fa, and save sentient beings. This is a request.
 
-Before teaching the scriptures, you must ask for the Fa.
+Before teaching the scriptures, you must ask for the empowerment.
 
 The law must require it, unlike school lectures.
 
@@ -1598,27 +1665,29 @@ Asked for a few functions:
 
 First, accumulate great blessings;
 
-Second, the karma of slandering the law can be eliminated;
+Second, the karma of disparaging the Dharma can be eliminated;
 
 Third, you will cherish this practice.
 
 Because this is what I begged, not sent to me, so I have to cherish it.
 
-"The Cloud of Compassion and Wisdom", the master's wisdom and compassion are the cloud, the rain that falls from the cloud is the Fa, the disciple's foundation is the soil, and our desire for liberation is the seed.
+"The Cloud of Compassion and Wisdom", the master's wisdom and compassion are the cloud, the rain that falls from the cloud is the Dharma, the disciple's foundation is the soil, and our desire for liberation is the seed.
 
-When we have this seed, the teacher will teach the scriptures and spread the Fa, and if the rain of the Fa falls on the foundation of our disciples, the seed will germinate and bear fruit. That’s what it means.
+When we have this seed, the teacher will teach the scriptures and spread the Dharma, and if the rain of the Dharma falls on the foundation of our disciples, the seed will germinate and bear fruit. That’s what it means.
 
-(7) Backward
+(7) Transfer of merit
 
-do my best
+>
+>Through the virtues I have accumulated here,
+>
+>May the teachings and all living beings receive every benefit. 
+>
+>Especially may the essence of the teaching
+>
+>Of Lama Je Tsong Khapa shine forever.
+>
 
-Benefit the Dharma and sentient beings
-
-May His Holiness Tsongkhapa
-
-The holy career will be revealed for a long time
-
-After turning back, the blessings will not disappear.
+After the Transfer of merit, the blessings will not disappear.
 
 If there is no devotion, a lot of good fortune will be eliminated when you get angry, jealousy will also eliminate good fortune, and many troubles will be eliminated.
 
@@ -1634,7 +1703,7 @@ Get angry at the enemy, and you suffer and take away your good fortune.
 
 But after devotion, not only will this blessing not disappear, but it will become bigger and never disappear, so devotion is very important.
 
-For example, the reward of your blessings is to become a Buddha. When you become a Buddha, the reward will come out.
+For example, the reward of your blessings is to become a Buddha. When you become a Buddha, the reward will arrive.
 
 Before becoming a Buddha, no matter how much the retribution comes out, it will never be finished.
 
@@ -1644,27 +1713,29 @@ The most extraordinary devotion is that the Buddhadharma will live forever in th
 
 The Buddhadharma can benefit all beings. With the Buddhadharma, we will have the wisdom to truly get rid of suffering and attain happiness, and will have a direction.
 
-"To do all the good roots I have accumulated", the good roots are their own blessings.
+"Through the virtues I have accumulated here,", the virtues are their own blessings.
 
-"Benefit the Dharma and sentient beings", benefit the Dharma and sentient beings.
+"May the teachings and all living beings receive every benefit." Benefit the Dharma and all sentient beings.
 
-"Especially wish His Holiness Tsongkhapa, the holy teaching career will be manifested for a long time", especially the Dharma door of devotion to Master Tsongkhapa's double cultivation of esoteric and esoteric living for a long time.
+"Especially may the essence of the teaching Of Lama Je Tsong Khapa shine forever.", especially the Dharma door of devotion to Master Tsongkhapa's double practice of sutra and tantra live for a long time.
 
 4. Prayer of Master Tsongkhapa
 
-Mingmei Shiwei got to see the hot color in person
-
-Zhimai's pro is more than Wang so that Jiang is sad
-
-Du Hong Ma Lu Jiong Zai San Weed
-
-Gangchen Kebezuchen Tsongkhapa
-
-Lausanne Zabechara Sowadi
+>
+>Objectless compassion, Chenrezig,
+>
+>Lord of stainless wisdom, Manjushri,
+>
+>Conquering mara’s hordes, Vajrapani,
+>
+>Crown jewel of the Sages of the Land of Snows, Tsongkhapa,
+>
+>Lobsang Drakpa, at your feet, I pray.
+>
 
 This is the prayer of Master Tsongkhapa in Tibetan.
 
-If time is sufficient, before reciting Master Tsongkhapa's prayer, he should make offerings to the three masters and disciples of Tsongkhapa.
+If time is sufficient, before reciting Master Tsongkhapa's prayer, you should make offerings to the three masters and disciples of Tsongkhapa.
 
 Master Tsongkhapa's prayer is very special.
 
@@ -1674,19 +1745,21 @@ Master Tsongkhapa's prayer has both Chinese and Tibetan versions, but the Tibeta
 
 Therefore, it is better to use Tibetan when reciting prayers.
 
-Chinese can only translate about 95% of the meaning, but not 100% because the content of this prayer is too profound.
+Chinese can only convey about 95% of the meaning, but not 100% because the content of this prayer is too profound.
 
 The following is the prayer of Master Tsongkhapa in Chinese:
 
-no predestined sadness
-
-Unsullied Wisdom King's Subtle Sound
-
-The Secret Lord of the Devil's Army
-
-Snowland Zhiyan Tsongkhapa
-
-Prayer before Lobsang Chava
+>
+>Objectless compassion, Chenrezig,
+>
+>Lord of stainless wisdom, Manjushri,
+>
+>Conquering Mara’s hordes, Vajrapani,
+>
+>Crown jewel of the Sages of the Land of Snows, Tsongkhapa,
+>
+>Lobsang Drakpa, at your feet, I pray.
+>
 
 "Avalokitesvara", "Avalokitesvara" is the holy name of Guanyin Bodhisattva.
 
@@ -1696,17 +1769,17 @@ Prayer before Lobsang Chava
 
 The holy names of the three parents are all included.
 
-"Snowland Zhiyan Tsongkhapa, pray in front of Luosang Zhahua", "Luosang Zhahua" is the holy name of Master Tsongkhapa.
+"Crown jewel of the Sages of the Land of Snows, Tsongkhapa, Lobsang Drakpa, at your feet, I pray.", "Lobsang Drakpa" is the holy name of Master Tsongkhapa.
 
 Master Tsongkhapa's prayer contains four holy names.
 
 The merits of the four holy names.
 
-The merit of reciting the holy name of Guanyin Bodhisattva is the same as the merit of reciting the holy name of Buddha and Bodhisattva as many as 6.2 billion grains of sand in the Ganges.
+The merit of reciting the holy name of Guanyin Bodhisattva (Avalokitesvara) is the same as the merit of reciting the holy name of Buddha and Bodhisattva as many times as 6.2 billion grains of sand in the Ganges.
 
-The merit of reciting the holy name of Manjushri is the same as the merit of reciting the holy name of the Buddhas and Tathagatas, because Manjushri Bodhisattva is the master of the Buddhas and Tathagatas. Before the Buddhas and Tathagatas became Buddhas, he was the master of the Buddhas and Tathagatas. The Buddha taught the scriptures and preached the Dharma.
+The merit of reciting the holy name of Manjushri is the same as the merit of reciting the holy name of the Buddhas and Tathagatas, because Manjushri Bodhisattva is the teacher of the Buddhas and Tathagatas. Before the Buddhas and Tathagatas became Buddhas, he was the teacher of the Buddhas and Tathagatas. The Buddha taught the scriptures and preached the Dharma.
 
-After they became Buddhas, Manjushri became the disciples of all Buddhas and Tathagatas, and propagated the Dharma.
+After they became Buddhas, Manjushri became the disciple of all Buddhas and Tathagatas, and propagated the Dharma.
 
 The vow power of Manjushri is the most extraordinary vow power of the Buddhas and Tathagatas.
 
@@ -1722,29 +1795,29 @@ The compassionate heart of Guanyin Bodhisattva is as great as that of Master Tso
 
 "Unsuccessful sadness and contemplation of freedom" has the meaning of inner and outer secrets, and the meaning of outer secrets is this.
 
-What does "The Unsullied Wisdom King's subtle sound" mean? How much wisdom is Manjushri Bodhisattva, so much wisdom is Master Tsongkhapa, Master Tsongkhapa is the incarnation of Manjushri Bodhisattva.
+What does "The Unsullied Wisdom King's subtle sound" mean? The wisdom of Manjushri Bodhisattva, is the same as the wisdom of Master Tsongkhapa. Master Tsongkhapa is the incarnation of Manjushri Bodhisattva.
 
-"Secret Master of Destroying the Demon Army", as great as Vajrapani Bodhisattva is, Master Tsongkhapa has as much power, and Master Tsongkhapa is the incarnation of Master Tsongkhapa.
+"Conquering Mara’s hordes", as great as Vajrapani Bodhisattva is, Master Tsongkhapa has just as much power, and Master Tsongkhapa is the incarnation of Vajrapani Bodhisattva.
 
 Master Tsongkhapa is the incarnation of compassion, wisdom and power of all Buddhas and Tathagatas.
 
-"Snow Region Zhiyan Tsongkhapa" means "Snow Region" refers to the Tibetan area.
+"Crown jewel of the Sages of the Land of Snows, Tsongkhapa" - "Land of Snows" refers to the Tibetan area.
 
-All the great siddhas in the Tibetan area together are comparable to Master Tsongkhapa, and any single one is not as good as Master Tsongkhapa, so he is called Master Tsongkhapa Zhiyan.
+All the great siddhas in the Tibetan area together are comparable to Master Tsongkhapa, but any single one is not as good as Master Tsongkhapa, so he is called Master Tsongkhapa Crown jewel of the Sages.
 
 "Tsongkhapa", Tsongkha is the name of a place, and "ba" refers to people.
 
-"Praying before the Losang Drabha", "Losang Drabha" is the name of Master Tsongkhapa.
+"Lobsang Drakpa, at your feet, I pray.", "Lobsang Drakpa" is the name of Master Tsongkhapa.
 
-"Luosang Zhahua" is translated as virtuous.
+"Lobsang Drakpa" is translated as virtuous.
 
-I want to pray in front of Lobsang Drakwa, and I pray that Master Tsongkhapa will grant me the blessings of the Buddhas and Tathagatas, which is what I mean.
+I want to pray in front of Lobsang Drakpa, and I pray that Master Tsongkhapa will grant me the blessings of the Buddhas and Tathagatas, which is what I mean.
 
 Master Tsongkhapa's prayer has the meaning of inner and outer secrets, which is very special.
 
 It includes not only the prayers of the Buddhas and Tathagatas, but also the mantras of the four deities of Tantric Buddhism, which are very, very special.
 
-Reciting the prayers of Master Tsongkhapa can cut off afflictions, cut off knowledge and obstacles, and can also accumulate blessings, and especially open up wisdom, and can get the blessings of all Buddhas and Tathagatas.
+Reciting the prayers of Master Tsongkhapa can cut off afflictions, cut off obstacles to knowledge, and can also accumulate blessings, and especially open up wisdom, and can get the blessings of all Buddhas and Tathagatas.
 
 Master Tsongkhapa's prayer includes one hundred and eight methods of breathing, increasing, embracing, and punishing.
 
@@ -1754,33 +1827,33 @@ There is also a special method of praying for rain. If the sky does not rain and
 
 Master Tsongkhapa's prayer also has a weeding method, which is the method of getting rid of weeds.
 
-In the past, a master went to beg for alms. Many people closed their homes and were busy working in the fields. An old man named Cai Rangji was also busy pulling weeds in the fields. The master made alms with this old man.
+In the past, a master went to beg for alms. Many people closed their homes and were busy working in the fields. An old man named Cai Rangji was also busy pulling weeds in the fields. The master begged for alms from this old man.
 
 The old man said: I can give you something to eat, but I don't have time to get it.
 
 The master said: You go get something, I will pull the weeds.
 
-The weeds were removed from the field by weeding.
+The weeds were removed from the field.
 
 And no weeds will grow for 100 years after weeding.
 
-Master Tsongkhapa's prayer also includes one hundred and eight kinds of methods of eliminating diseases, especially the methods of eliminating dragon diseases, as well as methods of eliminating evil spirits, methods of attracting wealth, and methods of longevity.
+Master Tsongkhapa's prayer also includes one hundred and eight kinds of methods of eliminating diseases, especially the methods of eliminating dragon diseases, as well as methods of eliminating evil spirits, methods for attracting wealth, and methods of longevity.
 
 Therefore, there are three thick books explaining these five rituals and these methods.
 
-Last summer, I passed on these methods to the lamas of Tuola Monastery for four months in total.
+Last summer, I passed on these methods to the lamas of Tuole Monastery for four months in total.
 
-Master Xiu Tsongkhapa prays to the grammar door, and exorcising demons is the most extraordinary.
+Master Tsongkhapa prays to the grammar door, and exorcising demons is the most extraordinary.
 
-Tell you a story.
+Let me tell you a story.
 
-Master Tsongkhapa's esoteric disciple is called Xirao Sangge, and Xirao Sangge has a disciple called Huadan Sangwu.
+Master Tsongkhapa's tantra disciple is called Xirao Sangge, and Xirao Sangge has a disciple called Huadan Sangwu.
 
 Huadan Sangwu practiced in seclusion in one place, mainly cultivating the prayers of Master Tsongkhapa, and after a period of practice, he achieved it.
 
 When he visualizes the Great Weed, others can really see that he has become the Great Weed.
 
-He visualizes Vajra Hand, and others appear to him to be Vajra Hand.
+He visualizes Vajrapani, and others appear to him to be Vajrapani.
 
 He visualizes anything that can manifest.
 
@@ -1790,7 +1863,7 @@ In the place where he lived there was a large family with only one child.
 
 This child has been hindered by the upper body of the Demon King for three years, and the child has been sick for three years.
 
-The owner of this family invited all the best doctors in the Tibetan area to come over to see his child, but it didn't work.
+The head of this family invited all the best doctors in the Tibetan area to come over to see his child, but it didn't work.
 
 Asking many eminent monks and great virtues to do things doesn't work either.
 
@@ -1800,35 +1873,59 @@ It is often said that this one will die today, and that tomorrow will be taken a
 
 The people he talked about would die the next day, which was very effective.
 
-Later, the owner of this family went to Master Huadan Sangwu, knelt in front of Master Huadan Sangwu and explained the situation of his children in detail, and asked the master to exorcise the demons.
+Later, the head of this family went to Master Huadan Sangwu, knelt in front of him and explained the situation of his child in detail, and asked the master to exorcise the demons.
 
-Master Huadan Sangwu said: "Is it possible, I want to try it first.
+Master Huadan Sangwu said: "Is it possible, but I want to try something first.
 
-Take my rosary beads, take them down, put them one by one around the wall of your house, then put a pair of my shoes on either side of the door, and then put this seat cushion on the roof on which I sit, See what works.
+Take my rosary beads, take them down, put them one by one around the wall of your house, then put a pair of my shoes on either side of the door, and then put this seat cushion I am sitting on up on the roof. Let's see what happens.
 
-After the owner of the house did so, the Demon King said, "Oh, I want to run up, and the Great Weed is pressing me on it. Around this wall are the soldiers of the Yama King, and two wrathful deities are guarding it. there at the door.
+After the head of the household did this, the Demon King said, "Oh, I want to run up, and the Great Weed is pressing me on it. Around this wall are the soldiers of King Yama, and two wrathful deities are guarding it. There at the door.
 
-I really regret it now, why did I stay here for so long? "The Demon King cried.
+I really regret it now, why did I stay here for so long? "
 
-Seeing this, the owner of this family went to report to Master Huadan Sangwu.
+The Demon King cried.
 
-Master Huadan Sangwu said, "Then I will go."
+Seeing this, the head of this family went to report to Master Huadan Sangwu.
 
-As soon as Master Huadan Sangwu arrived at their home, the Demon King knelt down in front of Master Huadan Sangwu and said, "Forgive us, you forgive us all beings of the devil's way!" The master said, "I can't forgive you, all of you, the living beings of the devil's way, from now on. Can't hurt anyone in the future.
+Master Huadan Sangwu said, "I will come now."
 
-The Demon King said, "Our demonic beings are many times more numerous than your human beings!" We, the demonic beings, suck people's spirit, qi and blood, and people's energy, and we rely on this to live.
+As soon as Master Huadan Sangwu arrived at their home, the Demon King knelt down in front of Master Huadan Sangwu and said, 
+"Forgive us, you forgive us all beings of the devil's way!" 
 
-You are merciful to people, and we are also a type of sentient beings. You must also show great mercy! "The Demon King asked.
+The master said, "I can't forgive you, all of you, the living beings of the devil's way. From now on you can't hurt anyone in the future.
 
-Master Huadan Sangwu thought about it and said, "Yes, from now on, you can't harm the sentient beings who recite Master Tsongkhapa's prayer 108 times a day." The devil said, "Okay! I swear that we will never harm the sentient beings who recite Master Tsongkhapa's prayer one hundred and eight times a day, nor will we absorb their spirit, their blood, or their energy.
+The Demon King said, "We demonic beings are many times more numerous than your human beings! We, the demonic beings, suck people's spirit, qi and blood, and people's energy, and we rely on this to live.
 
-If among our demonic beings, anyone harms someone who has recited Master Tsongkhapa's prayers one hundred and eight times, the demon's head will be split into ten pieces, and its body will be split into 10,000 pieces. "So swore.
+You are merciful to people, and we are also a type of sentient being. You must also show great mercy! "
 
-Therefore, from now on, all beings of the demonic way will never harm those who recite the prayers of Master Tsongkhapa.
+
+Master Huadan Sangwu thought about it and said, "Yes, but from now on, you can't harm the sentient beings who recite Master Tsongkhapa's prayer 108 times a day." 
+
+The devil said, "Okay! I swear that we will never harm the sentient beings who recite Master Tsongkhapa's prayer one hundred and eight times a day, nor will we absorb their spirit, their blood, or their energy.
+
+If among our demonic beings, anyone harms someone who has recited Master Tsongkhapa's prayers one hundred and eight times, the demon's head will be split into ten pieces, and its body will be split into 10,000 pieces. "
+
+
+Therefore, from then on, all beings of the demonic way will never harm those who recite the prayers of Master Tsongkhapa.
 
 If you are afraid of ghosts, you can recite this prayer; if you are afraid of demons, it is better to recite this prayer.
 
-When reciting, it is even more special for everyone to recite in Tibetan: Ming Mei Zhewei has seen the hot sex Zhimai in person, Wang Bo Jiang Bei Sang Du Hong Ma Lu Jiong Zai Sang Wei De Gang Cen Ke Bei Zu Jian Tsong Kaba Losangdha Bechara Sowadi and everyone followed Master's Tibetan accent to learn this prayer meeting.
+When reciting, it is even more special for everyone to recite in Tibetan: 
+
+>
+>Objectless compassion, Chenrezig,
+>
+>Lord of stainless wisdom, Manjushri,
+>
+>Conquering Mara’s hordes, Vajrapani,
+>
+>Crown jewel of the Sages of the Land of Snows, Tsongkhapa,
+>
+>Lobsang Drakpa, at your feet, I pray.
+>
+
+
+Everyone followed Master's Tibetan accent to learn this prayer.
 
 There are many visualizations about this, and today I will tell you about visualizations.
 
@@ -1842,9 +1939,9 @@ It flows out through the tube of light and into your body.
 
 All the bad things are washed away and discharged, and then your body is filled with nectar water.
 
-After being filled with nectar water, some nectar water suddenly became Manjushri, and some nectar water became Prajna Sutra.
+After being filled with nectar water, some nectar water suddenly became Manjushri, and some nectar water became Avalokiteshvara.
 
-Both Manjusri Bodhisattva and Prajna Sutra emit immeasurable light, and the great wisdom, quick wisdom, deep wisdom, and eloquence wisdom of all Buddhas and Tathagatas have all become Manjushri, Prajna Sutra, or wisdom sword, and are integrated into your body.
+Both Manjusri Bodhisattva and Avalokiteshvara emit immeasurable light, and the great wisdom, quick wisdom, deep wisdom, and eloquence wisdom of all Buddhas and Tathagatas have all become Manjushri, Avalokiteshvara, or wisdom sword, and are integrated into your body.
 
 You just recite the prayer while you visualize it.
 
@@ -1858,23 +1955,25 @@ After 100,000 times of practice, it is best to insist on reciting it 108 times a
 
 5. Integration
 
-After reciting, visualize a thicker central channel in the middle of your body. Master Tsongkhapa's two disciples merged into Master Tsongkhapa's body. Master Tsongkhapa became smaller and smaller. The top of the head descends along the central channel, and imagine that your heart becomes an eight-petal lotus flower. The moon wheel is laid flat on the lotus flower. Master Tsongkhapa sits on the moon wheel. There is no difference.
+After reciting, visualize a thicker central channel in the middle of your body. Master Tsongkhapa's two disciples merged into Master Tsongkhapa's body. Master Tsongkhapa became smaller and smaller. The top of the head descends along the central channel, and imagine that your heart becomes an eight-petal lotus flower. The moon disc is laid flat on the lotus flower. Master Tsongkhapa sits on the moon disc. There is no difference.
 
 Master Tsongkhapa is always seated in your heart lotus.
 
-Then you read:
+Then you recite:
 
-Possessing the Supreme Treasure of the Master of Victory
+Please grant me the common and supreme realizations.
 
-Always sit in the lotus of my heart
+Glorious, precious root Guru,
 
-The vast heart of compassion holds me
+Please remain on the lotus and moon seat in my heart,
 
-Achievements that bestow body, speech and mind
+And in your great kindness, please remain with me.
+
+Please remain until I achieve the essence of Enlightenment.
 
 6. Praise
 
-There are many eulogies written by Master Tsongkhapa.
+There are many eulogies written about Master Tsongkhapa.
 
 Here are a few of the eulogies below.
 
@@ -1892,7 +1991,7 @@ Nyingma school master Jumirangpa praised and said:
 
 The Ultimate Principle of Buddha and Bodhisattva
 
-Dependent Origination Empty Profound Meaning
+Dependent Origination and Profound Meaning of Emptiness
 
 correct credible theory
 
@@ -1908,21 +2007,21 @@ exorcise evil spirits
 
 Invincible Tsongkhapa
 
-Finally, read back:
+Finally, recite the dedication back:
 
 I wish the World Tsongkhapa
 
-personally protect the Mahayana
+To personally protect the Mahayana
 
-The most wonderful way praised by the Buddha
+The most wonderful Way taught by the Buddhas
 
 No retreat in an instant
 
-Guru Yoga has conveyed Consummation to everyone.
+With this, the teaching on Guru Yoga has been conveyed to all of you here.
 
 When you have time, also take a look at the biography of Master Tsongkhapa.
 
-There are more than 20 kinds of Tibetan biographies of Master Tsongkhapa, and now there are one or two translations from Chinese.
+There are more than 20 versions in Tibetan of biographies of Master Tsongkhapa, and now there are one or two translations in Chinese.
 
 After reading the biography of Master Tsongkhapa, you will understand more.
 
@@ -1932,34 +2031,32 @@ Anyone who has studied these nineteen works will understand that if he was not a
 
 Everyone practice Guru Yoga of Master Tsongkhapa well.
 
-Guru Yoga
 
 Guru Yoga
-Forward:
+
+Beginning:
 
 Recite the "Heart Sutra" once, "Recite the Sutra often" once, "Longevity Prayer for Ngawang Gyatso Vajra Guru" once, "The Bodhi Path Steps" once, and "Guru Yoga" once.
 
-Right line:
+Action:
 
-recite
+Recite "Master Tsongkhapa's Prayer".
 
-"Master Tsongkhapa Prayer".
+Ending:
 
-End line:
+Recite "Ode to the Way of Victory" once, "Wishes for the Flourishing of the Gelugpa School" once, and "Great Dedication" three times.
 
-Recite "Ode to the Way of Victory" once, "Gelushan Religion Prosperity" once, and "Great Dedication" three times.
-
+![上师资粮田](/images/mastersfield.png)
 Teacher's Field of Merit
 
-MandalaMandala visualization
+![上师资粮田](/images/manzaVisual.png)
+Mandala visualization
 
-Teacher's Field of Merit
 
-Mandalapan
+![曼札盘](/images/manzapan.png)
 
-Mandalapan
+Mandala plate
 
-Mandala
 
 King of Baoshan
 
@@ -1969,7 +2066,7 @@ Satisfied Cow Natural Rice
 
 Mandala
 
-Lunbao
+Treasure Wheel
 
 Ruyibao
 
@@ -2003,11 +2100,11 @@ Burning Incense Goddess
 
 lantern girl
 
-Tuxiang Tiannv
+Tuxiang Tiannu
 
 goddess
 
-day
+sun
 
 moon
 
@@ -2015,19 +2112,72 @@ Umbrella
 
 Intimidate the Ten Directions Zunsheng Building
 
-day
+![日](/images/sunmoon.png)
 
-Mandala offering text
+**Mandala offering text**
 
-Om Ban Zare Ke ah Om is the golden foundation of great purity and freedom
+om benza bhumi ah hung 
 
-Om Ban Zare Ke Ah Hung is surrounded by iron surrounding mountains
+The earth is the golden ground, completely pure, full of beauty and power.
 
-The center is Shanwang Shengxumi, Shandong Shengshenzhou, southern Zhanbuzhou
+om benza rekhé ah hung
 
-Xiniu Hezhou Beiju Luzhou Shenzhou Shengshenzhou Fuzhou Biefuzhou Xiaoxingzhou Shengdao Xingzhou Guluzhou Yousheng Luzhou Baoshan King Ruyi Tree Full of Desires Natural Rice Wheel Treasure Ruyi Treasure Queen Treasure Minister Baoxiang Baobao General Treasure giant hidden bottle Hiking goddesses
+The circular iron mountain wall completely surrounds it; in the centre is the letter hūṃ—
 
-The sun and moon umbrellas intimidate all the heavens and people in the center of the ten directions. The pure, auspicious and perfect treasures are boundless and boundless. The sea of ​​dust solemnly lists the master, the deity, the three treasures, and the salty offerings. Cluster Sumeru, Four Continents, Sun, Moon, Strict Desires, Offerings to All Buddhas, Crowds, Climbing to the Pure Land, Praying for Use
+Meru, the king of mountains;
+
+In the East is Pūrva Videha,
+
+In the South is Jambudvīpa,
+
+In the West is Aparagodaniya,
+
+In the North is Uttarakuru,
+
+The sun,
+
+The moon—
+
+Beside them are Deha and Videha, Cāmara and Aparacāmara,
+
+Śāthā and Uttaramantriṇa,
+
+Kurava and Kaurava.
+
+The jewel mountain, the wish-fulfilling trees,
+
+The wish-fulfilling cows, the harvest which needs no sowing,
+
+The precious wheel, the precious gem,
+
+The precious queen, the precious minister,
+
+The precious elephant, the precious horse,
+
+
+The precious general, the vase of great treasure,
+
+The goddess of beauty, the goddess of garlands,
+
+The goddess of song, the goddess of dance,
+
+The goddess of flowers, the goddess of incense,
+
+The goddess of light, the goddess of perfume,
+
+The sun, the moon, the precious umbrella,
+
+The royal banner victorious in all directions:
+
+There is all the bountiful wealth of gods and men, complete and flawless—
+
+All this:
+
+I offer—
+
+Please accept it, with compassion, for the benefit of beings.
+
+Having accepted it, please grant your blessing!
 
 **Mandala**
 
@@ -2035,33 +2185,33 @@ Please generate Bodhicitta and listen carefully!
 
 Today is about Mandala.
 
-There are several aspects to Mandala to understand:
+There are several aspects to Mandalas to understand:
 
-The meaning of Mandala, the Thirty-seven Point Mandala Offering, the merits of Mandala, the seven point Mandala, and how to repair Mandala.
+The meaning of Mandala, the Thirty-seven Point Mandala Offering, the merits of Mandala, the Seven-point Mandala, and how to construct the Mandala.
 
-The meaning of Mandala
+**The meaning of Mandala**
 
 The purest, most complete, and most auspicious things in the entire universe are all offered to Buddhas and Bodhisattvas, and they are called Mandalas.
 
 Mandala is the way of accumulating good fortune, the most excellent method of accumulating good fortune.
 
-The more Mandala is repaired, the more blessings will grow.
+The more Mandalas are constructed, the more blessings will grow.
 
 The blessings have grown, and everything is done smoothly, and the wishes are fulfilled, and the practice is very fast.
 
 If you want to achieve success in your practice, you need to increase blessings, eliminate karmic obstacles, and get the blessing of the Three Jewels of Refuge of the Guru. With these conditions, practice can be accomplished.
 
-Mandalas can be divided into: outer Mandalas, inner Mandalas, mi Mandalas, and emptiness Mandalas.
+Mandalas can be divided into: outer Mandalas, inner Mandalas, secret Mandalas, and emptiness Mandalas.
 
 We must first understand outer Mandalas, and we must make offerings to outer Mandalas.
 
-Once you understand the outer Mandalas, and after you become familiar with the offerings, make offerings 100,000 or 200,000 times. After you make offerings slowly for a period of time (two or three months), you can pass on the inner Mandalas.
+Once you understand the outer Mandalas, and after you become familiar with the offerings, make offerings 100,000 or 200,000 times. After you make offerings slowly for a period of time (two or three months), you can move on to the inner Mandalas.
 
-Outer Mandalas is the foundation. If one is unfamiliar with Outer Mandala and lacks this foundation, then it is impossible to understand Nei Mandala.
+Outer Mandalas is the foundation. If one is unfamiliar with Outer Mandala and lacks this foundation, then it is impossible to understand Inner Mandala.
 
-Nei Mandala has made offerings for a period of time and can speak of Mi Mandala.
+Inner Mandala has made offerings for a period of time and can speak of Secret Mandala.
 
-After Mi Mandala has practiced for a few years, one can speak of emptiness Mandala.
+After Secret Mandala has practiced for a few years, one can speak of emptiness Mandala.
 
 This time we are going to talk about Outer Mandala.
 
@@ -2071,9 +2221,9 @@ Why is it called Thirty-seven Point Mandala Offering? It has thirty-seven differ
 
 The second one is the Twenty-Three Offering Mantra. It has only twenty-three different offerings, so it is called the Twenty-Three Offering Mantra.
 
-The third one is the Nine Offering Mandala, there are only nine different offerings.
+The third one is the Nine-Point Mandala Offering, there are only nine different offerings.
 
-The fourth is the Seven Offering Mandala, there are only seven different offerings.
+The fourth is the Seven-Point Mandala Offering, there are only seven different offerings.
 
 Thirty-seven Point Mandala Offerings include twenty-three offerings, nine offerings, and seven offerings.
 
@@ -2085,19 +2235,19 @@ Our lineage is the lineage of Gelugpa, that is, the lineage of Master Tsongkhapa
 
 There is a place in Lhasa called Vokacheron, where Master Tsongkhapa once retreated and offered Thirty-seven Point Mandala Offering a million times to the Mandala.
 
-At that time, he made offerings to Mandala and used the Bodhi Meridian on his right hand to rub the Mandala Plate until the skin around the Bodhi Meridian was completely broken and bleeding, and even the bones inside could be seen, to this extent.
+At that time, he made Mandala offerings and used the Bodhi Meridian on his right hand to rub the Mandala Plate until the skin around the Bodhi Meridian was completely broken and bleeding, and even the bones inside could be seen, to this extent.
 
-Master Tsongkhapa made offerings to the Mandala a million times, accumulating a lot of good fortune, and dedicating this blessing to the disciples who studied with Master Tsongkhapa in the Gelug Sect and the guardian of Gelug Teachers of teaching.
+Master Tsongkhapa made Mandala offerings a million times, accumulating a lot of good fortune, and dedicating this blessing to the disciples who studied with Master Tsongkhapa in the Gelug Sect and the guardian of Gelug Teachers of teaching.
 
 Because the blessing of Tsongkhapa's devotion is very, very large, the Gelugpa is usually richer.
 
 Gelug sect monasteries, Gelug sect disciples, and Gelug sect guardians are usually relatively wealthy, which is somewhat different from other sects.
 
-This is the reason why Master Tsongkhapa's offering to Mandala was blessed.
+This is the reason why Master Tsongkhapa's Mandala offering  was blessed.
 
 Our lineage is also the lineage of Master Tsongkhapa.
 
-With the inheritance of such an accomplished guru, if we practice Mantra according to this lineage, we will definitely be blessed by Master Tsongkhapa, and we will definitely be able to accumulate great blessings. This is very important and very important!
+With the inheritance of such an accomplished guru, if we practice Mantra according to this lineage, we will definitely be blessed by Master Tsongkhapa, and we will definitely be able to accumulate great blessings. This is very important!
 
 2. Thirty-seven Point Mandala Offering
 
@@ -2113,7 +2263,7 @@ The rain contains hardware, soil of various colors, gold, silver, crystal and ot
 
 After the heavy rain, because gold is relatively heavy, it slowly sank, forming a very thick foundation of gold, several kilometers thick.
 
-Mandala formed a boundless ocean on the golden foundation. The waves in the ocean moved and pushed the soil of the seabed to different places in the south, south and northwest, forming various mountains and terrains. In this way, the earth is formed.
+Mandala formed a boundless ocean on the golden foundation. The waves in the ocean moved and pushed the soil of the seabed to different places in the south, south and northwest, forming various mountains and terrains. In this way, the earth was formed.
 
 Outside the earth is the ocean.
 
@@ -2121,7 +2271,9 @@ When the universe was first formed, it was like this.
 
 Then, when offering the Mandala, recite and visualize:
 
-Om Ban Za Pot Mi A Hum
+#### ཨོཾ་བཛྲ་བྷུ་མི་ཨཱཿཧཱུྃ།།
+
+om benza bhumi ah hung
 
 This is a spell to bless the golden foundation.
 
@@ -2129,15 +2281,17 @@ Extremely pure and free golden foundation
 
 This is the golden foundation I just mentioned.
 
-om banzareka hum
+#### ཨོཾ་བཛྲ་རེ་ཁེ་ཨཱཿཧཱུྃ།།
 
-This is a mantra to visualize and bless Tieweishan.
+om benza rekhé ah hung
+
+This is a mantra to visualize and bless Iron Mountains.
 
 Surrounded by Iron Mountains
 
 Outside the entire universe, as described in Buddhist scriptures, there is a Tiewei Mountain, and the Tiewei Mountain surrounds a boundless giant tornado.
 
-Tieweishan should also be visualized.
+Iron Mountains should also be visualized.
 
 In these two sentences, I visualized the extremely pure golden foundation of great freedom, and all the gold several kilometers thick was offered to Buddhas and Bodhisattvas.
 
@@ -2149,33 +2303,33 @@ Surrounding Mount Sumeru is the Sea of ​​Nectar.
 
 In the sea of ​​nectar lived eight great dragon kings. Each dragon king had countless treasures. All these treasures and dragon kings should be offered to Buddhas and Bodhisattvas.
 
-The entire north, south, east and west of Mount Sumeru is formed by various gems.
+The entire north, south, east and west slopes of Mount Sumeru are made of various gems.
 
-For example, the east side of Mount Sumeru is formed by various gemstones mainly composed of crystal; the south side of Mount Sumeru is formed by various gemstones mainly composed of sapphire; the west side of Mount Sumeru is formed by various gemstones mainly composed of ruby. ; The north of Mount Sumeru is formed by various gems mainly made of gold.
+For example, the east side of Mount Sumeru is made of various gemstones mainly composed of crystal; the south side of Mount Sumeru is made of various gemstones mainly composed of sapphire or lapis lazuli; the west side of Mount Sumeru is made of various gemstones mainly composed of ruby; The north of Mount Sumeru is made of various gems mainly made of gold.
 
-The entire Mount Sumeru is formed by different treasures.
+The entire Mount Sumeru is made of different treasures.
 
 These are to be offered to Buddhas and Bodhisattvas.
 
-Mount Sumeru has four floors. The first, second, and third floors are where the yaksha living beings live. There are also human beings with supernatural powers and achievements, and some arahants living there, but mainly the yasha living beings live there.
+Mount Sumeru has four levels. The first, second, and third levels are where the yaksha living beings live. There are also human beings with supernatural powers and achievements, and some arhats living there, but mainly the yaksha living beings live there.
 
-On the first floor is Pan Yaksha.
+On the first level is Pan Yaksha.
 
-What is Pan Yaksha? King Pan Yaksha holds a golden plate in his hand, and there are various wish-fulfilling treasures in the golden plate.
+What is Pan Yaksha? King Pan Yaksha holds a golden plate in his hand, and there are various wish-fulfilling treasures on the golden plate.
 
 King Pan Yaksha has tens of billions of Yaksha sentient beings, each Yaksha is very rich, and every Yaksha has a treasury.
 
-The second floor is the Rosary Yaksha.
+The second level is the Rosary Yaksha.
 
-The rosary Yaksha king holds a wish-fulfilling rosary in his hand. There are tens of billions of yaksas on this floor, and he is very rich, even richer than the first floor.
+The rosary Yaksha king holds a wish-fulfilling rosary in his hand. There are tens of billions of yaksas on this level, and they are very rich, even richer than the first level.
 
-The third floor is Changle Yaksha.
+The third level is Ever-Happy Yaksha.
 
-Changle Yaksha beings are often extremely happy, they have almost no pain, their wealth is enormous, and there are also tens of billions of Yaksha beings on it.
+Ever-Happy Yaksha beings are often extremely happy, they have almost no pain, their wealth is enormous, and there are also tens of billions of Yaksha beings on this level.
 
-The fourth floor is where the Four Heavenly Kings live.
+The fourth level is where the Four Heavenly Kings live.
 
-The Four Heavenly Kings are the Heavenly King of Chiguo, the Heavenly King of Growth, the Heavenly King of Guangmu, and the Heavenly King of Duowen.
+The Four Heavenly Kings are the Heavenly King Dhatarattha, the Heavenly King Virūlhaka, the Heavenly King Virūpakkha, and the Heavenly King Vessavana.
 
 The Four Heavenly Kings also have many dependents and many treasures.
 
@@ -2183,7 +2337,7 @@ In the center is Mount Sumeru, the King of the Mountains
 
 When reciting, you should visualize the precious earth at the same time, and make offerings to Buddhas and Bodhisattvas on this earth and all living beings, jewels, and pure and perfect things on this earth.
 
-When cultivating together, the speed of everyone should be the same. When cultivating by yourself, you can visualize the center as the king of the mountain and Mount Sumeru. You can visualize it a little slower, it can be a few minutes. If you can't visualize it at that time, you can visualize it for a few hours or even a few days. The view came out and made offerings to the Buddha and Bodhisattva on Mount Sumeru.
+When training together, the speed of everyone should be the same. When cultivating by yourself, you can visualize the center as the king of the mountains, Mount Sumeru. You can visualize it a little slower, it can be a few minutes. If you can't visualize it at that time, you can visualize it for a few hours or even a few days. The view came out and made offerings to the Buddha and Bodhisattva on Mount Sumeru.
 
 East Shrine Island
 
@@ -2199,17 +2353,17 @@ It is the name of the earth to the south of Mount Sumeru.
 
 The Nanzhanbuzhou mentioned in the Buddhist scriptures refers to the earth we live in. There are more than 200 countries and a population of more than 7 billion. Each country has many tall buildings, trees, flowers, and gold and silver jewelry. All these must be visualized. Make offerings to Buddhas and Bodhisattvas.
 
-The blessings of offering to Mandala are very big, and if you really visualize it, the blessings of making an offering to Mandala are huge.
+The blessings of the Mandala offering are very big, and if you really visualize it, the blessings of making an offering to Mandala are huge.
 
 When we make offerings to Nanzhanbuzhou, we must especially visualize the Vajra seat in the middle of Nanzhanbuzhou.
 
 The Vajra Seat is Bodhgaya, the place where Sakyamuni Buddha attained enlightenment. At the same time, the Vajra Seat is also the place where one thousand Buddhas attained Buddhahood.
 
-To the east of Nanzhanbuzhou is Mount Wutai, which is the dojo of Manjushri.
+To the east of Nanzhanbuzhou is Mount Wutai, which is the seat of Manjushri.
 
 This kind of place where Manjushri Bodhisattva practices like the Pure Land, we ordinary people can't see it, but those who have achieved it can see it, and this also makes offerings to Buddhas and Bodhisattvas.
 
-In the south of Nanzhanbuzhou, there is the dojo of Guanyin Bodhisattva, which is Nanhai Potala, which refers to Putuo Mountain in Zhejiang, which also makes offerings to Buddhas and Bodhisattvas.
+In the south of Nanzhanbuzhou, there is the seat of Guanyin Bodhisattva, which is Nanhai Potala, which refers to Putuo Mountain in Zhejiang, which also makes offerings to Buddhas and Bodhisattvas.
 
 To the west of Nanzhanbuzhou is the Pure Land of Dakinis, Wujing Kanzhulin, and this Pure Land of Dakinis should also be offered.
 
@@ -2219,15 +2373,15 @@ There are a lot of people who have done it in Afghanistan before.
 
 The place where Buddha Shakyamuni first taught the secret teachings was Afghanistan, which used to belong to India.
 
-There was a king in India named King Enzabodhi, who made offerings to Shakyamuni Buddha and asked Buddha Shakyamuni for the Dharma.
+There was a king in India named King Indrabhuti, who made offerings to Shakyamuni Buddha and asked Buddha Shakyamuni for the Dharma.
 
 Buddha Shakyamuni asked him to become a monk, but he said no, he couldn't become a monk, and he couldn't do this ascetic practice.
 
-Buddha Shakyamuni said, what kind of practice do you want? He said that you want to practice happily, and he asked for a way to practice happily at home.
+Buddha Shakyamuni said, what kind of practice do you want? He said that he wanted to practice happily, and he asked for a way to practice happily at home.
 
 Then Buddha Shakyamuni taught him the Dharma Door of Tantric Buddhism - Dense Vajra.
 
-After preaching the Dharma, Buddha Shakyamuni gave King Enzhabodhi the empowerment of the Dharani Vajra, and King Enzhabodhi was accomplished.
+After preaching the Dharma, Buddha Shakyamuni gave King Indrabhuti the empowerment of the Dharani Vajra, and King Indrabhuti was accomplished.
 
 To other people in the country, Buddha Shakyamuni taught the esoteric Dharma, and all those people achieved it.
 
@@ -2235,9 +2389,9 @@ After everyone was accomplished, Afghanistan was emptied once, and all the peopl
 
 Afterwards, some people in the country achieved the achievement, flew to the pure land of various Buddhas and Bodhisattvas, and flew away; some people burned their bodies with natural fire and passed away.
 
-And just like that, the country is empty again.
+And just like that, the country was empty again.
 
-After it was empty, many people from outside lived in this place. At this time, a disciple of King Enzabodhi, who was accomplished by the dragon girl, went to teach sutras and esoteric methods. All the people were accomplished, and it was empty again.
+After it was empty, many people from outside lived in this place. At this time, a disciple of King Indrabhuti, who was accomplished by the dragon girl, went to teach sutras and esoteric methods. All the people were accomplished, and it was empty again.
 
 The country of Afghanistan has been emptied three times in total.
 
@@ -2265,7 +2419,9 @@ Three hundred and thirteen years from now, that is, when the twenty-fifth Dharma
 
 This Shambhala Pure Land can also make offerings to Buddhas and Bodhisattvas.
 
-115 Nanzhanbuzhou, we probably all know that there are more than 200 countries with the purest, most complete, and most precious things, and everyone can make offerings to Buddhas and Bodhisattvas.
+115 
+
+Nanzhanbuzhou, we probably all know that there are more than 200 countries with the purest, most complete, and most precious things, and everyone can make offerings to Buddhas and Bodhisattvas.
 
 Nishiniu Hezhou is the name of the earth to the west of Mount Sumeru.
 
@@ -2862,9 +3018,9 @@ Which Dharma door is cultivated is full of Dharma joy, very happy, and happy whe
 
 When you don’t get the blessings, your voice will become hoarse after reciting a little sutra, then your mind will be very troubled and your body will feel uncomfortable.
 
-The biggest karmic obstacle is slandering the guru. If you want to eliminate this karmic obstacle, you must visualize the sameness of Vajrasattva and the teacher. Only then can it be eliminated. Even the like Vajrasattva cannot eliminate this karma.
+The biggest karmic obstacle is disparaging the guru. If you want to eliminate this karmic obstacle, you must visualize the sameness of Vajrasattva and the teacher. Only then can it be eliminated. Even the like Vajrasattva cannot eliminate this karma.
 
-Once you have visualized that your guru and Vajrasattva are indistinguishable from each other, and then recite the one-hundred-syllable mantra, even the karma of slandering your guru can be eliminated, and nothing else needs to be said.
+Once you have visualized that your guru and Vajrasattva are indistinguishable from each other, and then recite the one-hundred-syllable mantra, even the karma of disparaging your guru can be eliminated, and nothing else needs to be said.
 
 The precepts of the supreme tantric vehicle have fourteen fundamental vows, breaking one vow will lead to hell, let alone breaking all fourteen fundamental vows.
 
@@ -3618,7 +3774,7 @@ On the 10th and 25th of every month, the monastery holds the Dakini Buddha's Dha
 
 There are many magical Buddha treasures in the Tuole Monastery.
 
-Buddha statues: The Mahavira Hall of Tuole Monastery, with a golden outer wall, is extremely majestic. The hall enshrines the extremely extraordinary Manjushri, Medicine Buddha, Tathagata, Sakyamuni Buddha, Master Tsongkhapa, Venerable Atisha , Thousand-handed Avalokitesvara, Zuo Ming Buddha Mother, Vajra Hands, nine nine-meter-high Buddha and Bodhisattva statues, and also enshrined with sixteen Arhats and Twenty-one Taras.
+Buddha statues: The Mahavira Hall of Tuole Monastery, with a golden outer wall, is extremely majestic. The hall enshrines the extremely extraordinary Manjushri, Medicine Buddha, Tathagata, Sakyamuni Buddha, Master Tsongkhapa, Venerable Atisha , Thousand-handed Avalokitesvara, Zuo Ming Buddha Mother, Vajrapani, nine nine-meter-high Buddha and Bodhisattva statues, and also enshrined with sixteen Arhats and Twenty-one Taras.
 
 In the Dharma Protector Hall, there is a monastery Danjian Dharma Protector statue whose facial expressions change frequently.
 

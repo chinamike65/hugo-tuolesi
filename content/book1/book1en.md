@@ -670,7 +670,7 @@ It does not take long to recite one hundred thousand or even one million times i
 
 For example, twenty people recite the four refuges together: 
 
-Namo Gurubai, Namo Boudaya, Namo Damaya, and Namo Sangaya. 
+Namo Gurubeh, Namo Boudaya, Namo Damaya, and Namo Sangaya. 
 
 >
 >To the Guru for Refuge I go.
