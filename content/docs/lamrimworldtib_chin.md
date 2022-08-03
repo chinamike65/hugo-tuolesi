@@ -222,9 +222,9 @@ By offering this pure mandala to you assembly of Buddhas here before me,
 
 May all living beings experience pure happiness and be reborn in pure lands.
 
-宗喀巴大师祈请文：
+**宗喀巴大师祈请文：**
 
-Prayer of Master Tsongkhapa:
+**Prayer of Master Tsongkhapa:**
 
 （七遍以上，只念恒线上部分）
 
@@ -295,6 +295,8 @@ The vast heart of compassion holds me
 Giving the perfection of body, speech and mind
 
 #### གསལ་འདེབས། 
-            རྩོམ་འདིའི་པར་དབང་ངེད་དགེ་ལུགས་པའི་དྲ་བར་གཏོགས་པས་གང་འདོད་དུ་གཞན་དུ་མི་འགོད་པ་དང་། གལ་ཏེ་འགོད་ན་རྩོམ་ཁུངས་དང་སྦྲེལ་ཐག་གསལ་པོར་དགོད་པར་ཞུ། 
-                དྲ་བའི་སྦྲེལ་ཐགhttp://www.tb1025.cn
+
+##### རྩོམ་འདིའི་པར་དབང་ངེད་དགེ་ལུགས་པའི་དྲ་བར་གཏོགས་པས་གང་འདོད་དུ་གཞན་དུ་མི་འགོད་པ་དང་། 
+##### གལ་ཏེ་འགོད་ན་རྩོམ་ཁུངས་དང་སྦྲེལ་ཐག་གསལ་པོར་དགོད་པར་ཞུ། 
+##### དྲ་བའི་སྦྲེལ་ཐགhttp://www.tb1025.cn
 
