@@ -10,6 +10,8 @@ draft: false
 
 Homage to the precious noble masters!
 
+---
+
 The very essence of all the buddhas’ teachings,
 
 一切佛经心要义,
@@ -26,6 +28,7 @@ To the best of my ability, I shall now set forth.
 
 我今随力而宣说。
 
+---
 
 You who are unattached to saṃsāra’s pleasures,
 
@@ -43,6 +46,7 @@ Fortunate ones, listen well, with a clear and open mind.
 
 诸有缘者净意听。
 
+---
 
 Whilst lacking pure renunciation there is no way to pacify
 
