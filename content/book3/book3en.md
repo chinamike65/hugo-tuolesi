@@ -1337,7 +1337,7 @@ Several other masters of Master Tsongkhapa later worshiped Master Tsongkhapa as 
 
 In general, the morality of the master must surpass that of the disciple.
 
-(7) Diligent and diligent
+(7) Diligence and hard work
 
  As a teacher, you must be diligent, study hard, and constantly improve yourself.
 
@@ -1369,7 +1369,9 @@ To be a Mahayana teacher who teaches sutras and Dharma, one must meet the above 
 
 4. Requirements for a Tantric Guru: 
 
-A master of tantra empowerment needs to have many more conditions than a Mahayana master, and at least thirteen conditions must be met: uphold the three righteousness; be full of wisdom; be patient; be upright; No fraud; understand medicine and mantra; have compassion; know scriptures and teachings; master double ten methods;
+A master of tantra empowerment needs to have many more conditions than a Mahayana master. At least thirteen conditions must be met: 
+
+Uphold the three righteousness; be full of wisdom; be patient; be upright; No fraud; understand medicine and mantra; have compassion; know scriptures and teachings; master double ten methods;
 
 46
 
@@ -1377,27 +1379,58 @@ A master of tantra empowerment needs to have many more conditions than a Mahayan
 
  refers to the three righteousness of body, speech and mind.
 
-Righteousness: 
+ And avoiding the following harmful actions:
+
+ Body:
+
+1. Destroying life
+
+2. Taking what is not given
+
+3. Wrong sexual conduct
+
+Speech:
+
+4. False speech
+
+5. Slanderous speech
+
+6. Harsh speech
+
+7. Idle chatter
+
+Mind:
+
+8. Covetousness
+
+9. Ill will
+
+10. Wrong views
+
+
+Right Behaviour: 
 
 Do not kill, do not steal, do not commit adultery.
 
-Right speech: 
+Right Speech: 
 
-Don't lie, don't speak harsh words, don't say right or wrong.
+Don't lie, don't speak harsh words, don't talk about right or wrong.
 
-Right mind: 
+Right Mind: 
 
-no greed, no hatred, no wrong views.
+No greed, No hatred, No wrong views.
 
 Righteousness of heart is righteousness of mind.
 
-(2) The wisdom of the tantric empowerment masters who are full of wisdom is greater than that of the Mahayana sutra masters.
+(2) The wisdom of the tantric empowerment masters exceeds that of the Mahayana sutra masters. The ability to distinguish between good and evil must be very strong, and they must also have a very keen insight.
 
 (3) Tolerance: 
 
-To be able to endure humiliation, to be able to endure all kinds of hardships in the practice, and all kinds of hardships when teaching the Dharma.
+To be able to endure humiliation, to be able to endure all kinds of hardships in the practice, and all kinds of hardships while teaching the Dharma.
 
-(4) An upright tantric master must be upright, be kind-hearted, and not be cunning or scheming.
+(4) Upright character:
+
+Tantric masters must be upright, have a kind heart, and cannot be cunning or scheming.
 
 47
 
@@ -1405,120 +1438,148 @@ To be able to endure humiliation, to be able to endure all kinds of hardships in
 
 As a tantric master, one cannot deceive people.
 
-Originally, there is no supernatural power, so you cannot say that you have supernatural powers.
+There is no such thing as supernatural power, so you cannot say that you have supernatural powers. If you have not attained bodhicitta, you cannot say that you have bodhicitta, and you cannot deceive others.
 
-(6) To be able to save all sentient beings by understanding medicine and mantras, one must also be proficient in medicine and medicine.
+(6) Understand Medicine
+
+To be able to save all sentient beings, one must also be proficient in medical remedies and medicine in general.
 
 In Tantra, there are many ways to use medicine to eliminate disasters, and some medicines and tantric incantations can be used to eliminate disasters.
 
 So, as a tantric guru, it is very important to master these.
 
-(7) Guru who imparts precepts with a compassionate heart should have compassion, as should Mahayana and Tantric masters.
+(7) Compassion 
 
-To be a guru requires compassion.
+A Guru who imparts precepts must have compassion, as should all Mahayana and Tantric masters.
 
-(8) To be proficient in the sutras and teachings 
+To be a guru requires great compassion.
 
-One must be proficient in the teachings of the Great and Small Vehicles, as well as the teachings of the esoteric and esoteric teachings.
+(8) Deep Knowledge of scriptures and teachings
 
-As a Tantric Guru, it is a very important condition to understand all the scriptures and teachings of Theravada, Mahayana and Tantra.
+One must be proficient in the teachings of the Mahayana and Hinayana Vehicles, as well as the teachings of the Sutra and Tantra.
+
+As a Tantric Guru, it is a very important requirement to understand all the scriptures and teachings of Theravada, Mahayana and Tantra.
 
 48
 
-(9) Mastering the Double Ten 
+(9) Mastery of the Double Ten 
 
-Dharma Tantras are divided into outer and inner tantras.
+The Dharma of Tantra is divided into outer and inner tantras.
 
-The inner tantra refers to the tantra of the Supreme Yoga Department, and the double ten methods refer to the ten kinds of knowledge, skills and practices of the outer and inner tantra that the tantric master should master and be Dharmamiliar with.
+The outer tantras are of four classes.
 
-The lower tantric masters must master the ten outer tantric methods, and the supreme tantric masters must master the inner tantric ten methods.
+Kriya tantra (bya-rgyud) – ritual deity practice
 
-The ten outer secret methods include: drawing and contemplating mandala; yoga method; mudra method; body method; sitting posture method; mantra chanting method; fire offering method; Reading method.
+Charya tantra (spyod-rgyud) – behavioral deity practice
 
-(1) Drawing and contemplating mandala
+Yoga tantra (rnal-'byor rgyud)– integrated deity practice
 
- The mandala in the Ten Dharmas outside the mandala refers to the colored and colorless mandala. It is necessary to know how to draw and contemplate these mandalas.
+Anuttarayoga (bla-med rnal-'byor rgyud) – peerlessly integrated (highest yoga) deity practice.
 
-(2) Yoga 
+Three of these belong to the lower path.
+
+Ritual, Behavioural, and Yoga.
+
+The inner tantra refers to the tantra of the Supreme Yoga, and the double ten methods refer to the ten kinds of knowledge, skills and practices of the outer and inner tantras that the tantric master should be skilled or proficient in the use of.
+
+The lower tantric masters must master the ten outer tantric methods, and the Supreme Yoga masters must master the inner tantric ten methods.
+
+##### 1. 10 Outer Tantric Practices
+
+The ten outer secret methods include: Mandala offering; Guru yoga; mudra method; Prostration; sitting posture method; Vajrasattva mantra recitation; Zache Kadro fire puja method; Reading method.
+
+(1) Drawing, constructing and visualizing the mandala abodes of the meditational deities
+
+ The mandala in the 10 outer tantras refers to the colored and colorless mandala. It is necessary to know how to draw and contemplate these mandalas.
+
+(2) Maintaining the different states of single-minded concentration
 
 Yoga is the method of visualization, and you must know how to meditate.
 
-(3) There are many different mudras in the tantra of the mudra method. There are many mudras for offerings when making offerings, and there are also many mudras for welcoming guests.
+(3) Executing the hand gestures (mudras)
 
-As a tantric master, you must understand and know these handprints and footprints.
+There are many different mudras in the tantra of the mudra method. There are many mudras for offerings when making offerings, and there are also many mudras for welcoming guests.
 
-(4) The body method 
+As a tantric master, you must understand and know these hand and foot gestures.
+
+(4) Performing the ritual dances
 
 The body method is the method of how the body moves.
 
-When cultivating the pulse, the first step in cultivating the pulse is to soften the pulse of the whole body. At this time, it is necessary to use the body method to cultivate, which requires a lot of practice.
+When studying the energy-channels, the first step is to soften the channels of the whole body. At this time, it is necessary to use the body method to cultivate, which requires a lot of practice.
 
-In tantric yoga, there are many ways to cultivate Qi meridians, meridians, and adjust the body. You must understand all of these.
+In tantric yoga, there are many ways to cultivate Qi, channels, and adjust the body. You must understand all of these.
 
-(5) Sitting posture 
+(5) Sitting in the full meditation position
 
-Dharma door posture includes Vajra sitting and Bodhisattva sitting.
+Sitting postures include Vajra sitting and Bodhisattva sitting.
 
-There are also many kinds of Bodhisattva sitting, including lotus sitting and growth sitting.
+There are also many kinds of Bodhisattva sitting, such as lotus sitting and growth sitting.
 
-Maitreya Bodhisattva's sitting method is growth sitting, Vajra Buddha's sitting method is lotus sitting, and the essentials of these sitting methods must be mastered.
+Maitreya Bodhisattva's sitting method is the contemplative posture, Vajra Buddha's sitting method is lotus posture, and the essentials of these sitting methods must be mastered.
 
-(6) There are six Dharma faults in reciting mantras incorrectly: speaking too faast; speaking too slowly; unclear pronunciation; inaccurate pronunciation; too loud; too low.
+(6) Reciting what is appropriate to these two classes of tantra
 
-If you recite mantras, the blessing will be weak, so you must know how to recite mantras.
+There are six Dharma faults in reciting mantras incorrectly: speaking too fast; speaking too slowly; unclear pronunciation; inaccurate pronunciation; too loud; too soft.
 
-(7) Fire offering method 
+If you recite mantras incorrectly, the blessing will be weak, so you must know how to recite mantras correctly.
 
-Fire offering includes four kinds of fire offerings: breathing, increasing, embracing, and killing. You must know how to do it.
+(7) Making fire offerings 
 
-(8) The method of offering offerings should be familiar with the methods of offering external and internal secret offerings, as well as external offerings, internal offerings, and secret offerings.
+Fire offering includes four kinds of fire offerings: pacifying, enriching, magnetizing, and wrathful. 
 
-Xian sect has only external offerings, and only Tantric sects have internal offerings and esoteric offerings.
+You must know how to perform these.
 
-Internal offerings are offerings to the Kabbalah, and the Kabala insides offer nectar.
+(8) Making the various other offerings
 
-Secret offerings are the esoteric method. Offering offerings is indistinguishable from emptiness and happiness, and emptiness and great bliss are indistinguishable from each other, so it is called emptiness and happiness.
+ You should be familiar with the methods of offering external, internal, and secret offerings.
 
-(9) The interest increases and the death of the law: the news of the disaster and the elimination of the disaster.
+Mahayana has only external offerings, and only Tantric schools have internal offerings and secret offerings.
 
-Increase: 
+Internal offerings are offerings of the skull cap, containing nectar.
 
-increase merit, fortune, wealth.
+Secret offerings are the esoteric method. Offering offerings is indistinguishable from emptiness and happiness, and emptiness and great bliss are indistinguishable from each other, so it is called bliss of emptiness.
 
-Huai: 
+(9) Performing the rituals of:
 
-Huai loves all beings.
+a) Pacification of disputes, famine, and disease,
 
-Punishment: 
+b) Increase of life span, knowledge, and wealth,
 
-Do the Punishment method to exorcise demons.
+c) Power to influence others and
+
+d) Wrathful elimination of demonic forces and interferences
 
 Tantric masters must understand these methods.
 
-(10) When welcoming the deity, how to welcome the deity; after the invitation, how to make offerings and practice; after the practice, how to return the deity.
+(10) Invoking meditational deities and dissolving them back into their appropriate places
 
-These have specific rituals, visualizations, and you need to know how to do them.
+When welcoming the deity, how to welcome the deity; after the invitation, how to make offerings and practice; after the practice, how to return the deity.
+
+These have specific rituals and visualizations, and you need to know how to do them.
 
 The above are the Ten Dharmas of Outer Secrets.
 
-The Ten Inner Tantras include: 
+**The Ten Inner Tantras include:**
 
 wheel-guarding observation; amulet making; aquarium empowerment and secret empowerment; wisdom empowerment and speech empowerment; isolation; ; Soothing the gods and consecrating the light;
 
 
-(1) Contemplation of Wheel Protection
+(1) Visualizing wheels of protection and eliminating obstacles
 
  If the guru wants to protect a disciple for some reason, he can use the meditation gate to visualize an amulet or a wheel guard, and he must know how to visualize it.
 
-(2) How to make amulets 
+(2) Preparing and consecrating protection knots and amulets to be worn around the neck 
 
 Proficient in the writing and practice of amulets.
 
-(3) The treasure bottle empowerment method and the secret empowerment method include the immovable Tathagata aquarium water empowerment, the Amitabha Buddha Vajra holding empowerment, the Vajra Buddha Vajra bell empowerment, the Many Treasures Tathagata Crown Banner empowerment, and the Vairocana name empowerment.
+(3) Conferring the vase and secret initiations, planting the seeds for attaining a buddha’s form bodies
 
-Tantric masters need to be proficient in both bottle empowerment and tantric empowerment.
+The treasure bottle empowerment method and the secret empowerment method include the immovable Tathagata aquarium water empowerment, the Amitabha Buddha Vajra holding empowerment, the Vajra Buddha Vajra bell empowerment, the Many Treasures Tathagata Crown Banner empowerment, and the Vairocana name empowerment.
 
-(4) Wisdom empowerment method and speech empowerment method
+Tantric masters need to be proficient in both vase empowerment and tantric empowerment.
+
+(4) Conferring the wisdom and word initiations, planting the seeds for attaining a buddha’s wisdom bodies
 
  The only empty happiness obtained through the nectar blessed by Vajra Guru is wisdom empowerment.
 
@@ -1526,7 +1587,7 @@ The duality wisdom gained through the duality language recited by the guru is th
 
 Tantric masters should be proficient in wisdom empowerment and speech empowerment.
 
-(5) Isolation Law 
+(5) Separating the enemies of Dharma from their own protectors
 
 Some people often do evil, accumulate bad karma, and even destroy monasteries and cities, kill their fathers and mothers, destroy good laws, laws and regulations.
 
@@ -1538,7 +1599,7 @@ Generally, people who do these bad things are because the devil and other demons
 
 Tantric masters must be proficient in isolation.
 
-(6) Doma Dharmamen 
+(6) Making the offerings, such as of sculptured tormas
 
 Doma is also called Shizi. It is made of flour, ghee, and sugar. It has specific shapes and rituals.
 
@@ -1546,7 +1607,9 @@ It is used to make offerings to Buddhas, Bodhisattvas, deities, Dharma protector
 
 Different tormas are used in the four activities of breathing, increasing, embracing, and killing, and the tantric master must be proficient in the production and usage of various tormas.
 
-(7) The trick mantra for reciting mantra includes the vajra mantra, mind mantra, and wheel mantra.
+(7) Reciting mantras, both verbally and mentally, that is, visualizing them revolving around his heart
+
+The trick mantra for reciting mantra includes the vajra mantra, mind mantra, and wheel mantra.
 
 As a tantric master, in addition to knowing how to recite mantras, you must also master certain tricks of mantra recitation.
 
@@ -1562,15 +1625,19 @@ The wheel mantra is the mantra wheel.
 
  How to write it and how to visualize it must be very clear.
 
-(8) The trick to stimulate function refers to some methods of compulsory achievement and elimination of obstacles.
+(8) Performing wrathful ritual procedures for forcefully catching the attention of the meditational deities and protectors 
 
-(9) Soothing and consecrating the spirits 
+The trick to stimulate function refers to some methods of compulsory achievement and elimination of obstacles.
+
+(9) Consecrating images and statues 
 
 The soothing and consecrating methods include exorcising evil spirits, removing filth, contemplating Buddhas, welcoming Buddhas, making offerings, reciting mantras, transforming shapes, soothing the mind, consecrating the light, blessings, scattering flowers and praying for blessings, etc. There are many kinds of rituals.
 
 If there are stupas, halls, and statues that need consecration and blessing, as a Tantric Guru, you must be able to use these rituals proficiently.
 
-(10) Mandala meditation offering method refers to mastering how to meditate on the mandala of Wisdom Deity, Ultimate Bliss, etc., and how to make offerings after meditating.
+(10) Making mandala offerings, performing the meditational practices (sadhana) and taking self initiations
+
+Mandala meditation offering method refers to mastering how to meditate on the mandala of Wisdom Deity, Ultimate Bliss, etc., and how to make offerings after meditating.
 
 55
 
@@ -1589,6 +1656,7 @@ Some are written on paper and cloth, some are made of sand, and some are made of
 As a vajra guru, one needs to be proficient in tantra's Taoist sequence, tantric practice method, tantra's vital points of qi, secondary and other methods.
 
 (12) Faith 
+
 Firm Faith includes faith in the guru, the Three Jewels, and the deity.
 
 As a guru, these beliefs must be firm and not regressed.
@@ -1609,7 +1677,7 @@ When the eyes look at external objects, they do not have thoughts, and do not ge
 
 The above are the thirteen conditions that a master of tantric empowerment needs to meet.
 
-Section 2 - Getting close to the guru
+#### Section 2 - Getting close to the guru
 
  After understanding the requirements for a guru, if you encounter a guru with these virtues, you must rely on him, listen to the scriptures, listen to the Dharma, and study hard.
 
@@ -1619,13 +1687,13 @@ How to choose this?
 
 Both Thongtunpa and Sangpowa were disciples of the Venerable Atisha, and they were outstanding in every aspect.
 
-Master Thongdunpa founded the Kadam School. Master Sangpowa is a great translator and has made great contributions to the spread of Buddhism in Tibet, but the way they rely on their masters is completely different.
+Master Thongdunpa founded the Kadam School. Master Sangpowa was a great translator and has made great contributions to the spread of Buddhism in Tibet, but the way they relied on their masters is completely different.
 
-Master Sangpowa has many teachers, and when he hears that there are people teaching the Dharma, he will listen to them.
+Master Sangpowa had many teachers, and when he heard that there were people teaching the Dharma, he would listen to them.
 
 On the way to meet Venerable Atisha, he heard that a layman was teaching the Dharma nearby, and he also went to listen.
 
-His disciples all thought that they should not go. The disciples said, "To listen to the layman's teachings with your prestige is simply to damage your identity."
+His disciples all thought that they should not go. The disciples said, "To listen to the layman's teachings with your prestige is simply to damage your reputation."
 
 Master Sangpowa said: "You can't say that. At least if I listen to it, I will have the merit of hearing it and rejoicing."
 
@@ -1635,7 +1703,7 @@ On the contrary, Master Zhongdumba has only five teachers, two in India, three i
 
 So, which master's way of following a teacher is preferable?
 
-Once, when the two masters Bodova and Gombawa were together, they talked about this issue. In the end, they agreed that for the disciples who are just starting out, because their troubles are still more serious, they should look at the faults of others more than the merits and virtues of the master. If you haven't developed enough confidence to see your teacher as a Buddha, you should learn the way of relying on Master Zhongdunpa, and it is better to have less good teachers.
+Once, when the two masters Bodowa and Gombawa were together, they talked about this issue. In the end, they agreed that for the disciples who are just starting out, because their troubles are still more serious, they should look at the faults of others more than the merits and virtues of the master. If you haven't developed enough confidence to see your teacher as a Buddha, you should learn the way of relying on Master Zhongdunpa, and it is better to have less good teachers.
 
 Now some people have worshipped many teachers, learned from everyone, listened to everyone's Dharma, and attended when they heard that there was empowerment.
 
@@ -1691,7 +1759,7 @@ After making offerings to the guru, if you do not earnestly practice the Dharma 
 
 Therefore, it is very important to listen to the teacher's teaching and follow it.
 
-In addition, the disciple listens to the teacher's words and practices according to the teacher's teaching.
+In addition, the disciple listens to the teacher's words, and practices according to the teacher's teaching.
 
 61
 
