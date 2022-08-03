@@ -1767,7 +1767,7 @@ In addition, the disciple listens to the teacher's words, and practices accordin
 
  (1) The merits of making offerings to the guru 
  
- To make offerings to the guru, you must first know the merits of making offerings.
+To make offerings to the guru, you must first know the merits of making offerings.
 
 When you make offerings to the master, you make offerings to the Buddhas and Tathagatas.
 
@@ -1775,7 +1775,7 @@ In the Sequel to the Master of Victory Vajra, it says:
 
 Live in the body of the teacher and accept the confession of believers.
 
-what does it mean? This is to say that the four deities, such as the Victory Vajra, and the Buddhas and Tathagatas live in the body of the master and receive offerings from the disciples.
+What does it mean? This is to say that the four deities, such as the Victory Vajra, and the Buddhas and Tathagatas live in the body of the master and receive offerings from the disciples.
 
 If a disciple makes offerings to the guru, it is equivalent to making offerings to the four deities, and thus making offerings to the Buddhas and Tathagatas.
 
@@ -1783,11 +1783,15 @@ When the guru accepts the offering, the Buddhas and Tathagatas receive the offer
 
 Therefore, making offerings to the guru is a great way to accumulate blessings.
 
-If you only make offerings to Victory Vajra, then you can only make offerings to one deity; if you make offerings to Buddha Shakyamuni, you can only make offerings to one Buddha; if you make offerings to Amitabha, you also have the merits of making offerings to one Buddha.
+If you only make offerings to Victory Vajra, then you can only make offerings to one deity; 
 
-However, if you make offerings to the guru, you will have the merit of making offerings to the Buddhas and Tathagatas!
+if you make offerings to Buddha Shakyamuni, you can only make offerings to one Buddha;
 
-"Sambhuza Tantra" is a fundamental tantra of the Supreme Yoga Department of Tantra. In "Sambhuza Tantra", it says:
+if you make offerings to Amitabha, you also have the merits of making offerings to one Buddha.
+
+However, if you make offerings to the guru, you will have the merit of making offerings to all the Buddhas and Tathagatas!
+
+"Hevajra Tantra" is a fundamental tantra of the Supreme Yoga of Tantra. In the "Hevajra Tantra", it says:
 
 A single pore on the teacher's body, the merit surpasses the merits of offering offerings to all Buddhas and Bodhisattvas in the ten directions.
 
@@ -1811,7 +1815,7 @@ Serving the guru has incredible merit.
 
 Venerable Atisha had many highly accomplished disciples, and there was one disciple named Anijang Qu Rinchen, who was an old man.
 
-When he worshiped His Holiness as a teacher, he felt that he was very old and could not learn much about the Dharma. It was enough to serve the teacher well. He has been serving His Holiness for 17 years.
+When he worshipped His Holiness as a teacher, he felt that he was very old and could not learn much about the Dharma. It was enough to serve the teacher well. He had been serving His Holiness for 17 years.
 
 Later, among the disciples, he had the highest concentration and understanding.
 
@@ -1859,7 +1863,7 @@ When serving a teacher, you should treat your teacher as a Buddha or a Bodhisatt
 
 There is no Guru Yoga in Sutra, only in Tantra.
 
-The meaning of guru yoga is to visualize the indistinguishableness of the guru and the Buddha, the indistinguishability of the guru and the Buddha Shakyamuni, and the Buddhas and Tathagatas.
+The meaning of guru yoga is to visualize the indistinguishability of the guru and the Buddha, the indistinguishability of the guru and the Buddha Shakyamuni, and the Buddhas and Tathagatas.
 
 After contemplating in this way, because the guru is regarded as the Buddhas and Tathagatas, if you offer a cup of water to the guru, it is equivalent to offering a cup of water to the Buddhas and Tathagatas, not just one or two Buddhas.
 
@@ -1869,9 +1873,11 @@ In this way, in the moment of making offerings, there will be great merit, and i
 
 Therefore, the Dharma door of Tantra is very special.
 
-Xianzong does not have such a method.
+Mahayana does not have such a method.
 
-In the sutras, if offering offerings to Amitabha Buddha, only Amitabha Buddha will receive offerings; if offering offerings to Shakyamuni Buddha, only Shakyamuni Buddha will receive offerings.
+In the sutras, if offering offerings to Amitabha Buddha, only Amitabha Buddha will receive offerings; 
+
+if offering offerings to Shakyamuni Buddha, only Shakyamuni Buddha will receive offerings.
 
 If you want to make offerings to the Buddhas and Tathagatas, you must make offerings one by one.
 
@@ -1883,17 +1889,35 @@ Guru Yoga, a tantric practice, does not need to go through ascetic practices, an
 
 (3) With what kind of heart to serve the guru 
 
-When serving the guru, it will be more complete if you follow the "Nine Hearts of Respecting the Master" stated in the Huayan Sutra.
+When serving the guru, it will be more complete if you follow the "Nine Attitudes of Devotion to the Guru" as stated in the Huayan Sutra.
 
-The nine hearts are:
+The Nine Attitudes are:
 
 The mind of a filial son is to regard the master as a parent, and as a disciple is a filial son, serving the master with the mentality of a filial son.
+
+1. That of a filial child. Like a filial child, one thoroughly carries out the instructions of the Guru without the slightest deviation.
+
+2. That of a Vajra. Like a Vajra that cannot be split apart, even when facing division created by devils or bad associates, one will never split away from the Guru.
+
+3. That of the Earth. Like the Earth carrying everything in the world, one shoulders all assignments ordered by the Guru.
+
+4. That of the Iron Circle of Mountains. Like everlasting mountains, while abiding under the patronage of the Guru one endures hardships and sufferings without ever swaying in one’s determination.
+
+5. That of a servant. Like an obedient servant, even when one is obliged to carry out very difficult assignments one holds no grudges in one’s heart.
+
+6. That of a sweeper. Like a humble sweeper, one renounces self-pride and regards oneself as inferior to the Guru.
+
+7. That of a rope. Like a continuous rope, one rejoices in carrying on the Dharma activities of the Guru, regardless of its degree of difficulty and heaviness of load.
+
+8. That of a domestic dog. Like a loyal dog, even when the Guru ridicules, irritates or ignores one, one never responds with anger.
+
+9. That of a boat. Like a ferry one goes back and forth on the Guru’s assignments without any discontent.
 
 The "filial son" here is translated as "Shunzi" in Tibetan, and the word "shun" is highlighted, which means to obey the master's will.
 
 66
 
-Because people nowadays have strong ego-clinging, they are used to everything being self-centered, and they can do whatever they want.
+Because people nowadays have strong ego-clinging, they are used to everything being self-centered, and believe they can do whatever they want.
 
 To rely on the guru, one must throw away the ego and serve the guru like a filial son serves his parents.
 
@@ -1920,15 +1944,18 @@ Vajra Heart
 The heart of relying on the guru is the vajra heart that never changes.
 After relying on the guru, the heart of being close to the guru must never be shaken, and it can be as firm and indestructible as a vajra.
 
-Whether it is a "demon" who destroys the Dharma-rectification, learning and cultivation, or an evil friend who slanders the teacher and slanders the Dharma, none of them can destroy or shake the dependence relationship between oneself and the teacher, leading to separation from the teacher.
+Whether it is a "demon" who destroys the Dharma-rectification, learning and cultivation, or an evil friend who slanders the teacher and slanders the Dharma, none of them can destroy or shake the relationship between oneself and the teacher, leading to separation from the teacher.
 
 "Magic" here refers to those who hinder study.
 
-The scriptures say: "You should stay away. Friendship is impermanent, and affection is impermanent."
+The scriptures say: 
+
+"You should stay away. Friendship is impermanent, and affection is impermanent."
 
 That is to say, in order to take into account the relationship and affection of some friends, you cannot follow them and prevent yourself from relying on your guru.
 
 The center of the earth can carry anything, it can carry high-rise buildings, it can carry people and animals, it can also carry trees.
+
 Whatever the guru has to do, as a disciple, you should have the courage to undertake it, that is, the "earth heart" that bears heavy responsibilities.
 
 The earth's heart includes six aspects. Since you have made up your mind to take responsibility for your guru, you must do it from six aspects:
@@ -1949,7 +1976,7 @@ If what the guru instructs to do is relatively low, and think that it is not in 
 
 Once upon a time, there was a gathering place for great translators and wise men in the back of Tibet. There was a mud flat there. Zhong Dunpa took off his clothes to clean up the mud, and then spread a layer of clean white clay. He was still in front of Venerable Atisha. Made an altar.
 
-His Holiness was very happy when he saw it, smiled and said, "It's amazing that there are people like you in India, but Tibetan places are very rare."
+His Holiness was very happy when he saw it, smiled and said, "It's amazing that there are people like you in India, but in Tibetan places are very rare."
 
 In fact, as Zhongdumba, he could instruct others to do the dirty work, but he still did it himself.
 
@@ -1963,13 +1990,17 @@ India has a caste system. This kind of people is a lower caste. Because they hav
 
 The subordination of the human heart means that when doing things for the guru, one should be respectful and not have any thoughts of "arrogance" and "too slow", and always maintain a humble attitude to serve the guru.
 
-Master Zhongdunpa said: "I am slow to the high hills, and do not go out of the waters of virtue."
+Master Zhongdunpa said: 
+
+"I am slow to the high hills, and do not go out of the waters of virtue."
 
 It means that arrogance is like the top of a mountain and cannot accumulate merit water.
 
-Shu Owa also said: "At the beginning of spring, you should look at the high places on the top of the mountain, where the blue color grows everywhere, and the low places in the valleys and pits start first.
+Shu Owa also said: 
 
-"It means that in early spring, looking at the tops and valleys, where the grass grows first, it must be the grass that grows first in the low-lying areas, and then slowly grows to the top of the mountain.
+"At the beginning of spring, you should look at the high places on the top of the mountain, where the blue color grows everywhere, and the low places in the valleys and pits start first."
+
+It means that in early spring, looking at the tops and valleys, where the grass grows first, it must be the grass that grows first in the low-lying areas, and then slowly grows to the top of the mountain.
 
 Therefore, it is said that only by being humble and low can you grow your merits. If I am slow to pay tribute to the higher, not only do I have no merits, but there are also faults.
 
@@ -1997,9 +2028,9 @@ Because the rectification of the Dharma is difficult to obtain, sometimes the gu
 
 No matter how heavy, numerous, troublesome, or repeated things the guru instructs you, you must persevere as a disciple, and you can't get bored or complain.
 
-According to the biography of Venerable Milarepa, Guru Marpa asked Milarepa to build a house, and as long as he did it alone, no one else was allowed to help.
+According to the biography of Venerable Milarepa, Guru Marpa asked Milarepa to build a house, as long as he did it alone. No one else was allowed to help.
 
-When it was about to be finished, he immediately picked on the Dharmault and asked him to dismantle it. After dismantling, he also asked him to put the stone back in its original place and arrange it properly.
+When it was about to be finished, he immediately picked on the faults and asked him to dismantle it. After dismantling, he also asked him to put all the stones back in their original place and arrange it properly.
 
 It was built and demolished in this way, and it was demolished and built again. After going back and forth, I don’t know how many times, Milarepa carried the stone and worn out his back, and his bones were exposed.
 
@@ -2011,7 +2042,7 @@ The disciple's commitment to the master should be like a sailing ship, not afrai
 
 72
 
-Master Tsongkhapa simply divided the nine hearts into four parts: The first part, when getting along with the teacher, pay attention to observe and understand the teacher's will, and obey the teacher's will, which is the heart of filial piety.
+Master Tsongkhapa simply divided the nine attitudes into four parts: The first part, when getting along with the teacher, pay attention to observe and understand the teacher's will, and obey the teacher's will, which is the heart of filial piety.
 
 The second part, after relying on the guru, pay attention to cherish and protect the dependence relationship with the guru, so as not to be damaged by the alienation of those who slander the master and slander the Dharma, which is the vajra heart.
 
@@ -2023,13 +2054,13 @@ When doing things, no matter the big or the small, being able to do it yourself 
 
 To be humble and low-key when doing things is to be down-to-earth.
 
-Being able to shoulder heavy responsibilities when doing things is the heart of the car.
+Being able to shoulder heavy responsibilities when doing things is the heart of the cart.
 
 To be able to endure the master's scolding when doing things is a righteous dog's heart.
 
 Being able to do things without fear of trouble and repetition is the heart of sailing.
 
-When serving the guru, use the nine hearts to observe, compare and guide yourself, the merit will be great, the blessing will be great, and the progress will be faster.
+When serving the guru, use the nine attitudes to observe, compare and guide yourself, the merit will be great, the blessing will be great, and the progress will be faster.
 
 73
 
