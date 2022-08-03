@@ -4,9 +4,9 @@ date: 2022-01-31T12:33:35+01:00
 draft: false
 ---
 
-Three Principal Aspects of the Path
+#### Three Principal Aspects of the Path
 
-by Je Tsongkhapa Lobzang Drakpa
+**by Je Tsongkhapa Lobzang Drakpa**
 
 Homage to the precious noble masters!
 
@@ -220,7 +220,9 @@ This advice was given by the bhikṣu of extensive learning, Lobzang Drakpé Pal
 
 | Translated by Adam Pearcey, 2006. Revised 2012.
 
-三主要道颂
+https://www.lotsawahouse.org/tibetan-masters/tsongkhapa/three-principal-aspects
+
+#### 三主要道颂
 
 
 　　　　三主要道颂
