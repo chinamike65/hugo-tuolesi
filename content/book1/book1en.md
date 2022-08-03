@@ -475,7 +475,7 @@ https://web.archive.org/web/20150430223200/http://ctzen.org/sunnyvale/enUS/index
 
 (2) Recite
 
-Outline of San Shi Dao
+**Outline of San Shi Dao**
 
 (3) Learning (mainly watching the videos and reading books)
 

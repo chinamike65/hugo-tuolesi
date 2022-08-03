@@ -87,7 +87,7 @@ draft: false
 
 如虹澄净金刚身，离障俱生空乐意， 和合双运金刚持，愿速证得求加持。
 
-**English - to do **
+**English - to do**
 
 The Bodhisattva stage is recorded and chanted by Master
 
