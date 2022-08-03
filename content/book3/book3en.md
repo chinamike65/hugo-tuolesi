@@ -4,6 +4,9 @@ date: 2022-01-31T12:33:35+01:00
 draft: false
 ---
 
+![front](/images/fahaibao3.png)
+
+---
 
 ![front](/images/fa3frontgreet.png)
 
@@ -43,37 +46,38 @@ Practice the Dharma
 
 #### Introduction to Ngawang Gyatso Vajra Guru
 
-Master Ngawang Gyatso Vajra was born on the fifteenth day of the first lunar month in 1969 in Hainan Tibetan Autonomous Prefecture, Qinghai Province. The master entered Buddhism at the age of six and became a monk at the age of eighteen. He has studied with seven masters including Dharma Master Lamaoyong Zengzhang, Guru Qusong King Kong, and the 10th Panchen Lama.
+Master Ngawang Gyatso was born on March 3, 1969 (the fifteenth day of the first lunar month) in Hainan Tibetan Autonomous Prefecture, Qinghai Province.
 
-Master Ngawang follows the teacher like a li, and has completely obtained the lineage of the seven masters. He received more than 200 kinds of empowerment, followed Xu to empower more than 300 kinds, guided more than 280 kinds, and possessed more than 500 scriptures and teachings and more than 80 ear-transmission secret formulas.
+The master began to practice Buddhism as a novice monk at the age of six, and became an ordained monk at the age of eighteen. He studied with Dharma Master Lama Yong Zeng, Geshe Rinpoche, Lobsang Dorje Vajra Guru, Gejia Rinpoche, Dharma Master Yeshe Gyatso, and Gazang Qusong Vajra Guru and the 10th Panchen Lama.
 
-Dharma Master Lamaoyong Zengzeng is the lineage holder of the Gelug School of Tibetan Buddhism. His master has followed the Dharma Master for more than 20 years and gained the experience of the Dharma Master throughout his life.
+Master Ah Wang, having followed the precepts of his teachers, received complete transmission of the teachings from his seven masters, the forty-sixth generational heirs of the "Prajna Paramita Sutra", the most important classic of Buddhism. From them he obtained more than 200 kinds of empowerments, more than 300 advanced special empowerments, more than 280 guiding precepts, with more than 500 scriptural sutras and more than 80 oral transmissions of intangible secrets. Therefore, the lineage of the master's doctrinal transmission is extremely complete and especially rare.
 
-Master Ngawang also studied at Qinghai Buddhist College and Ta'er Monastery Debating School, and with his diligence and wisdom beyond ordinary people, he completed the five major theories and the second esoteric courses of the five great vajras in advance.
+His Holiness Dharma Master Yongzeng, who was once the sutra teacher of the living Buddha, Sechi, in Lamodeqin Monastery was a person of superior virtue and the complete holder of the transmissions of the Gelugpa tantric teachings. Master Ah Wang followed Master Yongzeng for more than 20 years and absorbed all of the experience of the Venerable Dharma Master. The other six masters are also highly proficient in the esoteric secrets and have sufficient evidence of exceptional scholarly achievements. 
 
-After graduation, Master Ngawang has been serving as the Vajra Guru and abbot at Tuola Temple in Qinghai. He teaches the Five Great Treatises, the Three Paths, and the Four Tantras to the monks in different classes every day.
+In addition, Master Ah Wang studied at Qinghai Buddhist College and the Ta'er (Kumbum) Monastery  Debating College of Dialectics (Debating College).
+With a single-minded commitment to study and wide erudition, he completed the study of sutra and tantra, the five major theories of the five great Dharma masters, well ahead of schedule.
 
-So Dharmar, Tuole Monastery has trained several batches of Buddhist Geshes (equivalent to a Ph.D. in Buddhism), and the construction of the Sangha community has reached a certain scale. 
+Since graduating from Qinghai Buddhist Academy and Ta'er Monastery Debating Academy with excellent grades, the master has been living at Qinghai Tuole Monastery, serving as the Vajra Guru and the abbot of the monastery. He teaches the monks of Tuole Monastery every day in groups: lectures on the five great treatises, San Shi Dao, and the four tantras, and has set up a new sutra debating school in the monastery.
+
+Master Ah Wang has now produced several batches of lamas with a Geshe degree (equivalent to a Ph.D. in Buddhism).
 
 The master also insists on going into retreat for two months every year.
 
-Before Lamaoyong Enlarged His Holiness, he instructed Guru Ngawang:
+Lama Yongzeng once told Master Ah Wang: **"Your whole career in this life is to turn the wheel of Dharma widely and spread the Dharma for the benefit of all living beings."**
 
-"Your entire career is to turn the Dharmalun widely, spread the Dharma and benefit life."
+Master Ah Wang often gives sermons, teachings, lectures, and empowerment ceremonies in both Tibetan and Chinese areas, and often holds patriotic teachings, and patriotic activities in monasteries, making due contributions to the promotion of social harmony and stable development.
 
-The guru strictly abides by the teacher's instructions, and often holds sermons, precepts, and empowerment pujas.
+At the invitation of believers from other places, the master has travelled all over the world to teach the sutras and the Dharma to those who are destined to hear them.
 
-Due to the compassion and teachings of the master, many believers of different nationalities and ethnic groups have converted to Master Ngawang.
-
-In 2009 and 2014, invited by the Buddhist community in Macau, the master, as the representative of Tibetan Buddhist monks, presided over the Dharma for the 10th and 15th anniversary of Macau's return to the motherland.
+In 2009 and 2014, invited by the Buddhist community in Macau, the master, as representative of Tibetan Buddhist monks, presided over the Puja for the 10th and 15th anniversary of Macau's return to the motherland.
 
 In October 2015, the master was also invited to participate in the 2015 Chongsheng International Forum co-organized by the Yunnan Buddhist Association and the Dali Chongsheng Temple.
 
 Master Ngawang is not only perfect in his practice and perfect in his eloquence, but he is also the author of a rich collection of writings.
 
-The master's writings include "Annotation of Prajna Sutra", "Dictation by Masters of the Three Paths and Three Schools", "Treasures of the Dharma Ocean" series and so on.
+The Master's writings include Commentary on Philosophy, Commentary on the Prajna Paramita Diamond Sutra, Dictation from the Three Masters of the Three Paths and Three Schools, Vajrasattva Ritual and Practice, and Dakini Buddha's Mother Ritual. Tracks and Practical Practices, Practice of Retreat, Simmering Sang Ritual, Biography of Vajra Guru Gazang Qusong, History of Tibetan Buddhism, Dabao Motto, Nectar Dharma Rain, Tantric Buddhism Feng Shui and the "Dharma Ocean Treasures" series, etc.
 
-The master's writings are concise and clear, and the analysis is profound and thorough.
+The master's writings are concise and comprehensive, and the analysis is profound and thorough, and has been praised and acclaimed by many great scholars in Buddhist circles at home and abroad.
 
 Master Ngawang once studied under the 10th Panchen Lama, who is deeply loved by the people. The Panchen Lama was called "a great patriot and an outstanding leader of Tibetan Buddhism" by the Central Committee of the Communist Party of China and made many important contributions to Buddhism in China.
 
@@ -89,6 +93,7 @@ Under the leadership of Master Ngawang, the Sangha of Tuola Monastery adheres to
 
 Buddhists should go deeper into the scriptures, diligently study and think, and establish a right view. At the same time, it is necessary to develop Bodhicitta widely and truly think for the sake of all sentient beings, in order to achieve a perfect life for oneself and others.
 
+five traditional monastic subjects
 
 San Shi Dao
 
@@ -96,7 +101,7 @@ San Shi Dao
 
 The third of the series "Treasures of the Dharma Ocean" in Tuole Monastery
 
-Sanshidao (Part 1)
+Sanshidao (Part 1 - Lower Scope)
 
 Ngawang Gyatso Vajra Guru explained:
 
@@ -106,9 +111,11 @@ Thank you Master! He worked hard to explain the "San Shi Dao", and personally gu
 
 I would like to share with fellow practitioners the experience of proof-reading and studying "San Shi Dao" over the past year. Please forgive me for any parts which may seem incomprehensible or difficult to understand.
 
-In order to save sentient beings, the Buddha preached 84,000 Dharma Doors, the core of which is the sequence of the Bodhi path. The order of the path is either manifest or hidden, and has always been hidden in the scriptures.
+In order to save all sentient beings, the Buddha preached 84,000 Dharma Doors, the core of which is the sequence of the Bodhi path. The order of the path is either manifest or hidden, and has always been hidden in the scriptures.
 
-The sequence of Stages of the Way preached by Buddha Shakyamuni is "The Great Prajna Sutra", and the sequence of Stages preached by Maitreya Bodhisattva is "The View on the Majesty of the Present". Great Bodhisattvas such as Nagarjuna and Wusang, as the lineage masters of the sequence of Stages, have all been followers of the sequence of Stages. 
+The sequence of Stages of the Way preached by Buddha Shakyamuni is "The Great Prajna Sutra", and the sequence of Stages preached by Maitreya Bodhisattva is "The View on the Majesty of the Present". 
+
+Great Bodhisattvas such as Nagarjuna and Asanga, as the lineage masters of the sequence of Stages, have all been followers of the sequence of Stages. 
 
 The successive biography of books and essays.
 
@@ -118,13 +125,13 @@ Countless practitioners have achieved success according to the stages of the pat
 
 The study characteristics of Gelugpa.
 
- The compassionate master, taking into account the difficulties of all living beings in their studies, explained to us the essence of the path to enlightenment - "The Three Paths".
+The compassionate master, taking into account the difficulties of all living beings in their studies, explained to us the essence of the path to enlightenment - "The Three Paths".
 
-The "San Shi Dao" explained by the master focuses on the basics. In terms of content, it is mainly based on the teachings of the predecessors of the Gelug School and the sages of the Kadam School. The front and back sections of the whole book can  explain and supplement each other.
+The "San Shi Dao" explained by the master focuses on the basics. In terms of content, it is mainly based on the teachings of the predecessors of the Gelug School and the sages of the Kadam School. The front and back sections of the whole book  explain and supplement each other.
 
-In teaching the Dharma, the master cultivated profound and extensive knowledge, and adopted a comprehensive teaching method, including Yin and Ming, which was used when explaining the five great treatises. The logic is rigorous and clear.
+In teaching the Dharma, the master cultivated profound and extensive knowledge, and adopted a comprehensive teaching method, including Yin and Ming, which was used when explaining the five traditional monastic subjects. The logic is rigorous and clear.
 
-In the whole "San Shi Dao", the master uses vivid and concise language and interesting allusions to describe how an ordinary person must take a bright road from attaining perfection in the world to liberation and becoming a Buddha.
+On the whole "San Shi Dao", the master uses vivid and concise language and interesting allusions to describe how an ordinary person must take a bright road from attaining perfection in the world to liberation and becoming a Buddha.
 
 The lower Path mainly talks about the impermanence of life, the suffering of the three evil paths, taking refuge, and knowing cause and effect. Liberation from the cycle of samsara; the middle Path talks about bodhicitta, the ten paramitas, and the four captures, with the goal of attaining Buddhahood.
 
@@ -140,7 +147,7 @@ What materials need to be prepared, etc., are all clearly explained.
 
 When reading other classics, it also has a strong guiding significance. It enables practitioners to determine which part of the Dharma a sutra belongs to, whether it is suitable for practice at the current stage, and so on. It is of great help to the study, and it has swept away the confusion in the mind of the student, and made his confidence in the Guru and the Three Jewels more firm.
 
-"San Shi Dao" is not only a teaching of Buddhism, but also has a strong guiding significance for life in this world. The book tells us: To truly cherish oneself and life, is to cherish the human body and cultivate earnestly; if you want to be prosperous and healthy, you must not steal or kill, you must give more, release more living animals, and repent of karma; If you have prestige and good karma, you must not create karma and make all living beings happy.
+"San Shi Dao" is not only a teaching of Buddhism, but also has a strong guiding significance for life in this world. The book tells us: To truly cherish oneself and life, is to cherish the human body and cultivate earnestly; if you want to be prosperous and healthy, you must not steal or kill, you must give more, release more living animals, and repent of karma; If you have prestige and good karma, you must not create bad karma and make all living beings happy.
 
 In every respect, it varies.
 
@@ -156,17 +163,17 @@ Thinking about the first half of my life, I didn’t know how to choose between 
 
 Fortunately, it is worth meeting the teacher, and then you have to wake up.
 
-From now on, just by listening to the teacher's words, being an honest person, steadDharmastly studying, and benefiting sentient beings, can the meaning of life continue to increase, and only then can one be worthy of the three treasures, of the teacher and one's own life.
+From now on, just by listening to the teacher's words, being an honest person, steadfastly studying, and benefiting sentient beings, can the meaning of life continue to increase, and only then can one be worthy of the three jewels, of the teacher and one's own life.
 
-The "San Shi Dao" published this time was compiled by many disciples of Tuo Le Shenzhen Center, based on video materials taught by the master in Hong Kong and Lishui in recent years, after two years.
+The "San Shi Dao" published this time was compiled by many disciples of Tuo Le Shenzhen Center, based on video materials taught by the master in Hong Kong and Lishui in recent years, over two years.
 
 In the process of sorting out the materials, the master also expanded a lot of content according to the actual situation of modern people's practice of Buddhism.
 
-In particular, more detailed explanations and supplements have been made for the relatively brief parts in the "Great Exposition of the Stages of the Path".
+In particular, more detailed explanations and supplements have been made for the relatively brief parts in the "Great Treatise on the Stages of the Path of Enlightenment ".
 
-For example, the section on "Approaching the Good Men" in the "Great Exposition of the Stages of the Path" has only 15 pages (Guanghua Temple edition of "The Path of Enlightenment"), and the text is difficult to understand. A Detailed explanation is given.
+For example, the section on "Approaching the Good Men" in the "Great Treatise on the Stages of the Path of Enlightenment " has only 15 pages (Guanghua Temple edition of "The Path of Enlightenment"), and the text is difficult to understand. A Detailed explanation is given.
 
-It can be said that this edition of "San Shi Dao" is the most comprehensive, thorough and easy-to-understand book among the books that explain the correct sequence for teaching and learning teaching of Dharma.
+It can be said that this edition of "San Shi Dao" is the most comprehensive, thorough and easy-to-understand book among the books that explain the correct sequence for teaching and learning the Dharma.
 
 The master has repeatedly emphasized that the sooner the "San Shi Dao" is published, the sooner it will benefit all sentient beings!
 
@@ -174,11 +181,11 @@ Therefore, I often proof-read with my disciples until very late at night, and st
 
 In June 2014, due to overwork, the master felt unwell. Afterwards, at the strong request of the Hong Kong disciples, he went to Hong Kong for a physical examination and adjusted his medication for half a year.
 
-The master hopes that the vast number of Buddhist students can correctly understand the essence of the Buddha's Dharma while they have a strong desire for the Buddha's holy teaching tools, get out of the misunderstanding of non-sequential and blind practice, and diligently study and reflect on the path to enlightenment, and practice diligently according to the three paths, in order to realize enlightenment early!
+The master hopes that the vast number of Buddhist students can correctly understand the essence of the Buddha's Dharma while they have a strong desire for the Buddha's holy teaching tools, get out of the misunderstanding of non-sequential and blind practice, and diligently study and reflect on the path to enlightenment, and practice diligently according to the three paths, in order to realize enlightenment as soon as possible!
 
 Bow down, thank you, Master!
 
-Thanks to Nie Dolma and all the brothers who participated in the proofreading!
+Thanks to Nie Dolma and all the brothers who participated in the proof-reading!
 
 Inferior disciple Sanjay was established
 
@@ -194,7 +201,7 @@ Chapter 2 Perfection of the sequence of the Path ……………….11
 
 Master Tsongkhapa……………….. 11
 
-Greatness of the "Great Exposition of the Stages of the Path"... 17
+Greatness of the "Great Treatise on the Stages of the Path of Enlightenment "... 17
 
 1. An extraordinary author ………….. …….17
 
@@ -298,7 +305,7 @@ Section 1 Requirements for a Guru... 34
 
 (13) Purity …………. 56
 
-Session 2 Getting Closer to the Guru……………… 58
+Session 2 - Getting Closer to the Guru……………… 58
 
 1. How to get close to the guru…………. 59
 
@@ -418,7 +425,7 @@ Section 6 - Disciples' Virtues and Requirements... 163
 
 (1) Think of yourself as a patient... 168
 
-(2) Think of the master as a doctor... 168
+(2) Think of the Master as a doctor... 168
 
 (3) Think of the Dharma as medicine …….. 168
 
@@ -589,10 +596,6 @@ Tsongkhapa and three apprentices
 
 Creator and Dharma
 
-Treasures of the Dharma Ocean (3)
-
-
-
 #### PART I
 
 ----
@@ -629,23 +632,23 @@ Jue only the order of the three priests, who is not enthusiastic and happy.
 
 Chapter 1 - lineage of the Paths
 
- This time I will tell you about the Three Paths and the stages of the Path of Enlightenment.
+ This time I will tell you about the Three Paths and the stages of the Path to Enlightenment.
 
-First of all, we must understand the meaning of "Stages of the Path of Enlightenment".
+First of all, we must understand the meaning of "Stages of the Path to Enlightenment".
 
 Bodhi means enlightenment, cut off refers to the removal of afflictions and obstacles to knowledge; Enlightenment means the realization of emptiness, and also has the meaning of awareness; The Way refers to the Three Paths, which are the Lower, Middle, and Upper Paths; the order is the sequence, the procedure.
 
 The Buddha Dharma sequence contains 84,000 Dharma gates, and what the Three Paths teach is the correct sequence of the "Stages of the Path of Enlightenment".
 
-To talk about the "Stages of the Path of Enlightenment", we must talk about the "Extensive Treatise on the "Stages of the Path of Enlightenment".
+To talk about the "Stages of the Path of Enlightenment", we must talk about the "Extensive Treatise on the Stages of the Path of Enlightenment".
 
 The Dharma of Buddhism is inherited from the pure and perfect Buddha, and the sequence of the paths is also passed down by Shakyamuni Buddha himself.
 
 Once you understand the teaching of the order of the Path, when you study the sutras in the future, you will realize that: all Buddhist scriptures teach the order of the Path.
 
-Buddha Shakyamuni preached the "Great Prajna Sutra" at Vulture Peak. After the Chinese translation of the "Great Prajna Sutra", there are 600 volumes, including the entire content of 84,000 dharmas, and it is the most important Buddhist scripture.
+Buddha Shakyamuni preached the "Prajna Paramita Sutra" at Vulture Peak. After the Chinese translation of the "Prajna Paramita Sutra", there are 600 volumes, including the entire content of 84,000 dharmas, and it is the most important Buddhist scripture.
 
-The "Great Prajna Sutra" explicitly preaches the profound order of the Path, while the hidden meaning preaches the vast order of the Path.
+The "Prajna Paramita Sutra" explicitly preaches the profound order of the Path, while the hidden meaning preaches the vast order of the Path.
 
 The very deep Path sequence was passed on to Manjushri by the Buddha, and Manjushri passed it on to Nagarjuna, and later formed the deep insight sect Dao sequence; the vast Dao sequence was passed on by the Buddha to Maitreya Bodhisattva. He created Maitreya's Five Sutras, such as the "Abhisamaya-alaṅkāra sutra", also known as the Five Treatises of Maitreya, as a teaching of the path to enlightenment, and passed it on to Asanga Bodhisattva. Later, the Guangxing School path was formed.
 
@@ -653,7 +656,7 @@ In this way, in ancient India, two different lineages, deep insight and broad pr
 
 The Deep Insight School teaches the right view of emptiness, and the Guangxing School talks about the convenient method.
 
-Only by learning and cultivating the two methods of wisdom, right view and expedient means, can one be liberated and become a Buddha. Just like the two wings of a bird, both are required.
+Only by learning and cultivating the two methods of wisdom, right view and skilfull means, can one be liberated and become a Buddha. Just like the two wings of a bird, both are required.
 
 Before Venerable Atisha, the deep and broad paths were inherited separately.
 
@@ -663,7 +666,7 @@ The Guangxing School was passed on from Maitreya Bodhisattva to Asanga Bodhisatt
 
 6
 
-Asanga Bodhisattva passed on the lineage of the Guangxing School to Vasubandhu Bodhisattva, who is Asanga Bodhisattva's half-brother.
+Asanga Bodhisattva passed on the lineage of the Guangxing School to Vasubandhu Bodhisattva, who was Asanga Bodhisattva's half-brother.
 
 Vasubandhu Bodhisattva passed it on to the Vimuktisena, and gradually spread to the great and small Gusa Li and Master Dharmakirti.
 
@@ -675,15 +678,15 @@ At the same time, Venerable Atisha also received the lineage of Shantideva Bodhi
 
 In this way, the Venerable received the complete transmission and teaching of the sutra and tantra, and gained access to all the Dharma.
 
-On this basis, Venerable Atisha wrote the Dharmamous "Lamp for the Path to Enlightenment", which captures all the essentials of the Dharma, and the phrase "Stages of the Path" has been around since then.
+On this basis, Venerable Atisha wrote the famous "Lamp for the Path to Enlightenment", which captures all the essentials of the Dharma, and the phrase "Stages of the Path" has been around since then.
 
-The "Lamp for the Path to Enlightenment" has really opened up a path, a path that an ordinary person can cultivate and become a Buddha in his present life in a turbid world. It is very, very special!
+The "Lamp for the Path to Enlightenment" has really opened up a path, a path that an ordinary person can follow and become a Buddha in his present life in a turbid world. It is very, very special!
 
 Later, other sects in the Tibetan area also formed their own sects based on the "Lamp for the Path to Enlightenment", benefiting countless people and laying the foundation for the establishment of the Kadam School.
 
 7
 
-Venerable Atisha passed the "Lamp for the Path to Enlightenment" to Master Dromtönpa. At that time, the venerable passed it to him in secret, and Dromtönpa asked inexplicably, "Why did the venerable teach the secrets to others? The mantra, and teach me the order of the path?" The Venerable replied, "Besides you, I have not found anyone who can entrust this Dharma!" This shows the importance and splendor of the "Lamp for the Path to Enlightenment", and it also indicates that it is the origin that Master Dromtönpa will spread the Dharma and benefit life in the future.
+Venerable Atisha passed the "Lamp for the Path to Enlightenment" to Master Dromtönpa. At that time, the venerable passed it to him in secret, and Dromtönpa asked inexplicably, "Why did the venerable teach the secrets to others? The mantra, and teach me the order of the path?" The Venerable replied, "Besides you, I have not found anyone to whom can entrust this Dharma!" This shows the importance and splendor of the "Lamp for the Path to Enlightenment", and it also indicates that it is the origin that Master Dromtönpa will spread the Dharma and benefit life in the future.
 
 Later, Master Dromtönpa founded Radreng / Reting Monastery, established a Kadam School, spread the Dharma, and guided the practice according to the teachings of "Lamp for the Path to Enlightenment". Many people have achieved this.
 
@@ -705,19 +708,19 @@ In this way, Master Tsongkhapa obtained all the lineage of the broad, medium and
 
 "Lamp for the Path to Enlightenment" provides a high-level summary of the teachings and demonstrations of Buddhism. It is very concise and only covers a few pages.
 
-The Graded Stages of the Path to Enlightenment explains the Theory of the Lamp for the Path to Enlightenment in a deeper and broader way, which is broad, profound and easy to understand. For those who find the Lamp for the Path to Enlightenment difficult to understand, the The Graded Stages of the Path to Enlightenment explains it very clearly .
+The Great Treatise on the Stages of the Path of Enlightenment explains the Theory of the Lamp for the Path to Enlightenment in a deeper and broader way, which is broad, profound and easy to understand. For those who find the Lamp for the Path to Enlightenment difficult to understand, the Great Treatise on the Stages of the Path of Enlightenment explains it very clearly .
 
-In Tibetan areas, the Tibetan version of "The Graded Stages of the Path to Enlightenment" can be understood a lot by an ordinary person, such as a sheep herder; an arahant with high wisdom will also find it profound, subtle and inconceivable when he sees it. The Graded Stages of the Path to Enlightenment is very, very special.
+In Tibetan areas, the Tibetan version of "Great Treatise on the Stages of the Path of Enlightenment " can be understood a lot by an ordinary person, such as a sheep herder; an arhat with high wisdom will also find it profound, subtle and inconceivable when he sees it. Great Treatise on the Stages of the Path of Enlightenment  is very, very special.
 
 9
 
 10
 
-Chapter 2 - the peculiarity of the order of the path, mentions the three ways, the order of the path of enlightenment, and the "The Graded Stages of the Path to Enlightenment", so it is inevitable to mention Master Tsongkhapa. So, what kind of person is Master Tsongkhapa?
+Chapter 2 - the peculiarity of the order of the path, mentions the three ways, the order of the path of enlightenment, and the "Great Treatise on the Stages of the Path of Enlightenment", so it is inevitable to mention Master Tsongkhapa. So, what kind of person is Master Tsongkhapa?
 
 Section 1 - Master Tsongkhapa was born on the twenty-fifth day of the tenth year of the Tibetan calendar in 1357 in Huangzhong County, Qinghai Province. Because the place of birth is called "Tsongkha" in Tibetan, he is honored as Tsongkhapa, which means born in Tsongkha.
 
-Master Tsongkhapa is the founder of the Gelug Sect of Tibetan Buddhism and the wisdom reincarnation of Manjushri. Maitreya Bodhisattva once said: "The incarnation of Manjushri, like the eyes and heart of all Buddhas and Bodhisattvas, will appear in the world."
+Master Tsongkhapa is the founder of the Gelug School of Tibetan Buddhism and the wisdom reincarnation of Manjushri. Maitreya Bodhisattva once said: "The incarnation of Manjushri, like the eyes and heart of all Buddhas and Bodhisattvas, will appear in the world."
 
 11
 
@@ -731,9 +734,9 @@ The master studied with many teachers in his life, and these masters belonged to
 
 In a dharma conference, Master Shuofuwuhan explained 15 treatises at the same time, for three consecutive months without interruption; two books were finished early, and the other two were added immediately. A total of 17 treatises were lectured before and after the dharma conference. . At another Dharma conference, he explained twenty-one great treatises on the same day.
 
-There was even a marvelous event in which twenty-nine great treatises were simultaneously lectured at the Dharma conference, which was admirable. These wonderful lectures have never happened before in India and Tibet.
+There was even a marvelous event in which twenty-nine great treatises were simultaneously lectured at the Dharma conference, which was admirable. These wonderful lectures have never happened before in India or Tibet.
 
-There are more than 600 volumes of the Great Prajna Sutra, which Buddha Shakyamuni could finish in one day, and many listeners could fully understand its profound meaning. It is only by virtue of language that such a wonderful speech can be performed.
+There are more than 600 volumes of the Prajna Paramita Sutra, which Buddha Shakyamuni could finish in one day, and many listeners could fully understand its profound meaning. It is only by virtue of language that such a wonderful speech can be performed.
 
 12
 
@@ -741,17 +744,28 @@ In the period after the completion of his studies, the master of eloquence witho
 
 The master of learning without hindrance is able to understand all the Buddhadharma, and can realize all the holy words of the Buddha as practical teachings.
 
-Master Khedrubje Gelek Pelzang praised: The Bodhisattva in India and the Master Buston in Tibet, although they have learned widely, are not as well-versed as Master Tsongkhapa.
+Master Khedrubje Gelek Pelzang praised: 
+
+The Bodhisattvas in India and the Master Buston in Tibet, although they have learned widely, are not as well-versed as Master Tsongkhapa.
 
 The Kagyu sect has a teaching of Mahamudra, the Nyingma sect has a teaching of Dzogchen, the Sakya sect has a teaching of Dao and Fruit, and the Kadam sect has a teaching of impermanence and bodhicitta.
 
 However, the only one who can teach all the sutras spoken by the Buddha is the teaching of Tsongkhapa. For this reason, the scriptures created by the masters also have the following characteristics:
 
 Able to declare the complete path sequence for the upper, middle and lower foundations.
+
 They are all written by the masters themselves.
+
 Perfect and flawless, no one can refute it.
+
 It has characteristics not found in other scriptures.
-All the wise men rejoice and believe. In the early days of the precept-keeping master, the tenets of Tibetan Buddhism were relaxed, and Khedrubje Gelek Pelzang said in the biography of Master Tsongkhapa: "At the time when Buddhism in the snowy land was about to be destroyed and existed in name only, some monks even took the name of the mantle and bowl they used to become monks. Never heard of it."
+
+All the wise men rejoice and believe.
+
+In the early days of the precept-keeping master, the tenets of Tibetan Buddhism were relaxed, and Khedrubje Gelek Pelzang said in the biography of Master Tsongkhapa: 
+
+"At the time when Buddhism in the snowy land was about to be destroyed and existed in name only, some monks even took the name of the mantle and bowl they used to become monks. Never heard of it."
+
 This shows how desolate Tibetan Buddhism was at that time, and the master was very distressed about it, so he strongly advocated the rectification of the precepts.
 
 The master's own body, speech, and mind rested in a pure and solemn state. Inspired by the master, monks in large and small monasteries in Tibetan areas gradually became pure and virtuous.
@@ -764,9 +778,9 @@ Padmasambhava's "Ce Li Pai Wen" says:
 
 Padmasambhava foretold that a fully ordained Buddhist monk named Lobsang Drakpa would appear in the east, near the land of China who would be regarded as an emanation of a Bodhisattva of the greatest renown and would attain the Complete Enjoyment Body of Buddha – Enlightenment.
 
-"Near the eastern part of the Han land, there is a Sakyamuni named Luosang."
+"Near the eastern part of the Han land, there is a Sakyamuni named Lobsang."
 
-In addition, in many sutras and treatises of great siddhas, there are prophecies to Master Tsongkhapa, who call him the second Buddha.
+In addition, in many sutras and treatises of great siddhas, there are prophecies of Master Tsongkhapa, who call him the second Buddha.
 
 For example, Buddha Shakyamuni once foretold:
 
@@ -780,11 +794,11 @@ Master Wisdom Unhindered has been diligent in studying, thinking, cultivating, l
 
 It can be said that every word is as precious as gold.
 
-In particular, the Extensive Treatise on the Steps of the Path to Enlightenment and The Great Treatise on the Steps of the Path of Tantric Buddhism pointed out many subtle mistakes in practice, which are even more precious to later generations of disciples. The master also cultivated many eminent monks and great virtues, saved countless sentient beings, and reinvigorated Tibetan Buddhism, just like the reappearance of the Buddha.
+In particular, The Great Treatise on the Stages of the Path of Enlightenment and The  Great Exposition of Tantra pointed out many subtle mistakes in practice, which are even more precious to later generations of disciples. The master also cultivated many eminent monks and great virtues, saved countless sentient beings, and reinvigorated Tibetan Buddhism, just like the reappearance of the Buddha.
 
 Master Tsongkhapa's special qualities and merits are innumerable and inconceivable. For example, the master foresaw that sentient beings in the turbid world would be troubled and have difficulty in practicing diligently.
 
-For the sake of all beings in the last days to be able to study, and for the Gelugpa to live for a long time in the world, the master is merciful. During the retreat of Olka Cholung, he made thirty-seven offerings of mantra a million times, and his wrists were worn through and he could see the bones. He dedicated the merits of this offering to the practitioners of later generations.
+For the sake of all beings in the last days to be able to study, and for the Gelugpa to live for a long time in the world, the master is merciful. During the retreat of Olka Cholung, he made thirty-seven point mandala offerings a million times, and his wrists were worn through and he could see the bones. He dedicated the merits of this offering to the practitioners of later generations.
 
 Therefore, disciples of later generations who study the Gelug school are generally wealthier and live longer.
 
@@ -794,11 +808,11 @@ We are fortunate enough to meet the teachings of Master Tsongkhapa, we should ch
 
 Section 2 - "The Graded Stages of the Path to Enlightenment" talks about the order of the Path, which is the content of the "The Graded Stages of the Path to Enlightenment". Therefore, the excellence of the "The Graded Stages of the Path to Enlightenment" is the speciality of the Three Paths. Victory is also the ultimate victory of the path.
 
-"The Graded Stages of the Path to Enlightenment" has five qualities: the creator, the teaching, the location, the persuasion, and the Dharmamily.
+"The Graded Stages of the Path to Enlightenment" has five qualities: the creator, the teaching, the location, the persuasion, and the family.
 
 1. Venerable Atisha, the creator of the San Shi Dao, is the incarnation of Amitabha. There were countless disciples in India at that time, and many of them achieved high achievements.
 
-When His Holiness went to Tibet to teach the Dharma, he mainly taught the Three Ways, which enabled countless practitioners in Tibet to be liberated by studying the Three Ways.
+When His Holiness Venerable Atisha went to Tibet to teach the Dharma, he mainly taught the Three Ways, which enabled countless practitioners in Tibet to be liberated by studying the Three Ways.
 
 The teachings of His Holiness also influenced the major sects in Tibetan areas, especially the Gelug sect, which was formerly known as the New Kadampa.
 
@@ -808,7 +822,9 @@ Master Tsongkhapa, the creator of the broad and brief discussion of the Bodhi pa
 
 Before Master Tsongkhapa, most monks in Tibetan areas had abolished the precepts; in practice, those who practice meditation cannot distinguish between gross and subtle drowsiness, those who practice emptiness do not understand the deep insight of the Middle Way, and those who practice tantric methods do not Understand phantom body and double body movement.
 
-The emergence of the master has corrected these phenomena one by one. It can be said that Master Tsongkhapa saved Tibetan Buddhism.
+The emergence of the master has corrected these phenomena one by one. 
+
+It can be said that Master Tsongkhapa saved Tibetan Buddhism.
 
 2. The Exceptional Teachings:
 
@@ -836,9 +852,13 @@ The entire contents of The Graded Stages of the Path to Enlightenment are extrao
 
 why? Because it is widely discussed that the lineage of Nagarjuna and Asanga is the two major vehicles.
 
-Buddha Shakyamuni once predicted: "The practitioners of the later generations will follow Nagarjuna and Asanga Bodhisattva to practice, and to follow other great achievers, the foundation of some people is suitable, but in terms of the foundation of all people , not necessarily suitable.”
+Buddha Shakyamuni once predicted: 
 
-Therefore, Shakyamuni Buddha said: "In common practice, everyone must follow Nagarjuna and Asanga Bodhisattva."
+"The practitioners of the later generations will follow Nagarjuna and Asanga Bodhisattva to practice, and to follow other great achievers, the foundation of some people is suitable, but in terms of the foundation of all people, not necessarily suitable.”
+
+Therefore, Shakyamuni Buddha said: 
+
+"In common practice, everyone must follow Nagarjuna and Asanga Bodhisattva."
 
 The essentials of the Three Treasures taught by Buddha Shakyamuni are all condensed in the "The Graded Stages of the Path to Enlightenment", and the outline of the extensive treatise is the San Shi Dao.
 
@@ -856,9 +876,9 @@ In The Graded Stages of the Path to Enlightenment, the stages of practice are ex
 
 It is very clear where to start training when you are just getting started, and how to practice after a while;
 
-If the order is not clear, it will be confusing and lead to blind and disorderly cultivation.
+If the order is not clear, it will be confusing and lead to blind and disorderly learning.
 
-Only the Bodhisattvas of the Eighth Ground can cultivate the Dharma door, and ordinary people will not be able to achieve it.
+Only the Bodhisattvas of the Eighth Stage can cultivate the Dharma door, and ordinary people will not be able to achieve it.
 
 It is very, very important to study in order! Whether it is lecturing the scriptures or practicing, if the order is not correct, there will be no achievement.
 
@@ -866,15 +886,15 @@ This is different from reading a book. When reading a book, you need to read mor
 
 When you really want to cultivate, you have to do it in sequence, so that you won't make mistakes and you will be successful.
 
-If there is no order, there will be no achievement, just as wandering will not reach the destination.
+If there is no order, there will be no achievement, just as wandering will not help you reach your destination.
 
 3. The place where you live is the place where you live.
 
 20
 
-Master Tsongkhapa was in Radreng Monastery when he wrote "The Graded Stages of the Path to Enlightenment".
+Master Tsongkhapa was in Radreng Monastery when he wrote "Great Treatise on the Stages of the Path of Enlightenment ".
 
-Radreng Monastery was founded in 1057 by the founder of Kadampa, Dromtonpa, and has a history of more than 900 years. It is the first temple of Kadampa.
+Radreng Monastery was founded in 1057 by the founder of Kadampa, Dromtonpa, and has a history of more than 900 years. It is the first monastery of the Kadampa.
 
 "Radreng" means "to eradicate all afflictions until it is free from the reincarnation of the three realms". Buddha Sakyamuni had a prophecy about the Radreng Monastery in the Buddhist scriptures.
 
@@ -882,13 +902,13 @@ Studying, cultivating or writing at the practice of the predecessors, the blessi
 
 The location of Radreng Monastery used to be a bald mountain without a single tree. Later, Songtsan Gampo, the incarnation of Avalokitesvara Bodhisattva, visited here, sprinkled water for washing his hair on the hillside, and prayed for blessings, so two trees grew. There are 15,000 verdant Thuja trees, all of which are prophesied in Buddhist scriptures.
 
-In Radreng Monastery, there are spiritual bone pagodas of Master Jinzhou, Venerable Atisha, and Master Dromtonpa, as well as sacred objects such as the statue of Venerable Atisha.
+In Radreng Monastery, there are spiritual bone stupas of Master Jinzhou, Venerable Atisha, and Master Dromtonpa, as well as sacred objects such as the statue of Venerable Atisha.
 
-4. After persuading Master Tsongkhapa to practice according to the "A Lamp for the Path to Enlightenment" for a period of time, he attained the achievement of the Three Paths.
+4. After persuading Master Tsongkhapa to practice according to "A Lamp for the Path to Enlightenment" for a period of time, he attained the achievement of the Three Paths.
 
 At this time, the master saw with his own eyes the lineage masters of the two major sects all appearing in front of him.
 
-From Shakyamuni Buddha to the master's own master, including Manjushri, Nagarjuna, as well as all the great virtues of Kadampa, such as Master Dromtonpa  and Master Bodova, I also saw Venerable Atisha with my own eyes. .
+From Shakyamuni Buddha to the master's own master, including Manjushri, Nagarjuna, as well as all the great virtues of Kadampa, such as Master Dromtonpa  and Master Bodowa, I also saw Venerable Atisha with my own eyes. .
 
 
 Then, all the Buddhas and Bodhisattvas and teachers merged into the body of Venerable Atisha, who put his hand on the head of Master Tsongkhapa and said, "You want to benefit all sentient beings, and write the "Guide to Bodhi", I'm here to help you and bless you."
@@ -897,31 +917,31 @@ After speaking, Venerable Atisha merged into Master Tsongkhapa's body.
 
 At the same time, Guan Que Hua Sang, a great siddha in Tibet at that time, also encouraged Master Tsongkhapa.
 
-In the end, Master Tsongkhapa wrote The Graded Stages of the Path to Enlightenment.
+In the end, Master Tsongkhapa wrote "The Great Treatise on the Stages of the Path of Enlightenment."
 
-During the time when the master was writing "The Graded Stages of the Path to Enlightenment", Manjushri came in person three times.
+During the time when the master was writing "The Great Treatise on the Stages of the Path of Enlightenment", Manjushri came in person three times.
 
-It was the first time I came to persuade Master Tsongkhapa to write "The Graded Stages of the Path to Enlightenment".
+It was the first time I came to persuade Master Tsongkhapa to write "The Great Treatise on the Stages of the Path of Enlightenment".
 
 When he wrote about the meditation and wisdom method of the San Shi Dao, that is, the meditation paramita and the wisdom paramita, the master thought: Now there are too many people without great wisdom, and it is useless to write too much in this part.
 
 At this time, Manjushri Bodhisattva appeared again and said to Master Tsongkhapa: "If you want to write more deep and broad meditation and wisdom Paramita, it will be of great benefit to all living beings in future generations."
 
-There are human beings and non-human beings among the disciples who support Master Tsongkhapa's writing "The Graded Stages of the Path to Enlightenment".
+There are human beings and non-human beings among the disciples who support Master Tsongkhapa's writing "The Great Treatise on the Stages of the Path of Enlightenment".
 
 For example, during the period when the master wrote the Great Treatise, the diet was mainly undertaken by the land gods of the three thousand great thousand worlds, especially the Animaqin, who was a mountain god of Ando Goluo and a Bodhisattva of the Ten Lands.
 
 
 
-5. After Master Tsongkhapa, his family member, wrote the "The Graded Stages of the Path to Enlightenment", countless human beings and non-human beings have been liberated by studying the Great Theory.
+5. After Master Tsongkhapa, his family member, wrote the "The Great Treatise on the Stages of the Path of Enlightenment", countless human beings and non-human beings have been liberated by studying the Great Theory.
 
-Among them, it is even more difficult to count those who are able to practice both esoteric and esoteric practice and promote Mahayana Buddhism.
+Among them, it is even more difficult to count those who are able to practice both exoteric and esoteric practice and promote Mahayana Buddhism.
 
 Among the disciples of the master, not to mention those who have attained ordinary achievements, are those who are proficient in the essentials of the Tripitaka, and those who have completed the three disciplines of precepts, concentration, and wisdom, and those who have practised intensively in the three ways of spirituality and the second stage of Tantric Buddhism, are like the stars in the night sky, innumerable.
 
 Among them, Gyaltsab Je, Kedrub Je, Zhaba Jianshen, Jamyang Choje,  Jamchen Choje (Daci Dharma King), Gyu Sherab-sengge (Hui Shishi), Gyelwa Gendun-drub and others.
 
-Gyaltsab Je and Kedrub Je inherited the throne of Master Tsongkhapa and ascended to Ganden Tripa (the head of Ganden Monastery, that is, the Dharma King of Yellow Sect.), which laid the foundation of Gelugpa School.
+Gyaltsab Je and Kedrub Je inherited the throne of Master Tsongkhapa and ascended to Ganden Tripa (the head of Ganden Monastery, that is, the Dharma King of Yellow Hat school), which laid the foundation of Gelugpa School.
 
 They were the two most outstanding disciples who carried forward the teachings of Master Tsongkhapa.
 
@@ -929,13 +949,13 @@ Master Tsongkhapa, Gyaltsab Je, and Kedrub Je were later honored as "Three Maste
 
 
 
-Section 3 - of other writings on the order of the path 
+Section 3 - of other writings on the stages of the path 
 
-1. Other writings on the order of the path If we understand the "The Graded Stages of the Path to Enlightenment", we will understand the sequence of the Path to Enlightenment, and we will understand how we will practice in the future.
+1. Other writings on the stages of the path If we understand the "The Graded Stages of the Path to Enlightenment", we will understand the sequence of the Path to Enlightenment, and we will understand how we will practice in the future.
 
 Guang Lun is our teacher and mentor.
 
-My guru, Dharma King Yongzin's teacher, was Rako Rinpoche. After Rako Rinpoche's teacher passed away, he wrote a letter to another great siddha saying, "To my teacher who taught the scriptures. After passing away, I want to find another guru, which one do you think is more suitable?" 
+My guru, Dharma King Yongzeng's teacher, was Rako Rinpoche. After Rako Rinpoche's teacher passed away, he wrote a letter to another great siddha saying, "To my teacher who taught the scriptures. After passing away, I want to find another guru, which one do you think is more suitable?" 
 
 The great siddhi replied, "Master Tsongkhapa's "The Graded Stages of the Path to Enlightenment" and "The Stages of the Path of Tantra" These two works are your best teachers.
 
@@ -3369,7 +3389,7 @@ If the visualization ability is stronger, you can visualize the grain field in d
 
 Above the head of Nengren Vajradhara, visualize the lineage gurus of the practice and blessings group headed by Vajradhara, such as the great yogis such as Venerable Lahoula and Venerable Levwa.
 
-The right shoulder of Nengren Vajradhara is shining, and on the light, he visualizes Maitreya Bodhisattva, the surroundings of Maitreya Bodhisattva, and visualizes the lineage masters of the Guangxing School, such as Bodhisattva Wusang, Bodhisattva of Worldly Relatives, Bodhisattva of Liberation Army, etc.
+The right shoulder of Nengren Vajradhara is shining, and on the light, he visualizes Maitreya Bodhisattva, the surroundings of Maitreya Bodhisattva, and visualizes the lineage masters of the Guangxing School, such as Bodhisattva Asanga, Bodhisattva of Worldly Relatives, Bodhisattva of Liberation Army, etc.
 
 On the left shoulder of Nengren Vajra General Holder, there is light on the light to visualize Manjusri Bodhisattva, around Manjusri Bodhisattva, and visualize the lineage masters of the Deep View School, such as Nagarjuna, Moon Bodhisattva, Dazheng Li Rhododendron, and Venerable Atisha. Wait.
 
@@ -7273,7 +7293,7 @@ In fact, this is a good thing. We already have the awareness to catch this emoti
 
 Not being angry will lead to health and longevity. Nagarjuna Bodhisattva lived for 600 years and never was angry in his life; 
 
-Wusang Bodhisattva lived for 400 years, and Yueshang Bodhisattva lived for more than 350 years, all of which are the result of not being angry.
+Asanga Bodhisattva lived for 400 years, and Yueshang Bodhisattva lived for more than 350 years, all of which are the result of not being angry.
 
 The Result of Clinging to Wrong Views: Clinging to wrong views is stubbornly clinging to upside-down ideas.
 Bad things are considered good, good things are considered bad; things that exist do not exist, and things that do not exist exist.
@@ -7282,7 +7302,7 @@ This is a wrong view, an upside-down notion.
 
 For example, Buddhas and Bodhisattvas do exist, but some people think they do not. Why? They say that they can't see them.
 
-There are many things that our naked eyes have not seen, but it cannot be said that there is nothing if we do not see it.
+There are many things that our naked eyes have not seen, but it cannot be said that there is nothing just because we do not see it.
 
 The six realms of reincarnation exist, and so do the three worlds of cause and effect. These are invisible to the eyes, but it cannot be said that they do not exist.
 
