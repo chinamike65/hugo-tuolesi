@@ -675,7 +675,7 @@ By the stages of the path of the three types of beings?
 
 ---
 
-.......... A Hymn of Experience (Lam rim nyam gur)
+.......... "A Hymn of Experience (Lam rim nyam gur)"
 
 by Je Tsongkhapa
 

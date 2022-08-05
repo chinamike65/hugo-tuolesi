@@ -290,7 +290,7 @@ Tibetan Buddhism has the five perfections, pure lineage, and the complete sequen
 
 6. The Three Main Paths
 
-7. Poetry of the Bodhi Path
+7. A Hymn of Experience (Lam rim nyam gur)
 
 8. The Verses of Prayer to the Eight Noble Auspicious Ones
 
@@ -620,13 +620,13 @@ Therefore, the "Longevity Prayer for the Guru" must be memorized.
 
 "Guru Yoga" is the foundation of becoming a Buddha, and it must be memorized.
 
-"Song of the Way of Victory" is about how to achieve step-by-step cultivation, and it must be memorized.
+"A Hymn of Experience (Lam rim nyam gur)" is about how to achieve step-by-step cultivation, and it must be memorized.
 
 "The Three Main Paths" is about the three main paths of renunciation, bodhicitta, and emptiness, which must be memorized.
 
-There are more than ten chapters in "Song of the Stages of the Bodhi Path", which condensed the essence of the two major treatises, "The Great Treatise on the Stages of the Path to Enlightenment" and "The Brief Treatise on the Stages of the Path to Enlightenment".
+There are more than ten chapters in "A Hymn of Experience (Lam rim nyam gur)", which condensed the essence of the two major treatises, "The Great Treatise on the Stages of the Path to Enlightenment" and "The Brief Treatise on the Stages of the Path to Enlightenment".
 
-Memorizing the merits and virtues of "The Poetry of the Bodhi Path" is equivalent to memorizing the merits of the "The Great Treatise on the Stages of the Path to Enlightenment" and "The Brief Treatise on the Stages of the Path to Enlightenment".
+Memorizing the merits and virtues of "A Hymn of Experience (Lam rim nyam gur)" is equivalent to memorizing the merits of the "The Great Treatise on the Stages of the Path to Enlightenment" and "The Brief Treatise on the Stages of the Path to Enlightenment".
 
 "Auspicious Hymn of the Eight Saints" should also be memorized.
 

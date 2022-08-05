@@ -63,7 +63,7 @@ Ngawang Gyatso Vajra Guru explained
 
 Table of contents
 
-#### Part III The Three Paths
+#### Part III The Three Principal Aspects of the Path
 
 #### Chapter 2 - Middle Path
 
@@ -291,17 +291,25 @@ Introduction to Tuole Monastery
 
 ...
 
-Do not contemplate the truth of suffering, and seek liberation as it is, not for life.
+If you do not put effort into contemplating true sufferings—the faults of cyclic existence—
 
-If you don't focus on the order of the steps, you can't solve the root cause.
+You will not develop the wish for liberation.
 
-After crossing You Haijian's painful thoughts, I realized what reincarnation is related to,
+If you do not contemplate true origins – the steps for entering cyclic existence—
 
-I am always working diligently, and those who are determined to get rid of it should be encouraged!
+You will not understand how to cut the roots of cyclic existence.
+
+Therefore, rely on weariness, definite emergence from existence;
+
+And cherish the knowledge of what binds you to cyclic existence.
+
+I, a yogi, practiced like this.
+
+You who desire liberation, should do likewise.
 
 ...
 
-——"The Ode to the Steps of the Bodhi Path"
+——"A Hymn of Experience (Lam rim nyam gur)"
 
 **Chapter 2 - Middle Path
 
@@ -3317,11 +3325,25 @@ In addition, Arahants do not possess the Bodhi mind to save sentient beings, so 
 
 ...
 
-The root of the tree is rooted in the heart of victory, the foundation of Rao Wei’s line is firm, the two resources are filled with gold and stones, the boundless sea of ​​goodness gathers the treasures of blessings, the sons of all victorious Buddhas see and know, the treasure of bodhicitta is the most important, I will continue to work hard like this, and I will seek Those who take off should be encouraged!
+The generation of the mind is the central post of the Mahayana path,
+
+The base and support of great waves of conduct,
+
+A philosopher’s stone transforming all into the two collections,
+
+A treasure of merit gathering infinite virtue.
+
+Having understood this, the heroic children of the conquerors
+
+Maintain deeply the pledges of the precious supreme mind.
+
+I, a yogi, practiced like this.
+
+You who desire liberation, should do likewise.
 
 ...
 
-——"The Ode to the Steps of the Bodhi Path"
+——"A Hymn of Experience (Lam rim nyam gur)"
 
 Chapter 3 Shangshi Dao The purpose of our study of Buddhism is to liberate all sentient beings, not just for our own liberation.
 
@@ -7701,33 +7723,37 @@ picture
 
 ...
 
-Good practice and common Dao become a Dharma instrument, 
+When I have become a [suitable] vessel by training in the common path,
 
-the best Vajrayana in the vehicle, 
+Please bless me to immediately enter
 
-all good husbands surpass the Dao steps, 
+The holy gateway of the fortunate beings—
 
-and smoothly enter the prayer for blessing.
+The supreme of all vehicles, the Vajrayana.
 
-At that time, there are two kinds of achievement books, 
+---
 
-which are called the samaya of pure discipline,
+At that time, the basis of accomplishing the two attainments
 
- wishing to obtain the true solution, 
- 
- sacrifice one's life to protect and pray for blessing.
+Is keeping my vows and samayas purely.
 
-The second righteousness reaches the mind of the tantra, 
+When I have gained effortless conviction in this,
 
-the second School should be well and diligently practiced, 
+Please bless me to protect them even at the cost of my life.
 
-and the four yogas should not be let loose, 
+---
 
-like the teacher's teaching and cultivating the blessing.
+Then, when I have realized exactly the vital points of the two stages—
+
+The essence of the tantric sets—
+
+And am enjoying the yoga of four sessions with effort, without being distracted [by nonmeditation objects],
+
+Please bless me to accomplish these according to the teachings of the holy beings.
 
 ...
 
-—— "Ode to the Way of Victory"
+—— "The Foundation of All Good Qualities"
 
 Chapter 1 - Requirements for Practicing Tantric Buddhism 
 
@@ -7793,11 +7819,19 @@ Therefore, after receiving the tantric empowerment, it is very important to keep
 
 305 pictures, ……
 
-The second righteousness reaches the mind of the tantra, and the second School should be well and diligently practiced, and the four yogas should not be neglected.
+---
 
-,  
+Then, when I have realized exactly the vital points of the two stages—
 
-—— "Ode to the Way of Victory"
+The essence of the tantric sets—
+
+And am enjoying the yoga of four sessions with effort, without being distracted [by nonmeditation objects],
+
+Please bless me to accomplish these according to the teachings of the holy beings.
+
+--- 
+
+—— "Foundation of All Good Qualities"
 
 **Chapter 2 - Tantric practice stage**
 
@@ -7971,23 +8005,37 @@ Therefore, the fact that we can meet Master Tsongkhapa's rectification shows tha
 
 pictures ……
 
-Countless sutras and tantras come together, and auspicious teachings gather in the ocean.
+This instruction, the king of powerful jewels,
 
-Witnessing that the teachings of the saints are not violated, 
+Fulfills all the desired aims of the nine types of beings;
 
-that the classics are inexhaustible as a teacher, 
+It is an ocean of glorious and excellent explanations
 
-that it is easy to gain the deep meaning of the saints, 
+Gathering the rivers of a thousand fine scriptures.
 
-and that the foolishness and evil cliffs are saved.
+---
 
-Therefore, there are skilled practitioners from India and Tibet, 
+Through it, you can realize that all the teachings are without contradiction,
 
-who always believe in Professor Yisheng, 
+Understand all the scriptures as an instruction,
 
-and who are not in the ranks of the three scholars.
+Easily find the intention of the Conqueror,
 
-——"The Ode to the Steps of the Bodhi Path"
+And be protected from the abyss of very faulty conduct.
+
+---
+
+Therefore, this supreme instruction is relied on by many fortunate ones,
+
+The wise beings of India and Tibet.
+
+What analytical person would not be captivated
+
+By the stages of the path of the three types of beings?
+
+---
+
+——"A Hymn of Experience (Lam rim nyam gur)"
 
 Part 5 - practice, practice, second, first, "Treasures of the Dharma Sea" 
 
