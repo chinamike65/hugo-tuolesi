@@ -14,23 +14,33 @@ Homage to the guru Mañjughosa.
 
 I bow my head to the chief of the Sakyas, whose body was formed by ten million perfect virtues, whose speech fulfills the hopes of limitless beings, whose mind sees precisely all objects of knowledge.
 
-俱胝圆满妙善所生身，成满无边众生希愿语，如实观见无余所知意，于是释迦尊主稽首礼
+俱胝圆满妙善所生身，成满无边众生希愿语，
+
+如实观见无余所知意，于是释迦尊主稽首礼
 
 I bow down to Ajita [Maitreya] and to Mañjughosa, the supreme heirs of the unequaled teacher [the Buddha]. Having assumed the burden of all the Conqueror's deeds, they emanate in innumerable buddha-realms.
 
-是无等师最胜子，荷佛一切事业担，现化游戏无量土，礼阿逸多及妙音
+是无等师最胜子，荷佛一切事业担，
+
+现化游戏无量土，礼阿逸多及妙音
 
 I bow to the feet of Nāgārjuna and Asanga, Thoroughly renowned throughout the three levels, Ornaments of Jambudvipa' who wrote exact commentaries on the intent Of the Mother of Conquerors, so difficult to fathom.
 
-如极难量胜者教，造释密意赡部严，名称遍扬于三地，我礼龙猛无着足
+如极难量胜者教，造释密意赡部严，
+
+名称遍扬于三地，我礼龙猛无着足
 
 I bow to Dipamkara [Atisha], bearer of the treasury of instructions that comprise the key points, unmistaken and complete, of the paths of the profound view and vast deeds, transmitted well from those two great trailblazers. 
 
-摄二大车善传流，深见广行无错谬，圆满道心教授藏，敬礼持彼然灯智
+摄二大车善传流，深见广行无错谬，
+
+圆满道心教授藏，敬礼持彼然灯智
 
 I bow with respect to the teachers who, with deeds of skill in means moved by loving concern, illuminate for the fortunate the gateway leading to liberation, the eye for viewing all the limitless scriptures. 
 
-遍视无央佛语目，贤种趣脱最胜阶，悲动方便善开显，敬礼此诸善知识
+遍视无央佛语目，贤种趣脱最胜阶，
+
+悲动方便善开显，敬礼此诸善知识
 
 Nowadays those making effort at yoga have studied few [of the classic texts], 
 
@@ -40,7 +50,9 @@ they tend to view the scriptures through the eyes of partisanship,
 
 unable to use reason to discriminate the meaning of scriptures. 
 
-今勤瑜伽多寡闻，广闻不善于修要，观视佛语多片眼，复乏理辩教义力
+今勤瑜伽多寡闻，广闻不善于修要，
+
+观视佛语多片眼，复乏理辩教义力
 
 Therefore, having seen that they lack the path pleasing to the wise, 
 
@@ -49,7 +61,9 @@ the supreme complete instructions, the key points of the teaching,
 I was inspired to explain
 this path of the great trailblazers. 
 
-故离智者欢喜道 圆满教要胜教授 见已释此大车道 故我心意遍勇喜。
+故离智者欢喜道 圆满教要胜教授 
+
+见已释此大车道 故我心意遍勇喜。
 
 All those fortunate ones who are unobscured by the darkness of partisanship, 
 
@@ -59,7 +73,9 @@ and who wish to make meaningful this good life and leisure
 
 should listen with one-pointed attention. 
 
-诸有偏执暗未覆，具辨善恶妙慧力，欲令暇身不唐捐，诸具善者专励听。
+诸有偏执暗未覆，具辨善恶妙慧力，
+
+欲令暇身不唐捐，诸具善者专励听。
 
 1. contain the key points of all of the Conqueror's scriptures, 
 
@@ -119,7 +135,7 @@ These instructions, in general, are those of the 《Ornament for Clear Knowledge
 
 In particular, the text for this work is Atisha's 《Lamp for the Path to Enlightenment》; 
 
-hence, the very author of the 《Lamp for the Path to Enlightenment》 is also the author of this [work]. 
+hence, the very author of the 《Lamp for the Path to Enlightenment》 is also the author of this work. 
 
 别则此之教典，即是菩提道炬。故彼造者，亦即此之造者。
 
@@ -135,7 +151,13 @@ Showing the greatness of the teaching's author in order that it is of noble orig
 
 3. Having gained those good qualities, what Atisha did to further the teachings. 
 
-其殊胜分三，① 圆满种中受生事理，② 其身获得功德事理，③ 得已于教所作事业。今初
+其殊胜分三，
+
+① 圆满种中受生事理，
+
+② 其身获得功德事理，
+
+③ 得已于教所作事业。今初
 
 Dro-lung-ba said that at age fifteen, after hearing Dharmakirti's Drop of Reasoning one time, Atisha debated with a famous scholar, a non-Buddhist logician, and defeated him, whereby his fame spread everywhere.
 

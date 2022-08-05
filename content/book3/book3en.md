@@ -99,7 +99,7 @@ San Shi Dao
 
 ![三士道](/images/sanshidaoshang.png)
 
-The third of the series "Treasures of the Dharma Ocean" in Tuole Monastery
+The third of the series "Treasures of the Dharma Ocean" from Tuole Monastery
 
 Sanshidao (Part 1 - Lower Scope)
 
@@ -107,7 +107,9 @@ Ngawang Gyatso Vajra Guru explained:
 
 I pay homage to the Great Master and the Buddhas and Bodhisattvas!
 
-Thank you Master! He worked hard to explain the "San Shi Dao", and personally guided the proof-reading of the book, benefiting all sentient beings. Thanks to the teacher's instructions, I wrote this preface with sincerity and admiration.
+Thank you Master! 
+
+He worked hard to explain the "San Shi Dao", and personally guided the proof-reading of the book, benefiting all sentient beings. Thanks to the teacher's instructions, I wrote this preface with sincerity and admiration.
 
 I would like to share with fellow practitioners the experience of proof-reading and studying "San Shi Dao" over the past year. Please forgive me for any parts which may seem incomprehensible or difficult to understand.
 
@@ -119,21 +121,21 @@ Great Bodhisattvas such as Nagarjuna and Asanga, as the lineage masters of the s
 
 The successive biography of books and essays.
 
-It was not until Venerable Atisha's "The Lamp for the Path to Enlightenment" that the order of the path of to enlightenment was clearly stated, and it was not until Master Tsongkhapa's "The Graded Stages of the Path to Enlightenment" that the steps of the path were explained clearly.
+It was not until Venerable Atisha's "The Lamp for the Path to Enlightenment" that the order of the path of to enlightenment was clearly stated, and it was not until Master Tsongkhapa's "The Great Treatise on the Stages of the Path to Enlightenment" that the steps of the path were explained clearly.
 
-Countless practitioners have achieved success according to the stages of the path to enlightenment, and they have also become a part of learning according to the stages of the path. However, the Great Exposition of the Stages of the Path is very terse and difficult to understand, especially for beginners.
+Countless practitioners have achieved success according to the stages of the path to enlightenment, and they have also become a part of learning according to the stages of the path. However, The Great Treatise on the Stages of the Path to Enlightenment is very terse and difficult to understand, especially for beginners.
 
 The study characteristics of Gelugpa.
 
-The compassionate master, taking into account the difficulties of all living beings in their studies, explained to us the essence of the path to enlightenment - "The Three Paths".
+The compassionate master, taking into account the difficulties of all living beings in their studies, explained to us the essence of the path to enlightenment - "The Three Principal Aspects of the Path".
 
-The "San Shi Dao" explained by the master focuses on the basics. In terms of content, it is mainly based on the teachings of the predecessors of the Gelug School and the sages of the Kadam School. The front and back sections of the whole book  explain and supplement each other.
+The "The Three Principal Aspects of the Path" explained by the master focuses on the basics. In terms of content, it is mainly based on the teachings of the predecessors of the Gelug School and the sages of the Kadam School. The front and back sections of the whole book  explain and supplement each other.
 
 In teaching the Dharma, the master cultivated profound and extensive knowledge, and adopted a comprehensive teaching method, including Yin and Ming, which was used when explaining the five traditional monastic subjects. The logic is rigorous and clear.
 
-On the whole "San Shi Dao", the master uses vivid and concise language and interesting allusions to describe how an ordinary person must take a bright road from attaining perfection in the world to liberation and becoming a Buddha.
+On the whole, in "The Three Principal Aspects of the Path", the master uses vivid and concise language and interesting allusions to describe how an ordinary person must take a bright road from attaining perfection in the world to liberation and becoming a Buddha.
 
-The lower Path mainly talks about the impermanence of life, the suffering of the three evil paths, taking refuge, and knowing cause and effect. Liberation from the cycle of samsara; the middle Path talks about bodhicitta, the ten paramitas, and the four captures, with the goal of attaining Buddhahood.
+The lower Path mainly talks about the impermanence of life, the suffering of the three evil realms, taking refuge, and knowing cause and effect. Liberation from the cycle of samsara; the middle Path talks about bodhicitta, the ten paramitas, and the four captures, with the goal of attaining Buddhahood.
 
 The cultivation of the three ways of lower, middle, and upper are the stages that every practitioner must go through. Buddhas and Bodhisattvas have come this way, and so have patriarchs and great virtuous masters.
 
@@ -147,7 +149,7 @@ What materials need to be prepared, etc., are all clearly explained.
 
 When reading other classics, it also has a strong guiding significance. It enables practitioners to determine which part of the Dharma a sutra belongs to, whether it is suitable for practice at the current stage, and so on. It is of great help to the study, and it has swept away the confusion in the mind of the student, and made his confidence in the Guru and the Three Jewels more firm.
 
-"San Shi Dao" is not only a teaching of Buddhism, but also has a strong guiding significance for life in this world. The book tells us: To truly cherish oneself and life, is to cherish the human body and cultivate earnestly; if you want to be prosperous and healthy, you must not steal or kill, you must give more, release more living animals, and repent of karma; If you have prestige and good karma, you must not create bad karma and make all living beings happy.
+"The Three Principal Aspects of the Path" is not only a teaching of Buddhism, but also has a strong guiding significance for life in this world. The book tells us: To truly cherish oneself and life, is to cherish the human body and cultivate earnestly; if you want to be prosperous and healthy, you must not steal or kill, you must give more, release more living animals, and repent of karma; If you have prestige and good karma, you must not create bad karma and make all living beings happy.
 
 In every respect, it varies.
 
@@ -159,13 +161,13 @@ During the proof-reading period, I often remembered the master's explanation in 
 
 The teacher's words are like a simple and powerful old hoe, and every sentence is hoeed on his heart that has been blinded by ignorance for a long time.
 
-Thinking about the first half of my life, I didn’t know how to choose between good and bad karma, I was dazed and didn’t know the direction, and I lived a life of confusion of right and wrong.
+Thinking about the first half of my life, I didn’t know how to distinguish between good and bad karma, I was dazed and didn’t know the direction, and I lived a life of confusion of right and wrong.
 
 Fortunately, it is worth meeting the teacher, and then you have to wake up.
 
 From now on, just by listening to the teacher's words, being an honest person, steadfastly studying, and benefiting sentient beings, can the meaning of life continue to increase, and only then can one be worthy of the three jewels, of the teacher and one's own life.
 
-The "San Shi Dao" published this time was compiled by many disciples of Tuo Le Shenzhen Center, based on video materials taught by the master in Hong Kong and Lishui in recent years, over two years.
+The "Three Principal Aspects of the Path" published this time was compiled by many disciples of Tuo Le Shenzhen Center, based on video materials taught by the master in Hong Kong and Lishui in recent years, over two years.
 
 In the process of sorting out the materials, the master also expanded a lot of content according to the actual situation of modern people's practice of Buddhism.
 
@@ -173,9 +175,9 @@ In particular, more detailed explanations and supplements have been made for the
 
 For example, the section on "Approaching the Good Men" in the "Great Treatise on the Stages of the Path of Enlightenment " has only 15 pages (Guanghua Temple edition of "The Path of Enlightenment"), and the text is difficult to understand. A Detailed explanation is given.
 
-It can be said that this edition of "San Shi Dao" is the most comprehensive, thorough and easy-to-understand book among the books that explain the correct sequence for teaching and learning the Dharma.
+It can be said that this edition of "The Three Principal Aspects of the Path" is the most comprehensive, thorough and easy-to-understand book among the books that explain the correct sequence for teaching and learning the Dharma.
 
-The master has repeatedly emphasized that the sooner the "San Shi Dao" is published, the sooner it will benefit all sentient beings!
+The master has repeatedly emphasized that the sooner the "The Three Principal Aspects of the Path" is published, the sooner it will benefit all sentient beings!
 
 Therefore, I often proof-read with my disciples until very late at night, and started proof-reading early the next day.
 
@@ -225,7 +227,7 @@ Section Three - Other writings on the Path ………….. 24
 
 2. The Importance of the Sequence of the Paths ................................................ 26
 
-Part 2: How to Learn the San Shi Dao ……………… 29
+Part 2: How to Learn The Three Principal Aspects of the Path ……………… 29
 
 Chapter 1 The root of the Path is to be close to the guru………….. 31
 
@@ -373,7 +375,7 @@ Section 3 The sin of disrespecting the guru ………………. 93
 
 (7) An unbalanced view of the sinful karma of the guru... 116
 
-##### Section 4  - The Mentality of Being Close to the Guru  … 118
+##### Section 4  - The Attitude of Being Close to the Guru  … 118
 
 1. The merits of reciting teachers and building up confidence. . . . 118
 
@@ -381,7 +383,7 @@ Section 3 The sin of disrespecting the guru ………………. 93
 
 (2) The power of vows of Buddhas and Bodhisattvas is incredible... 125
 
-(3) The virtues of reciting teachers build confidence... 126
+(3) The virtues of reciting teachers builds confidence... 126
 
 2. The kindness of reciting a teacher inspires respect. . . . 127
 
@@ -401,7 +403,7 @@ Section 5 - How to Learn to Draw Close to the Guru 135
 
 (2) Righteousness………………. 161
 
-(3) Closing the line ………………. 162
+(3) Dedication ………………. 162
 
 2. How to meditate in daily life………….. 162
 
@@ -419,7 +421,7 @@ Section 6 - Disciples' Virtues and Requirements... 163
 
 (1) Disciples who hear the Dharma should always seek the Dharma… 165
 
-(2) Disciples who hear the Dharma must eradicate the Dharmaults of the three kinds of devices... 166
+(2) Disciples who hear the Dharma must eradicate the faults of the three kinds of devices... 166
 
 3. There are six kinds of thoughts that disciples who hear the Dharma should have... 168
 
@@ -473,9 +475,9 @@ Section 1 - Precious Human Life ……………….. 173
 
 4. The Rareness of a Precious Human Body………….. 192
 
-(1) It is difficult to plant seeds that are full of human beings... 196
+(1) It is difficult to plant seeds  of a precious human life ... 196
 
-(2) The seeds of a lPrecious Human Body are difficult to protect...197 
+(2) The seeds of a Precious Human Body are difficult to protect...197 
 
 (3) The fruits of a Precious Human Body are difficult to fully mature...197
 
@@ -483,13 +485,13 @@ Section 1 - Precious Human Life ……………….. 173
 
 Section 2 - Correctly understand the essence of the Buddhism...... 202
 
-1. The goal of San Shi Dao ………….. 202
+1. The goal of The Three Principal Aspects of the Path ………….. 202
 
 2. Common and Uncommon Paths.. 203
 
-3. San Shi Dao Stages of Practice ………… 204
+3. The Three Principal Aspects of the Path Stages of Practice ………… 204
 
-Part III - San Shi Dao ……………………. 209
+Part III - The Three Principal Aspects of the Path ……………………. 209
 
 Part 1 - Lower Path …………………… 211
 
@@ -499,7 +501,7 @@ Chapter 1 - Impermanence of life ……………….. 211
 
 (1) People are bound to die. . . . 213
 
-(2) Not only will they die, but the time of death is uncertain. … 221
+(2) Not only will people die, but the time of death is uncertain. … 221
 
 (3) At the time of death, apart from the Dharma, nothing can help. … 226
 
@@ -511,13 +513,13 @@ Chapter 1 - Impermanence of life ……………….. 211
 
 3. How to realize the concept of impermanence in life... 233
 
-Section 2 - The Three Evil Paths of Suffering ……………….. 237
+Section 2 - The Three Evil Realms of Suffering ……………….. 237
 
 1. Reasons for falling into the Three Evil Realms 237
 
 2. The suffering of the three evil realms ……………… 239
 
-(1) Suffering in the hell realm ................................................ 239
+(1) Suffering in the hell realms ................................................ 239
 
 (2) The suffering of hungry ghosts ................................ 256
 
@@ -557,7 +559,7 @@ Section 4 Cause and Effect ……………………. 306
 
 (4) Innocence of Karma .... 321
 
-2. The Ten Paths of Karma……………….. 325
+2. The Ten Paths of Karma ……………….. 325
 
 (1) The results of the ten evil paths of karma ...... 326
 
@@ -567,17 +569,17 @@ Section 5: The Eight Blessed Personal Attributes ………………. 345
 
 1. Longevity…………………….. 345
 
-2. Majestic appearance………………. 345
+2. Majestic appearance ………………. 345
 
-3. Born to be a noble……………. 346
+3. Born to be a noble ……………. 346
 
 4. Wealth and popularity ………… 346
 
-5. Possessing morality……………….. 346
+5. Possessing morality ……………….. 346
 
-6. A person with authority………….. 347
+6. A person with authority ………….. 347
 
-7. A Precious Human Body... 347
+7. A Precious Human Life ... 347
 
 8. Possessing power………………. 347
 
@@ -600,37 +602,84 @@ Creator and Dharma
 
 ----
 
-Such as the teaching of the extremely difficult victors, the strictness of the ministry of esoteric interpretation,
+I prostrate at the feet of Nagarjuna and Asanga,
 
-The name is spread all over the three places, and I salute the dragon fiercely without any footing.
+Ornaments of Jambudvipa
 
-Photographing the two great cars is good at spreading the flow, seeing deeply that there is no error in wide practice,
+Renowned throughout the three levels,
 
-Perfect Dharma, teaching Tibetan, salute and hold him the wisdom of burning lamps.
+Who composed commentaries, in accordance with the intention,
 
-Seeing all the Buddha's words and eyes everywhere, the virtuous species escape from the highest order,
+On the Mother of the Conquerors so hard to fathom.
 
-Compassionate, convenient, and good openness, and pay homage to these good teachers.
+---
 
-Zhanbu is skillful to make the top rock, and everyone is called the beautiful and wonderful flag,
+I bow to Dipamkara Atisha,
+holder of the treasury of instructions
 
-Longmeng has no two Dharma streams, and the second best lineage of Enlightenment.
+That gathers together the important points, completely and unmistakenly,
 
-Fulfilling the wishes of many people, teaching the terma such as King Quan,
+Of the paths of profound view and vast conduct,
 
-Countless sutras and tantras come together, and auspicious teachings gather in the ocean.
+The excellent lineages descending from the two great charioteers.
 
-Witnessing that the teachings of the saints are not violated, and that there is no surplus of scriptures to teach,
+---
 
-It is easy to obtain the deep meaning of the saints, and the foolish and evil cliffs are rescued.
+I prostrate respectfully to the spiritual teachers,
 
-Therefore, the skillful person from India and Tibet, who always believes in Professor Yisheng,
+Eyes that see all the infinite scriptures,
 
-Jue only the order of the three priests, who is not enthusiastic and happy.
+Who with skillful means moved by compassion
 
-.......... Poetry of the Path of Enlightenment
+Clarify the supreme entryway for the fortunate traveling to liberation.
 
-Chapter 1 - lineage of the Paths
+---
+
+The stages of the path to enlightenment
+
+Are the excellent lineage handed down from Nagarjuna and Asanga,
+
+Crown ornaments of the wise of Jambudvipa
+
+And banners of fame resplendent among transmigratory beings.
+
+---
+
+This instruction, the king of powerful jewels,
+
+Fulfills all the desired aims of the nine types of beings;
+
+It is an ocean of glorious and excellent explanations
+
+Gathering the rivers of a thousand fine scriptures.
+
+---
+
+Through it, you can realize that all the teachings are without contradiction,
+
+Understand all the scriptures as an instruction,
+
+Easily find the intention of the Conqueror,
+
+And be protected from the abyss of very faulty conduct.
+
+---
+
+Therefore, this supreme instruction is relied on by many fortunate ones,
+
+The wise beings of India and Tibet.
+
+What analytical person would not be captivated
+
+By the stages of the path of the three types of beings?
+
+---
+
+.......... A Hymn of Experience (Lam rim nyam gur)
+
+by Je Tsongkhapa
+
+Chapter 1 - Lineage of the Paths
 
  This time I will tell you about the Three Paths and the stages of the Path to Enlightenment.
 
@@ -774,11 +823,11 @@ Even if I accidentally violated it occasionally, I would feel ashamed and immedi
 
 Many saints have been prophesied by the master Shakyamuni Buddha, Maitreya Bodhisattva, Manjushri Bodhisattva, Machig Labdrön, Yuecheng Bodhisattva, Guru Rinpoche, etc., all of whom have prophesied Master Tsongkhapa.
 
-Padmasambhava's "Ce Li Pai Wen" says:
+Padmasambhava's "W"ords of Encouragement" says:
 
 Padmasambhava foretold that a fully ordained Buddhist monk named Lobsang Drakpa would appear in the east, near the land of China who would be regarded as an emanation of a Bodhisattva of the greatest renown and would attain the Complete Enjoyment Body of Buddha – Enlightenment.
 
-"Near the eastern part of the Han land, there is a Sakyamuni named Lobsang."
+"In the East, near the Han land, there will be a Buddha named Lobsang Drakpa."
 
 In addition, in many sutras and treatises of great siddhas, there are prophecies of Master Tsongkhapa, who call him the second Buddha.
 
@@ -1032,19 +1081,37 @@ How to Learn the San Shi Dao
 
 ...
 
-The essence of all the sutras is stored in the heart, and this Tao is one by one to hold in mind,
+Contemplate the meaning of this method
 
-Speaking of the righteousness of the law, hearing the victory of virtue, this collection is the most important thing to think about.
+That gathers the essence of all the scriptures;
 
-Do all the good and good deeds, the wonderful karma is always the source,
+Even teaching or hearing a single session definitely gathers great waves
 
-Demonstrating that the Taoist and virtuous practitioners are diligent and courageous, willing to follow the truth,
+Of the assembled benefits of explaining or listening to the holy Dharma.
 
-Judging by the knowledge that he is not willing to give up his life, he obeys the teaching and performs the teacher's joyful offering.
+---
 
-I am always working diligently, and those who are determined to get rid of it should be encouraged!
 
-..........
+Rely, correctly and with effort, in thought and action
+
+On the holy spiritual friend, the teacher of the path
+
+And the foundation perfectly bringing auspiciousness
+
+For all the excellent collections of this and future lives.
+
+Having seen this, do not give him up even at the cost of your life,
+
+And please him with the offering of practicing just as he instructs.
+
+I, a yogi, practiced like this.
+
+You who desire liberation, should do likewise.
+
+---
+
+
+.......... Lines of Experience
 
 Chapter 1 - The root of the Path is to be close to the guru.
 
@@ -1122,7 +1189,7 @@ You must teach the Dharma for the sake of saving sentient beings with compassion
 
  Guru must have a Lineage, not only the Lineage, but also the Lineage must be pure.
 
-Our Lineage is from Sakyamuni Buddha to Manjushri Bodhisattva and Maitreya Bodhisattva, and slowly to Venerable Atisha, Master Tsongkhapa, and then from Gyaltsab Je and Kedrub Je to the fourth Panchen Lama. , the third Gongtang Rinpoche, and finally to Rako Rinpoche, and Rako Rinpoche to Dharma King Yongzin.
+Our Lineage is from Sakyamuni Buddha to Manjushri Bodhisattva and Maitreya Bodhisattva, and slowly to Venerable Atisha, Master Tsongkhapa, and then from Gyaltsab Je and Kedrub Je to the fourth Panchen Lama. , the third Gongtang Rinpoche, and finally to Rako Rinpoche, and Rako Rinpoche to Dharma Master Yongzeng.
 
 35
 
@@ -2214,7 +2281,7 @@ After the Buddha statues of the three major monasteries were all built, Master T
 
 "It is very good to build the Buddha statue of Sakyamuni in Ganden Monastery, but Drepung Monastery and Sera Monastery built my statues. In the future, the Dharma relationship of Ganden Monastery will be inferior to that of Sera Monastery and Drepung Monastery.”
 
-Later, it turned out to be the case. Ganden Saichi was the throne of Master Tsongkhapa. Those who sat in this position were equivalent to the leader of the Gelug sect. They were all the best teachers in the three monasteries. Among them, the most came from Sera Monastery and Drepung Monastery. Yes, there are very few from Ganden Monastery, because of the origin of the statue of the master.
+Later, it turned out to be the case. Ganden Saichi was the throne of Master Tsongkhapa. Those who sat in this position were equivalent to the leaders of the Gelug sect. They were all the best teachers in the three monasteries. Among them, the most came from Sera Monastery and Drepung Monastery. Yes, there are very few from Ganden Monastery, because of the origin of the statue of the master.
 
 80
 
@@ -2277,9 +2344,9 @@ Buddhist practitioners, if they do not achieve success in this life, when they d
 
 83
 
-Tibetan Buddhism has the Powa method of transferring consciousness to rebirth, and the Chinese have the method of reciting Amitabha Buddha, but if you don’t accumulate a certain amount of merit, you may not be able to successfully be reborn in the Pure Land, because when the bad karma is too heavy, you will be drawn by the bad karma. will fall into evil.
+Tibetan Buddhism has the Powa method of transferring consciousness to rebirth, and the Chinese have the method of reciting Amitabha Buddha, but if you don’t accumulate a certain amount of merit, you may not be able to successfully be reborn in the Pure Land, because when the bad karma is too heavy, you will be drawn by the bad karma and will fall into evil realms.
 
-Therefore, relying on oneself may not really be able to be reborn in the Pure Land.
+Therefore, by relying on oneself one may not really be able to be reborn in the Pure Land.
 
 However, when you are dying, if you can really think of your guru and miss your guru, you will definitely be reborn in the Pure Land!
 
@@ -2321,15 +2388,20 @@ Reciting the guru's prayer once is the same as reciting the mantra thousands of 
 
 We can also recite Master Tsongkhapa's prayer:
 
-Mingmei blames Wei for seeing the hot color in person, 
+---
+>
+>Objectless compassion, Chenrezig,
+>
+>Lord of stainless wisdom, Manjushri,
+>
+>Conquering mara’s hordes, Vajrapani,
+>
+>Crown jewel of the Sages of the Land of Snows, Tsongkhapa,
+>
+>Lobsang Drakpa, at your feet, I pray.
+>
 
-Zhimai is more sad than Wang Wujiang,
-
-Duhong Ma Lu Jiong Zai Sanweed, 
-
-Gangchen Kebezujian Tsongkhapa,
-
-Lausanne Zabechara Sowadi.
+---
 
 Frequently reciting the prayers of Master Tsongkhapa will have the merits of reciting the prayers of all Buddhas, Tathagatas, lineage masters, and root masters. It is very, very special.
 
@@ -3251,7 +3323,7 @@ Vajrapani Bodhisattva and other four deities, in order to save sentient beings, 
 
 Therefore, some people have many teachers, and one of them must be the incarnation of Buddhas and Bodhisattvas; some people have only one teacher, so this teacher must be the incarnation of Buddhas and Bodhisattvas.
 
-When our karma is very heavy, when we look at the guru, we will feel that it is very ordinary, and even see that the guru has many shortcomings and Dharmaults; when half of the karma has been eliminated, we can see the guru's many merits; when most of the karma has been eliminated, we have truly entered the path. Or when you attain bodhicitta, you see your guru as a bodhisattva; when you reach a bodhisattva in the eighth ground, you see your guru as the incarnation of a Buddha or deity; when you reach a tenth-level bodhisattva, you see your guru as the Buddha’s sambhogakaya.
+When our karma is very heavy, when we look at the guru, we will feel that he is very ordinary, and even see that the guru has many shortcomings and faults; when half of the karma has been eliminated, we can see the guru's many merits; when most of the karma has been eliminated, we have truly entered the path. Or when you attain bodhicitta, you see your guru as a bodhisattva; when you reach the level of a bodhisattva of the eighth ground, you see your guru as the incarnation of a Buddha or deity; when you reach a tenth-level bodhisattva, you see your guru as the Buddha’s Sambhogakaya.
 
 Therefore, we should now consider our root guru, as well as all lineage masters, to be all Buddhas and Bodhisattvas.
 
@@ -3263,9 +3335,9 @@ This makes it easy to build up confidence in the guru.
 
 The greater the confidence in the guru, the better, and the greater the confidence, the greater the blessings you will receive.
 
-Confidence in the guru is cultivated to the highest level. Seeing the guru and the Buddha is indistinguishable, seeing the guru and seeing the Buddha, seeing the Buddha and seeing the guru.
+Confidence in the guru is cultivated to the highest level. Seeing the guru and the Buddha as indistinguishable, seeing the guru and seeing the Buddha, seeing the Buddha and seeing the guru.
 
-At this time, great blessings will naturally be accumulated and many karmic obstacles will be eliminated.
+At this time, great energy will naturally be accumulated and many karmic obstacles will be eliminated.
 
 2. Reciting the kindness of the master inspires respect For ordinary disciples, the belief that the guru is a Buddha is not strong enough, and many people do not have a deep understanding of the kindness of the guru.
 
@@ -3273,7 +3345,7 @@ Therefore, you should always think about the kindness of your guru, which will h
 
 (1) Master En wins Buddha 127
 
-Teacher's kindness always surpasses all Buddhas. A teacher is a Buddha, and a teacher is the same as a Buddha, but in terms of kindness, the kindness of a teacher is greater than that of all Buddhas.
+Teacher's kindness always surpasses all Buddhas. A teacher is a Buddha, a teacher is the same as a Buddha, but in terms of kindness, the kindness of a teacher is greater than that of all the Buddhas.
 In the past innumerable kalpas, countless Buddhas were born, but none of us deserved to meet them.
 
 According to the classic records, in the sage kalpa we are now in, there will be a thousand Buddhas born. Buddha Shakyamuni is the fourth Buddha. Buddha Muni and Buddha Kasyapa) were born to guide and educate sentient beings, but none of us encountered them.
@@ -3282,27 +3354,32 @@ Now, we have met the guru, and the guru also taught us the full circle teaching 
 
 Therefore, although the merits of the master are equal to those of the Buddhas, the kindness of our teachings is greater than that of all the Buddhas.
 
-Master Bodova once said a paragraph, to the effect that: For ordinary practitioners, the appearance of the Buddha is the icing on the cake, but the appearance of the guru is a blessing in disguise, and the kindness of the guru is even greater.
+Master Potoba once said, to the effect that: For ordinary practitioners, the appearance of the Buddha is the icing on the cake, but the appearance of the guru is a blessing in disguise, and the kindness of the guru is even greater.
 
 Because in the early stage of learning, you will generally not see the Buddha, let alone accept the teachings of the Buddha.
 
 Only after one has cultivated to a certain level and reached a certain level, can one see the Buddha, and even hear the Buddha speak sutras.
 
-However, at this time, the cultivators have reached a very high level, and even if they cannot see the Buddha, the achievement may be a matter of one day and one day.
+However, at this time, the cultivators have reached a very high level, and even if they cannot see the Buddha, the achievement may be a matter of one day to the next.
 
 But the guru is different. The guru usually pulls the disciples back from the brink of the three evil realms when the disciples are just learning Buddhism, or even before they learn Buddhism, saves their Dharmakaya's wisdom and life, and leads them to liberation.
 
-Therefore, for ordinary practitioners, the kindness of the guru is greater.
+Therefore, for ordinary practitioners, the kindness of the guru is immense.
 
 128
 
-Master Kedrub Je said in "Ode to the Three Realms of Auspiciousness":
+Master Kedrup Je said in "Ode to the Three Realms of Auspiciousness":
 
-The only eyes of sentient beings in the three realms, the supreme parents for seeking liberation, the great compassion surpassing all Buddhas, the unparalleled master invites you.
+All sentient beings in the three realms have only one eye, the supreme master of all seeking liberation,
+
+Great compassion surpasses all buddhas, and the unparalleled master invites you.
 
 When we can't meet or see other Buddhas and Bodhisattvas, only the guru can teach us the Dharma, teach us the Dharma, and guide us. Therefore, the guru's kindness to us surpasses that of the Buddha.
 
-Shien is even better than Sakyamuni Buddha's Buddhist scriptures say that during the calamity period of the sage kalpa, in the Saha world, there was a wheel-turning holy king who ruled the four continents. The minister is called Hai Chen.
+Shi en is even better than Sakyamuni Buddha's 
+
+Buddhist scriptures say that during the calamity period of the sage kalpa, in the Saha world, there was a wheel-turning holy king who ruled the four continents. The minister is called Hai Chen.
+
 When they aroused bodhicitta before the Treasure Treasure Tathagata, the Treasure Treasure Tathagata prophesied that they would become Buddhas in virtuous kalpas, and after they became Buddhas, they would receive their respective realms.
 
 At this time, everyone chooses the period that is easy to control or the pure land. In the end, there are two periods of life spanning 100 years and 80,000 years old. No one dares to choose these two periods, because they have observed that the life span is 100 years old. When I was in a period of conflict, it was difficult for all sentient beings to subdue them, so they were afraid and gave up.
@@ -3317,15 +3394,15 @@ Therefore, to us living beings in the age of one hundred years of life, Shakyamu
 
 However, even so, we still have no good fortune to meet the Buddha, and we can only rely on the teacher to subdue us, so the teacher's kindness is even more important.
 
-It is also stated in the Treatise on Entering the Bodhisattva:
+It is also stated in "A Guide to the Bodhisattva's Way of Life":
 
-To benefit all sentient beings, countless Buddhas have passed away, but because of my own Dharmaults, I have not been taught by them.
+To benefit all sentient beings, countless Buddhas have passed away, but because of my own faults, I have not been taught by them.
 
 After the Buddha passed away, many masters and great siddhas appeared in India and Tibet.
 
 In the post-Hong Kong period of Tibetan Buddhism, there have been many incomparable and extraordinary figures such as the Five Sakya Patriarchs, Master Marpa, Venerable Milarepa, Venerable Atisha, Dhondunpa, and Master Tsongkhapa. Dade.
 
-However, due to our own karma, we were not able to receive the guidance of these masters due to the location and time of rebirth.
+However, due to our own karma, we were not able to receive the guidance of these masters due to the location and time of our rebirth.
 
 Only the present masters never leave us and teach us to renounce suffering and attain happiness.
 
@@ -4044,15 +4121,23 @@ If the disciple is listening in the front and the teacher is speaking at the bac
 
 ...
 
-Leisure is better than wishful pearls, and encounters are rare only today,
+This body of leisure,
 
-It is rare to be afraid of being lost like empty electricity. This conception of meaning is exhausted.
+More precious than a wish-fulfilling jewel,
 
-It is like the skin of empty chaff, day and night to take the heart,
+Is found but once. Though difficult to obtain again,
 
-I am always working diligently, and those who are determined to get rid of it should be encouraged!
+It finishes as quickly as lightning in the sky.
 
-——"The Ode to the Steps of the Bodhi Path"
+Having reflected in this way, realize that all worldly activities
+
+Are like winnowed chaff,
+
+I, a yogi, practiced like this.
+
+You who desire liberation, should do likewise.
+
+——"A Hymn of Experience (Lam rim nyam gur)"
 
 172
 
@@ -4473,135 +4558,145 @@ Here are four stories, the first one is the pilgrimage of insects. It means that
 
 The second story is riding a wild deer. This allusion says that there was a blind man named Zhugu who fell off a cliff when he was walking because his eyes could not see.
 
-At this time, a wild deer happened to come under the cliff, and Zhugu the blind fell on the back of the wild deer, and then he hugged the wild deer tightly. When the wild deer calmed down, the blind man sang happily.
+At this time, a wild deer happened to be walking at the bottom of the cliff, and Zhugu the blind landed on the back of the wild deer, and then he hugged the wild deer tightly. When the wild deer calmed down, the blind man sang happily.
 
-People on the side of the road asked him, what are you proud of, you blind man, the blind man said, I am a blind man who fell off a cliff and didn’t fall to his death, and I can ride a wild deer, how can I be unhappy.
+People on the side of the road asked him, what are you so happy about, you blind man. The blind man said, I am a blind man who fell off a cliff and didn’t fall to his death, and I can ride a wild deer, how can I be unhappy.
 
 This story shows that after we fall into the evil realm, we can be rescued and get the chance to get a human body, just like a blind man riding a wild deer.
 
-The third story is that Zangba eats fish. There was a person from the Zangba area. Once, when he came back from outside, his wife made fish for him to eat. Because he had never eaten fish before, he thought it was very fragrant, so he ate a lot of it, and he felt nauseous.
+The third story is 'Zangba eats fish'. There was a person from the Zangba area. Once, when he came back home, his wife made fish for him to eat. Because he had never eaten fish before, he thought it was very fragrant, so he ate a lot of it, and he felt nauseous, and about to be sick.
 
-At this moment, he immediately took off the shoelaces and tightened his throat with the shoelaces. Someone asked, "What are you doing?"
+Quickly, he immediately took off his shoelaces and tied them around his throat. His wife asked, "What are you doing?"
 
-He said: "It's a pity to spit out the fish after I finally got it."
+He said: "It would be a shame to vomit out the fish after I finally got it."
 
-We should also cherish the time and life we ​​have obtained just like the Tibetan people cherish fish and meat.
+We should also cherish the time and life we ​​have obtained just like Tibetan people cherish fish and meat.
 
-The fourth story is fried dough.
+The fourth story is 'Fried Dough'.
 
-One year there was a Dharmamine in the Tibetan area, and everyone was short of food.
+One year there was a famine in Tibet, and everyone was short of food.
 
-In one Dharmamily, my Dharmather went out to beg for food, and he got a little fried noodles, made some dough, and distributed a little to everyone in the Dharmamily.
+In one family, a father went out to beg for food, and he got a little fried tsampa, made some dough, and distributed a little to everyone in the family.
 
-There was a little child who was very ghostly. He hid the dough from his Dharmather behind him, and then asked his Dharmather for it. Dad gave him some more. After he ate it, he turned around and saw that the dough behind him was eaten by the dog. Crying loudly, he said, the fried noodles that he finally got were eaten by the dog.
+There was a little child who was very ghostly. He hid the dough from his father behind him, and then asked his father for more. Dad gave him some more. After he ate it, he turned around and saw that the dough behind him was eaten by the dog. Crying loudly, he said, the fried tsampa that he finally got were eaten by the dog.
 
 195
 
 This parable shows that we must cherish the human body that we have obtained with great difficulty.
 
-To truly make good use of one's own human body for liberation and Buddhahood, one should not easily waste the rare leisurely human body.
+To truly make good use of one's own human body for liberation and Buddhahood, one should not easily waste the rare and precious human body.
 
-These are a few rare allusions that Master Bodova told about Leisure Man.
+These are a few rare parables that Master Potoba told about the Precious Human Life.
 
-If we can truly cultivate, we can achieve liberation, attain Buddhahood, be reborn in the Land of Ultimate Bliss, or obtain a human body of leisure once again in our next life.
+If we can truly cultivate, we can achieve liberation, attain Buddhahood, be reborn in the Land of Ultimate Bliss, or obtain a precious human body once again in our next life.
 
-You can get what you want, but if you don't cherish it and don't practice, you'll really be wasting your time and life.
+You can get what you want, but if you don't cherish it and don't practice, you'll really be wasting your time and your life.
 
-If you know the conditions for obtaining a human body of leisure, you will understand how difficult it is to achieve a human body of leisure, because the causes and conditions of those conditions are difficult to meet.
+If you know the conditions for obtaining a precious human body, you will understand how difficult it is to achieve a precious human body, because the causes and conditions of those conditions are difficult to meet.
 
-Specifically, it is difficult to plant the seeds of a leisurely human body; even if they are planted, it is difficult to protect them; even if they work hard to protect them, the good fruits of a leisurely human body are difficult to fully mature.
+Specifically, it is difficult to plant the seeds of a precious human life; even if they are planted, it is difficult to protect them; even if you work hard to protect them, the good fruits of a precious human body are difficult to fully mature.
 
-(1) Seeds that fill the human body with leisure It is difficult to sow seeds that fill the human body with pure vows.
+(1) Seeds that bring a precious human life 
+
+The seed that results in a precious human body is to make pure vows. 
 
 It is hard to say whether the seeds of this kind of wish have been planted, and even if they are planted, whether they will germinate and grow in the future.
 
 196
 
-(2) It is difficult to protect the seeds of a human being of leisure, and after making good vows, one has to practice the ten good precepts, and then it is possible to obtain a human being of leisure.
+(2) It is difficult to protect the seeds of a precious human life
+
+After making good vows, one has to practice the ten good precepts, and then it is possible to obtain a precious human life.
 
 Even after cultivating the Ten Virtuous Precepts, one can accumulate the blessings of obtaining a human body of leisure and perfection, but because there are many factors that consume the blessings, it is not always possible to obtain a human body of leisure and perfection in the end.
 
-For example, if you lose your temper and anger before you die, or you hold wrong views of unbelief in cause and effect, etc., you will destroy the good deeds of the past kalpas, and the seeds of the human body will not be able to achieve good results.
+For example, if you lose your temper and get angry before you die, or you hold wrong views such as not believing in cause and effect, etc., you will destroy the good deeds of many past kalpas, and the seeds of the precious human body will not be able to ripen.
 
 Therefore, this seed is difficult to maintain.
 
-(3) It is difficult for the retribution of the human body to be fully mature even if there is no accidental consumption of blessings, no tantrums, no jealousy, and the ten good precepts, vows, and six perfections are also cultivated.
+(3) It is difficult to fully ripen the fruit of the precious human body 
+
+Even if there is no accidental consumption of good fortune, no anger, no jealousy, and the ten good precepts, vows, and six perfections are also cultivated.
 
 But at the end of life, compared with the blessings and rewards of life after life, if the karma is heavy, the results of bad karma will appear first, and the good results of the human body will be delayed, and it will be difficult to fully mature.
 
-You may even fall into the evil realm. This is the karma of the world, and no one can change it.
+You may even fall into the evil realms. This is the karma of the world, and no one can change it.
 
 Buddhist scriptures say:
 
 Those with extremely heavy karma in the world, near karma and habitual karma,
 
-The first industry, etc., in order, mature in turn.
+The strongest karma, etc., in order, mature in turn.
 
-When the karma is the same as the blessing, it is difficult to say which one will come out first. When the size is a little bit different, the bigger one will come out first.
+When the negative karma is the same as the good karma, it is difficult to say which one will come out first. When the size is a little bit different, the bigger one will come out first.
 
 So we need to repent often, try our best to reduce karma, and don’t let it have the opportunity to mature.
 
-Moreover, after falling into the evil realm, there is absolutely no chance to practice good dharma, and will continue to create karma, making it difficult to escape.
+Moreover, after falling into the evil realms, there is absolutely no chance to practice good dharma, and we will continue to create negative karma, making it difficult to escape.
 
-It is much more difficult to cultivate a human body full of leisure after being reborn in an evil realm than to cultivate and become a Buddha with a human body full of leisure now.
+It is much more difficult to cultivate a precious human life full of leisure after being reborn in an evil realm than to cultivate and become a Buddha with a precious human life full of leisure now.
 
-5. Cherish Leanman's Human Body After obtaining Leanman's human body, most people do not realize its value and can cherish Leanman's human body.
+5. Cherish this Precious Human Life 
 
-Instead, he lived his life in confusion and incomprehension.
+Once the precious human life has been obtained, most people do not realize its value and do not cherish this precious human life.
 
-Some people even rely on human beings to create a lot of karma, fall into the evil realm after death, and waste this rare and full human life.
+Instead, thy live their lives in confusion and incomprehension.
 
-In addition, some people have great blessings, they do well in their worldly careers, they make a lot of money, and they also do a lot of good deeds.
+Some people even rely on human beings to create a lot of karma, fall into the evil realms after death, and waste this rare and full human life.
+
+In addition, some people have great good fortune, they do well in their worldly careers, they make a lot of money, and they also do a lot of good deeds.
 
 198
 
-However, this can only obtain temporary benefits, obtain wealth in this world or the fruits of human beings and heaven, and cannot solve the major events of life after life, let alone become a Buddha. It can also be said to be a waste of time and life.
+However, this can only help obtain temporary benefits, obtain wealth in this world or the fruits of human beings and heaven, and cannot solve the major events of cyclical life after life, let alone become a Buddha. 
 
-To escape from the cycle of the six realms, until liberation and becoming a Buddha, we must use our body to cultivate. However, most people do not understand the characteristics of their own bodies, nor do they realize the special qualities of the human body.
+It can also be said to be a waste of time and life.
+
+To escape from the cycle of the six realms, until liberation and becoming a Buddha, we must use our bodies to practise. However, most people do not understand the characteristics of their own bodies, nor do they realize the uniqueness of the human body.
 
 Our Nanzhanbuzhou people are very special and have many unparalleled characteristics.
 
-For example, in order to liberate and become a Buddha, one must cultivate precepts, concentration, and wisdom.
+For example, in order to liberate oneself and become a Buddha, one must cultivate precepts, concentration, and wisdom.
 
-The five precepts in the precepts and other virtues of the precepts of liberation and liberation must rely on renunciation to truly arise.
+The five precepts contained in the vows and other virtues of the vows of separation and liberation must rely on renunciation to truly arise.
 
-However, beings in the three evil realms are always suffering, starving, and fearful, and beings in the heavenly realm are always enjoying themselves. It is difficult for these beings to renounce renunciation, and they may not even have the thought of renunciation.
+However, beings in the three evil realms are always suffering, starving, and fearful, and beings in the heavenly realm are always enjoying themselves. It is difficult for these beings to realise renunciation, and they may not even have the thought of renunciation.
 
-In the Saha world, although the people of Beijulu continent have great blessings, they are relatively stupid and not suitable for ordination. Among the other three continents, only those of us in the southern Zhanbu continent can generate renunciation and obtain the most extraordinary precepts and virtues. .
+In the Saha world, although the people of Beijulu continent have great fortune, they are relatively stupid and not suitable for ordination. Among the other three continents, only those of us in the southern Zhanbu continent can generate renunciation and obtain the most extraordinary precepts and virtues.
 
-In addition, the bodhicitta necessary for becoming a Buddha is also the most powerful in our human body. Therefore, Nagarjuna Bodhisattva said in the Book of Disciples:
+In addition, the bodhicitta aim necessary for becoming a Buddha is also the most powerful in our precious human body. Therefore, Nagarjuna Bodhisattva said in the Book of Disciples:
 
-If you want to become a Buddha and save sentient beings, only human beings can have great mental power.
+If you want to become a Buddha and save sentient beings, only human beings have this great mental power.
 
 The Tianlong Shura golden-winged python is not as good as the immortals.
 
 199
 
-This is also the case for upholding the Tantric precepts. Moreover, the most extraordinary of Tantric Buddhism is to become a Buddha, and it also requires a womb-born human body with the six elements (flesh, skin, blood, bone, marrow, and essence). Flesh.
+This is also the case for upholding the Tantric precepts. Moreover, the most extraordinary facet of Tantric Buddhism is to become a Buddha, and it also requires a womb-born human body with the six elements (flesh, skin, blood, bone, marrow, and essence). Flesh and blood.
 
-Therefore, in order to achieve Buddhahood and liberation, it is most suitable to use our human body to practice, with the greatest mental strength, the best conditions, and the Dharmastest Buddhahood.
+Therefore, in order to achieve Buddhahood and liberation, it is most suitable to use our human body to practice, with the greatest mental strength, the best conditions, and the fastest path to Buddhahood.
 
-After understanding this, we should be able to realize that relying on the human body to practice liberation will be Dharmaster.
+After understanding this, we should be able to realize that relying on the human body to practice liberation will be faster.
 
-Therefore, after you have obtained a human body full of leisure time, you cannot waste it. Ma Ming Bodhisattva said in the Treatise on the Treasure Box of Good Talk:
+Therefore, after you have obtained a precious human body full of leisure and time, you cannot waste it. Ma Ming Bodhisattva said in the Treatise on the Treasure Box of Good Talk:
 
-Such as business to Baozhou, empty-handed to return home.
+Going on business to Baozhou, empty-handed to return home.
 
 He deceived no more than this, no more than this great folly.
 
-It means that there is nothing more stupid in the world than a businessman who, regardless of his life and death, goes to a treasure land full of treasures in the sea, and then goes home empty-handed without taking anything.
+It means that there is nothing more stupid in the world than a businessman who, without regard for his life or death, goes to a treasure land full of treasures in the sea, and then comes home empty-handed without finding anything.
 
-We should also think this way: just like when you arrive at the treasure island, you cannot go back empty-handed; if you get a wish-fulfilling treasure, you cannot throw it away at will.
+We should also think this way: just like when you arrive at the treasure island, you cannot go back empty-handed; if you get a wish-fulfilling treasure, you cannot just throw it away.
 
 Once you have obtained such a precious human body, you must cultivate it well and not waste it.
 
-There was once a royal Dharmamily in India. During the war, the Dharmamily was destroyed and there was only one person left. Everyone took everything from their Dharmamily, and only a large and heavy piece of agarwood remained.
+There was once a royal family in India. During the war, the family was destroyed and there was only one person left. Everyone took everything from their family, and only a large and heavy piece of agarwood remained.
 
 200
 
 In order to make a living, he took the agarwood to sell on the street. Everyone saw that this piece of agarwood was too precious to buy.
 
-He was in a hurry. At this time, he saw someone selling charcoal next to him, and many people were buying it, so he burned the agarwood into charcoal and sold it.
+He was in a hurry. At this time, he saw someone selling charcoal next to him, and many people were buying it, so he burned the agarwood to turn it into charcoal and sold it.
 
 Once you have obtained a precious human body, if you do not practice the Dharma diligently, it is equivalent to burning this precious human body.
 
@@ -4609,103 +4704,109 @@ If you can think of it: it would be a pity to waste your time.
 
 With this kind of awareness, the notion that a human being full of leisure is rare arises easily.
 
-Being close to a good person and being able to meet a worthy teacher is the outer condition for learning and cultivating the Dharma; one is a person who is free and full of time, and has the eighteen conditions of being free.
+Being close to good people and being able to meet a worthy teacher are the outer conditions for learning and cultivating the Dharma; one is a person who is free and full of time, and has the eighteen conditions of being free.
 
 Learning Buddhism requires many different conditions. These two are the biggest and most important. We have already satisfied these two conditions. In this life, we should diligently practice the Dharma, so as not to waste our time and life.
 
 201
 
-The second section correctly understands that the Dharma heart must be close to the guru, which is the foundation of the Tao.
+Section 2 Correctly understand that the heart of the Dharma is to be close to the guru, which is the foundation of the Path.
 
-It is the lower, middle, and upper clergy.
+There are the Lower, Middle, and Upper scopes.
 
-Where to start learning Buddhism, that is to start with the clergy way, the most difficult thing to cultivate is the corporal way.
+Where to start learning Buddhism, that is to start with the path of the Lower scope, the most difficult thing to cultivate is the path of the Lower scope.
 
-Some people start cultivation directly from the Middle Way, which is impossible to achieve. If you want to achieve success, you must first cultivate the Lower School.
+Some people start cultivation directly from the Middle scope, which is impossible to achieve. If you want to achieve success, you must first cultivate the path of the Lower scope.
 
-The Tao is the Tao. If you have the Tao, you can achieve it. If you don’t follow the Tao, you can only accumulate some blessings, and it is impossible to get liberation.
+The Path is the Path. If you have the Path, you can achieve success. If you don’t follow the Path, you can only accumulate some blessings, but it is impossible to attain liberation.
 
-The foundation of Shangshidao is zhongshidao, the foundation of zhongshidao is sergeant Dao, and the basis of lower shidao is to be close to the teacher, so being close to the teacher is the foundation of Dao.
+The foundation of the path of the Upper scope is the path of the Middle scope, the foundation of the path of the Middle scope is sergeant Dao, and the basis of the Lower scope is to be close to the teacher, so being close to the teacher is the foundation of the Path.
 
 To become a Buddha, one must cultivate these three paths.
 
-1. The goal of Sanshidao The goal pursued by the corporal priesthood is not to fall into the evil path.
+1. The goal of the path of the Three Scopes 
 
-Including the impermanence of life, the suffering of the three evil paths, taking refuge, and respecting cause and effect.
+The goal pursued by the corporal priesthood is not to fall into the evil realms of rebirth.
+
+Including the impermanence of life, the suffering of the three evil realms, taking refuge, and respecting cause and effect.
 
 These four parts are to be cultivated by the mortals, and the result of achievement is the fruit of human and heaven.
 
-The goal pursued by the zhongshi Tao is to liberate oneself and obtain the fruit of Arahantship.
+The goal pursued by the the path of the Middle scope is to liberate oneself and obtain the fruit of Arhatship.
 
-To attain Arahantship, one must have renunciation. On the basis of renunciation, one can then cultivate the Four Noble Truths of Suffering, Accumulation, Elimination, and Path.
+To attain Arhatship, one must have renunciation. On the basis of renunciation, one can then cultivate the Four Noble Truths of Suffering, Accumulation, Elimination, and the Path.
 
-There are also two kinds of methods, one is to cultivate the twelve dependent origins, and the other is to cultivate morality, concentration, and wisdom. These three are the methods of the zhongshi way. You can practice any one of them, and you can achieve the status of Arahant.
+There are also two kinds of methods, one is to cultivate the Twelve Links of Dependent Origination, and the other is to cultivate morality, concentration, and wisdom. These three are the methods of the àth of the Middle Scope. If you can practice any one of them, you can achieve the status of Arhat.
 
 202
 
-The goal pursued by Shang Shidao is to become a Buddha, and the methods to be cultivated are compassion, bodhicitta, six paramitas, and four sets.
+The goal pursued by the path of the Upper Scope is to become a Buddha, and the methods to be cultivated are compassion, bodhicitta, six perfections, and four sets.
 
-After attaining the upper level, and then practicing the second stage of Tantra, the result obtained is becoming a Buddha, that is, obtaining the fruit status of a Buddha.
+After attaining the Upper level, then practicing the second stage of Tantra, the result obtained is becoming a Buddha, that is, obtaining the fruit status of a Buddha.
 
-It is a real and thorough awakening, a great awakening!
+It is a real and thorough awakening. A great awakening!
 
-2. Common and Uncommon Taos Three Shi Taos are divided into common and uncommon Taos.
+2. Common and Uncommon Paths The Path of the Three Scopes are divided into common and uncommon Paths.
 
-Although the goals pursued by the three Taos are not the same, those who want to become Buddhas must first cultivate the lower sect, then the middle and finally the upper sect.
+Although the goals pursued by the three Paths are not the same, those who want to become Buddhas must first cultivate the Lower Scope path, then the Middle and finally the Upper level.
 
 Let’s talk about common ground first.
 
-Those who want to practice upper shido must do it, those who want to practice middle shido must do so too, and those who want to practice lower shido must do so as well.
+Those who want to practice the path of the Upper Scope must do it, those who want to practice the path of the Middle Scope must do so too, and those who want to practice the path of the Lower Scope must do so as well.
 
-Those who cultivate the three kinds of Dao must go through and cultivate the Dao, which is the common Dao.
+Those who cultivate the three kinds of Paths must go through and cultivate the Path, which is the common Path.
 
-What is the common corporal? The impermanence of life, the suffering of the three evil paths, taking refuge, and respecting cause and effect, all these must be cultivated.
+What is the common Lower scope? The impermanence of life, the suffering of the three evil realms, taking refuge, and respecting cause and effect, all these must be cultivated.
 
-However, the goal of pursuit is not to attain the fruit of human beings and heaven, but to attain the fruit of Arahantship or become a Buddha.
+However, the goal of pursuit is not to attain the fruit of human beings and heaven, but to attain the fruit of Arhatship or to become a Buddha.
 
 203
 
-As for the common zhongshidao, if the goal of cultivating the zhongshidao is not to obtain the fruit of Arahantship, but to become a Buddha, to obtain the fruition of a Buddha, to renounce the Buddhahood, and then to cultivate disciplines such as precepts, concentration, and wisdom.
+As for the common Middle scope, if the goal of cultivating the zhongshidao is not to obtain the fruit of Arhatship, but to become a Buddha, to obtain the fruition of a Buddha, to renounce the Buddhahood, and then to cultivate disciplines such as precepts, concentration, and wisdom.
 
-It is the common sergeant.
+It is the common Middle scope path.
 
 In addition to the common way, there are also different ways.
 
-What is the uncommon corporal? If the person who cultivates the mortal way, the goal is only to get the fruit of man and heaven, it is the uncommon corporal way.
+What is the uncommon Lower scope? If the person who cultivates the mortal way, the goal is only to get the fruit of man and heaven, it is the uncommon corporal way.
 
 If the goal pursued by cultivating the sage path is to obtain the status of Arhat, and only to liberate oneself from samsara, then it is an uncommon sage path.
 
-The Tao of Shangshi is not a common way, it is the only way to liberate and become a Buddha, and there is no common method.
+The Path of the Upper scope is not a common way, it is the only way to attain liberation and become a Buddha, and there is no common method.
 
-3. The order of practice of San Shi Dao Some people have misunderstandings about San Shi Dao.
+3. The order of practice of Three Principle Aspects of the Path 
 
-For example, some people say: "Why do you want to cultivate the path of the inferior? The fruit of the path of the inferior is the fruit of man and heaven. I want to be liberated, and I do not cultivate the path of the inferior."
+Some people have misunderstandings about the Three Principle Aspects of the Path.
 
-Others said, "I want to become a Buddha. The fruit of the sage path is the fruit of Arahantship. I don't practice the sage path."
+For example, some people say: "Why do you want to cultivate the path of the Lower scope? The fruit of the path of the Lower scope is the fruit of man and heaven. I want to be liberated, and I do not want to cultivate the path of the Lower scope."
 
-This is all wrong! Although to become a Buddha, one must cultivate the sage way.
+Others said, "I want to become a Buddha. The fruit of the Middle Scope path is the fruit of Arhatship. I don't want to practice the Middle Scope path."
 
-However, the foundation of the upper way is the middle way, and the foundation of the middle way is the lower way. All three ways must be cultivated in order to become a Buddha.
+This is all wrong! Although to become a Buddha, one must cultivate the Middle Scope path.
+
+However, the foundation of the Upper scope is the Middle scope, and the foundation of the Middle scope is the Lower scope. All three paths must be cultivated in sequence to become a Buddha.
 
 204
 
-Without the renunciation of the sage path, the bodhicitta of the upper sage path cannot arise.
+Without the renunciation of the Middle path, the bodhicitta of the Upper sage path cannot arise.
 
-Renunciation is the foundation of bodhicitta. With renunciation, one can truly appreciate the suffering of sentient beings in the six realms, and can have a very subdivided understanding of the suffering of sentient beings. After experiencing the suffering of sentient beings, it is easy to initiate great compassion and compassion.
+Renunciation is the foundation of bodhicitta. With renunciation, one can truly appreciate the suffering of sentient beings in the six realms, and can have a very detailed understanding of the suffering of sentient beings. After experiencing the suffering of sentient beings, it is easy to initiate great kindness and compassion.
 
-Without great compassion and compassion, there is no bodhicitta.
+Without great kindness and compassion, there is no bodhicitta.
 
-The foundation of renunciation is the corporal view of impermanence in life.
+The foundation of renunciation is the Lower scope view of impermanence in life.
 
-Once the concept of impermanence is achieved, it is easy to cultivate to renunciation.
+Once the concept of impermanence is realised, it is easy to cultivate to renunciation.
 
-The foundation of the concept of impermanence is first to realize that the human body is rare, that is, the human body is full of leisure; to cultivate the concept of the rare human body, one must get close to the teacher, and the root of the Tao is to be close to the teacher; after getting close to and relying on the teacher, the Tao The concepts and methods of Taoism will naturally be understood.
+The foundation of the concept of impermanence is first to realize that the precious human body is rare, that is, the human body is full of leisure; to cultivate the concept of the rare and precious human body, one must get close to the teacher, and the root of the Dharma is to be close to the teacher; after getting close to and relying on the teacher, the Dharma, concepts and methods of Buddhism will naturally be understood.
 
-If the practice procedures are not disordered, the achievement will be very Dharmast; if the procedures are disordered, there will be no way to achieve success.
+If the practice procedures are not disordered, the achievement will be very fast; if the procedures are disordered, there will be no way to achieve success.
 
-If the path of cultivation is messy, it will be troublesome. Why is it difficult for people today to achieve success? It is because they do not understand the procedures, do not follow the procedures, and do not care about the order.
+If the path of cultivation is messy, it will be troublesome. Why is it difficult for people today to achieve success? 
 
-They all think about cultivating DaDharma, look down on corporal DaDharma, think it is a petty Dharma, and 100% of such people will not succeed because the procedures are messed up.
+It is because they do not understand the procedures, do not follow the procedures, and do not care about the order.
+
+They all think about cultivating Dharma, look down on the Lower scope path, think it is a petty Dharma, and 100% of such people will not succeed because the procedures are messed up.
 
 Just like taking a plane, you can't reach your destination if the route is messed up.
 
@@ -4713,65 +4814,84 @@ Just like taking a plane, you can't reach your destination if the route is messe
 
 In the past, great siddhis were constantly appearing in Tibet. Why?
 
-Because all of them practiced according to the Three Ways.
+Because all of them practiced according to the Three Scopes.
 
-The Three Ways taught by Buddha Shakyamuni is the Great Prajna Sutra, the Three Ways taught by Maitreya Bodhisattva is "The View of the Majesty of the Present", the Three Ways taught by Nagarjuna are "The Treasures", and the Three Ways taught by Bodhisattva Asanga are Shidao is the "Five Parts of the Earth", and the three Shidao taught by the Venerable Atisha is the "Lamp for the Path to Enlightenment".
+The Three Scopes taught by Buddha Shakyamuni is the Prajna Paramita Sutra, the Three Scopes taught by Maitreya Bodhisattva is "The View of the Majesty of the Present", the Three Ways taught by Nagarjuna are "The Treasures", and the Three Ways taught by Bodhisattva Asanga are Shidao is the "Five Parts of the Earth", and the three Shidao taught by the Venerable Atisha is the "Lamp for the Path to Enlightenment".
 
-These sutras, no matter from which point of view, and no matter what kind of person they have, in the final analysis, they are all about the stages of the Bodhi path and the three ways.
+These sutras, no matter from which point of view, and no matter what kind of person they have, in the final analysis, they are all about the stages of the path to enlightenment and the three principal aspects of the path.
 
-Beginning with Master Tsongkhapa, most of the practitioners have spent their entire lives reading Master Tsongkhapa's Extensive Treatise on the Sequence of the Path to Enlightenment and A Brief Treatise on the Sequence of the Path to Enlightenment.
+Beginning with Master Tsongkhapa, most of the practitioners have spent their entire lives reading Master Tsongkhapa's The Great Treatise on the Stages of the Path to Enlightenment and A Brief Commentary on the Steps of the Path to Enlightenment.
 
 Some of the great siddhis of the past have recited the Bodhi path extensively and briefly a thousand times or three thousand times.
 
-King Yongzeng once said:
+Master Yongzeng once said:
 
-"After I read The Brief Commentary on the Steps of the Path to Bodhi for 180 times, I really understood it.
+"After I read the 'Brief Commentary on the Steps of the Path to Enlightenment' 180 times, I really understood it.
 
-And the more you look at it, the more you understand it, the more you look at it, the more you feel that the Dharma is connected to your heart. In the end, the Dharma truly subdues your heart. "
+And the more you look at it, the more you understand it. The more you look at it, the more you feel that the Dharma is connected to your heart. In the end, the Dharma truly lives in your heart."
 
-The Dharma King also said that although he received all the empowerments and all the Dharma doors of Rako Rinpoche, the ones that helped him the most were the Extensive Treatise on the Stages of the Bodhi Path and the Brief Treatise on the Stages of the Bodhi Path. are from these two books.
+The Dharma Master also said that although he received all the empowerments and all the instructions of Rako Rinpoche, the ones that helped him the most were from these two books: The Great Treatise on the Stages of the Path to Enlightenment and the Brief Commentary on the Steps of the Path to Enlightenment.
 
-According to the experience of the great siddhas of the Gelug School, if you practice according to the procedures and don’t practice randomly, you can achieve the rank of the lower class in three years, the middle class in one year, and the upper class in one year. Among them, the most difficult one is the lower class .
+According to the experience of the great siddhas of the Gelug School, if you practice according to the procedures and don’t practice randomly, you can achieve the rank of the lower scope in three years, the middle scope in one year, and the upper scope in one year. Among them, the most difficult one is the lower scope .
 
-After attaining the upper level, one can become a Buddha in a total of seven years by practicing Tantra for the second time. This is the time it takes for an ordinary person to attain the ultimate achievement through practice.
+After attaining the upper level, one can become a Buddha in a total of seven years by practicing the Tantra of the second class. This is the time it takes for an ordinary person to attain the ultimate achievement through practice.
 
 And those who are very rare in all aspects, such as the Vajra disciples who practice extremely diligently, can become a Buddha in three years and three and a half months.
 
-This kind of excellence refers to those who have practiced Sanshi Dao in previous lives, and have achieved achievements, and have the foundation of inferior Shi Dao.
+This kind of excellence refers to those who have practiced the Three Principal Aspects in previous lives, and have achieved achievements, and have the foundation of the Lower scope.
 
-There is a book called "Liberation in the Palm of the Hand" taught by the order of the sermons. By learning and cultivating the three ways, liberation can really be mastered in one's own hands. There is such a certainty, and countless great achievers have also come this way.
+There is a book called "Liberation in the Palm of the Hand" taught by the order of the sermons. By learning and cultivating the three scopes, liberation can really be mastered in one's own hands. There is such a certainty, and countless great achievers have also come this way.
 
-Among the three kinds of Taoism, the corporal Tao is the most basic, and it is also the most difficult to learn and adhere to. Once you have achieved several concepts of the sergeant Tao, your practice will be very Dharmast.
+Among the three aspects of the path, the lower scope is the most basic, and it is also the most difficult to learn and adhere to. Once you have achieved several concepts of the sergeant Tao, your practice will be very fast.
 
 At this time, even if someone comes to stop us from practicing the Dharma, it will not stop us.
 
-Now, even if others encourage us to practice, we can't get up quickly, because everyone is still in the stage of corporal path, and we haven't crossed it yet.
+Now, even if others encourage us to practice, we can't get up quickly, because everyone is still in the stage of lower scope, and we haven't crossed it yet.
 
-San Shi Dao
+![三士道](/images/sanshidaored.png)
 
-The third part 3 "Treasures of the Dharmahai" Sanshidao
-
-...
-
-After death and fall, it is difficult to be settled in the end. There are only three treasures to save fear and believe.
-
-Be very firm in taking refuge, and don’t let your learning be weakened.
-
-Black and white karma is good and ingenious, and it is decided to choose between rationality and cultivation,
-
-I am always working diligently, and those who are determined to get rid of it should be encouraged!
-
-The nature of perfection and victory, which is the basis of the path, has never been enhanced.
-
-Ben Gusi should study diligently, and the three disciplines have become delinquents,
-
-Therefore, it is the real key to clear obstacles, and always have the four powers to practice repentance,
-
-I am always working diligently, and those who are determined to get rid of it should be encouraged!
+Section 3 "Treasures of the Dharma Ocean" Three Principal Aspects of the Path
 
 ...
 
-——"The Ode to the Steps of the Bodhi Path"
+Although there is no certainty that after death
+
+You will not be reborn in the bad migrations,
+
+The Three Jewels will definitely protect you from this fear,
+
+Therefore, steadfastly take refuge in them
+
+And never degenerate their precepts.
+
+In addition, think well about the results of black and white actions,
+
+And depend on the correct practice of that to be adopted and that to be rejected.
+
+I, a yogi, practiced like this.
+
+You who desire liberation, should do likewise. 
+
+---
+
+Until you attain a body with pure characteristics,
+
+You will not make progress in your practice of the supreme path;
+
+Train in the causes for becoming free from those impurities.
+
+Since your three doors are defiled by negative actions, downfalls, and stains,
+
+It is particularly important to purify karmic obscurations;
+
+Therefore, continuously cherish reliance on purification with the four forces.
+
+I, a yogi, practiced like this.
+
+You who desire liberation, should do likewise.
+...
+
+——"A Hymn of Experience (Lam rim nyam gur)"
 
 210
 
@@ -4974,15 +5094,17 @@ The first decision: you must study the Dharma
 
 By thinking about the first root of impermanence in life: people must die, and the three reasons why people must die, we have to make a decision: we must practice the Dharma.
 
-Everyone must think clearly and clearly: in our life, we will surely die wherever we are born; we will surely die in any age; in this life, no matter what our fate is, we will surely die; our lifespan will decrease every day, no Increase.
+Everyone must think very clearly: in our life, we will surely die wherever we are born; we will surely die at any age; in this life, no matter what our fate is, we will surely die; our lifespan will decrease every day, no extention.
 
-If you don't practice the Dharma very much in your lifetime, you won't be sure where you will go in future generations. It's really scary!
+If you don't practice the Dharma very much in your lifetime, you can't be sure where you will go in future incarnations. It's really scary!
 
 Therefore, you must practice the Dharma, you must practice the Dharma!
 
 220
 
-(2) Not only will it die but also die indefinitely. The second root of impermanence in life is that it will not only die but also die indefinitely.
+(2) Not only will you die but the time of death is uncertain. 
+
+The second root of impermanence in life is that it will not only die but also die indefinitely.
 
 The three reasons for indeterminate death are: life is uncertain; there are many causes of death; and the body is extremely fragile.
 
@@ -4991,7 +5113,7 @@ That is to say, in the four continents, the life expectancy of people on the oth
 
 People in Beiju Luzhou can live to a thousand years, and there is a regular period; the other two continents have a "half and half reduction" in their lifespan. People in Xiniu Hezhou can live 500 years; people in Dongshengshenzhou can live 250 years. Years old, have a regular.
 
-Only the people in Nanzhanbuzhou are different, "the last ten years are immeasurable", the initial lifespan is immeasurable years, and at the end of the Five Turbid Age, ten years old is the longest lifespan, and the lifespan is very, very short.
+Only the people in Nanzhanbuzhou are different, "the last ten years are immeasurable", the initial lifespan is immeasurable years, and at the end of the Five Turbid Ages, ten years old is the longest lifespan, and the lifespan is very, very short.
 
 Not only has a short lifespan, but it also dies indefinitely.
 
@@ -5008,7 +5130,7 @@ However, people in the Dharma-ending period now have thousands of diseases, and 
 
 External obstacles are demonic obstacles, and 84,000 demonic obstacles are also the cause of death. Many people died because of demonic obstacles.
 
-In addition, the disasters of earth, water, fire and wind are also the cause of death. Many people died of earthquakes, floods, fires, and wind disasters.
+In addition, natural disasters of earth, water, fire and wind are also the cause of death. Many people died of earthquakes, floods, fires, and wind disasters.
 
 There are many, many causes of death, but very few causes of life, and causes of life sometimes become causes of death.
 
@@ -5037,23 +5159,23 @@ For example, many people's bodies have fragile parts, which are the lifeblood, a
 
 Some people died after being slapped in the face. Everyone's lifeblood is different, and they don't know where they are.
 
-This kind of example that can easily hurt people, everyone can say a lot.
+Examples of people being easily hurt, everyone knows of many stories.
 
-There are several metaphors for the fragility of life in Buddhist scriptures: life is like an oil lamp in the wind, which is easily extinguished when lit in a strong wind; it is also like a bubble blowing on water, which is extinguished at once.
+There are several metaphors for the fragility of life in Buddhist scriptures: life is like an oil lamp in the wind, which is easily extinguished when lit in a strong wind; it is also like a bubble foaming on water, which is extinguished at once.
 
 Nagarjuna Bodhisattva also said in the Book of Relatives and Friends:
 
 Life is more harmful than impermanent. Blisters on the water are easy to burst.
 
-There is life and death between breathing and breathing, and it is a miracle to wake up after sleeping.
+There is life and death between one breath and the next, and it is a miracle to wake up after sleeping.
 
 It means that the impermanence of life is easier than the bursting of water bubbles, and there is life and death between breaths.
 
-Because when a person enters a deep sleep, the coarse breathing stops, and only the very fine air is flowing. The next morning, this fine air is not broken, and the person can wake up again, which is actually a very rare thing. matter.
+Because when a person enters a deep sleep, the coarse breathing stops, and only the very fine air is flowing. The next morning, if this fine air is not broken, the person can wake up again, which is actually a very rare thing.
 
-If you think about these three reasons, you will understand: we people in Nanzhanbuzhou have many causes of death, few causes of birth, and there is no fixed period of death.
+If you think about these three reasons, you will understand: we people in Nanzhanbuzhou have many causes of death, few causes of birth, and the moment of death is uncertain.
 
-And life is fragile, and even waking up after falling asleep is a miracle, and it’s true, but we don’t usually realize it.
+Life is fragile, and even waking up after falling asleep is a miracle, and it’s true, but we don’t usually realize it.
 
 So the scripture says:
 
@@ -5063,7 +5185,7 @@ Abandoning tomorrow's afDharmairs should be for future generations.
 
 Tomorrow or the afterlife, which comes first is unknown, and it is difficult to say where the afterlife will go.
 
-Sometimes people hear that someone has died, but no one expects that person to die.
+Sometimes people hear that someone has died, but no one expected that person to die.
 
 Everyone wants to live a long life, to live to ninety or one hundred years old, but they don't think about it.
 
