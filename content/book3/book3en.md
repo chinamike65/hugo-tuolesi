@@ -3978,13 +3978,15 @@ In addition, in order to prevent afflictions, obstruct the practice, and protect
 
 Section 6 Disciple's Virtue and Requirements 1. A disciple's Virtue must meet certain requirements to become a guru. To be a disciple, one must also have a disciple's Virtue. A disciple without Virtue will also hinder his study.
 
-The Four Hundred Verses of the Madhyamika say:
+The "Four Hundred Stanzas on the Middle Way" by Aryadeva say:
 
 The mind is wise and seeking to make progress, this is called the instrument for hearing the Dharma.
 
 That is to say, disciples who hear the Dharma must possess the three virtues of righteousness, wisdom, and seeking to improve.
 
-(1) Righteous Heart The first virtue is righteous heart.
+(1) Righteous Heart 
+
+The first virtue is righteous heart.
 
 Righteousness of mind means to be mentally normal and not to hold wrong views.
 
@@ -4678,11 +4680,23 @@ Therefore, in order to achieve Buddhahood and liberation, it is most suitable to
 
 After understanding this, we should be able to realize that relying on the human body to practice liberation will be faster.
 
-Therefore, after you have obtained a precious human body full of leisure and time, you cannot waste it. Ma Ming Bodhisattva said in the Treatise on the Treasure Box of Good Talk:
+Therefore, after you have obtained a precious human body full of leisure and time, you cannot waste it. Ashvaghosha Bodhisattva (Ma Ming) said in the Treatise on the Treasure Box of Good Talk:
 
-Going on business to Baozhou, empty-handed to return home.
+Those who have obtained a human life rich in virtues 
 
-He deceived no more than this, no more than this great folly.
+Through a collection of merit over innumerable eons, 
+
+And who then, due to confusion in this life, 
+
+Fail to accumulate even the slightest treasury of merit 
+
+Will in future lifetimes 
+
+Enter the house of unbearable sorrow.
+
+Like the traders who go to a land of
+
+jewels And return home empty-handed,
 
 It means that there is nothing more stupid in the world than a businessman who, without regard for his life or death, goes to a treasure land full of treasures in the sea, and then comes home empty-handed without finding anything.
 
@@ -4816,13 +4830,14 @@ In the past, great siddhis were constantly appearing in Tibet. Why?
 
 Because all of them practiced according to the Three Scopes.
 
-The Three Scopes taught by Buddha Shakyamuni is the Prajna Paramita Sutra, the Three Scopes taught by Maitreya Bodhisattva is "The View of the Majesty of the Present", the Three Ways taught by Nagarjuna are "The Treasures", and the Three Ways taught by Bodhisattva Asanga are Shidao is the "Five Parts of the Earth", and the three Shidao taught by the Venerable Atisha is the "Lamp for the Path to Enlightenment".
+The Three Scopes taught by Buddha Shakyamuni is the Prajna Paramita Sutra (Mahā-prajñāpāramitā Sūtra), the Three Scopes taught by Maitreya Bodhisattva is "Abhisamaya-alaṅkāra - Ornament for Clear
+Realization", the Three Ways taught by Nagarjuna are "Theory of Victory and Treasures", and the Three Ways taught by Bodhisattva Asanga are Shidao is the "Five Dharmas of Maitreya", and the three scopes taught by the Venerable Atisha is the "Lamp for the Path to Enlightenment".
 
-These sutras, no matter from which point of view, and no matter what kind of person they have, in the final analysis, they are all about the stages of the path to enlightenment and the three principal aspects of the path.
+These sutras, no matter from which point of view, and no matter who the author is, in the final analysis, they are all about the stages of the path to enlightenment and the three principal aspects of the path.
 
 Beginning with Master Tsongkhapa, most of the practitioners have spent their entire lives reading Master Tsongkhapa's The Great Treatise on the Stages of the Path to Enlightenment and A Brief Commentary on the Steps of the Path to Enlightenment.
 
-Some of the great siddhis of the past have recited the Bodhi path extensively and briefly a thousand times or three thousand times.
+Some of the great siddhis of the past have recited the Bodhi path extensively or briefly a thousand times or three thousand times.
 
 Master Yongzeng once said:
 
@@ -4830,7 +4845,7 @@ Master Yongzeng once said:
 
 And the more you look at it, the more you understand it. The more you look at it, the more you feel that the Dharma is connected to your heart. In the end, the Dharma truly lives in your heart."
 
-The Dharma Master also said that although he received all the empowerments and all the instructions of Rako Rinpoche, the ones that helped him the most were from these two books: The Great Treatise on the Stages of the Path to Enlightenment and the Brief Commentary on the Steps of the Path to Enlightenment.
+The Dharma Master Yongzeng also said that although he received all the empowerments and all the instructions of Rako Rinpoche, the ones that helped him the most were from these two books: The Great Treatise on the Stages of the Path to Enlightenment and the Brief Commentary on the Steps of the Path to Enlightenment.
 
 According to the experience of the great siddhas of the Gelug School, if you practice according to the procedures and don’t practice randomly, you can achieve the rank of the lower scope in three years, the middle scope in one year, and the upper scope in one year. Among them, the most difficult one is the lower scope .
 
@@ -5042,25 +5057,27 @@ It shows that Buddha power cannot stop karma.
 
 217
 
-Therefore, it is said in the "Abandoned Rock Mountain Sutra": "The incomparable wisdom and supernatural powers of the Buddhas are not as powerful as the power of impermanence, and the power of all Buddhas and Bodhisattvas combined is powerless to the lawful impermanence of death."
+Therefore, it is said in the "Abandoned Rock Mountain Sutra": 
+
+"The incomparable wisdom and supernatural powers of the Buddhas are not as powerful as the power of impermanence, and the power of all Buddhas and Bodhisattvas combined is powerless against the laws of impermanence and of death."
 
 Then, can you save yourself by obtaining supernatural powers? In the Anthology of Impermanence, it says:
 
-An immortal possessing the five powers, although he can travel thousands of miles in the air,
+"An immortal possessing the five powers, although he can travel thousands of miles in the air,
 
-There is no death wherever it goes, and such a place is hard to reach.
+Somewhere to live that is unharmed by death— Such a place does not exist. It does not exist in space, it does not exist in the sea, Nor if you stay in the midst of mountains."
 
-That is to say, those immortals who have supernatural powers and obtain five supernatural powers, no matter how they change, how Dharmast they run with supernatural powers, they will not be able to run away from immortality, and they will not be able to run away from death.
+That is to say, those immortals who have supernatural powers and obtain five supernatural powers, no matter how they change, how fast they run with supernatural powers, they will not be able to run away from impermanence, and they will not be able to run away from death.
 
 Power and wealth are useless.
 
 When the wheel-turning king's blessings are exhausted, he will also fall into the evil realm. The power and wealth of these worldly gods have no ability to stop death, let alone us ordinary people.
 
-There is no way for doctors to immortality, and there is no panacea for immortality. This is known and seen by everyone.
+There is no way for doctors to cure impermanence, and there is no panacea for impermanence. This is known and seen by everyone.
 
 In a word, there is no way to keep a person from dying.
 
-Lifespan is decreasing all the time, without any increase Our lifespan is decreasing every day, even breathing is decreasing, life is decreasing every moment.
+Lifespan is decreasing all the time, without any increase. Our lifespan is decreasing every day, even breathing is decreasing, life is decreasing every moment.
 In the Treatise on Entering Bodhisattva Actions, it says:
 
 Day and night without pause, this longevity is constantly diminished,
@@ -6107,29 +6124,29 @@ When Nengren marches, his feet are like wonderful lotuses,
 
 How can the lotus garden be beautiful on this land?
 
-(2) The merits of Buddha's speech 271
+(2) The merits of Buddha's speech 
 
-The Buddha has sixty-four speech qualities.
+271
 
-Master Tsongkhapa said on the basis of the Treasure Accumulation Sutra: The Essence of Truth:
+A Buddha has sixty-four qualities of speech .
+
+Master Tsongkhapa said on the basis of the Ocean of Clouds of Praise: The Essence of Truth:
 
 All sentient beings in the world ask doubts in one moment,
 
-Doing everything in front of each, with solemn body and speech at the same time,
+A Buddha’s speech resounds to the entire circle of those around him. Whether the listener is close or far, everyone hears his voice with equal volume the same as if he or she were sitting right up front.
 
-Although business interests are different.
-
-When Buddha Shakyamuni preached the sutras, if you listened to it in front of you, the sound would not be loud; if you listened to it Dharmar away, the sound would not be small, and it sounded the same.
+When Buddha Shakyamuni preached the sutras, if you listened to it in front of you, the sound would not be loud; if you listened to it from far away, the sound would not be too soft, and it sounded the same.
 
 After the disciples hear it, they will feel that every sentence hits their own troubles, and every sentence is useful.
 
-Especially when people of different races listen to the scriptures together, what they hear from the Buddha is the language they are Dharmamiliar with, what the Chinese hear is Chinese, and what the Tibetans hear is Tibetan.
+Especially when people of different races listen to the scriptures together, what they hear from the Buddha is the language they are familiar with, what the Chinese hear is Chinese, and what the Tibetans hear is Tibetan.
 
 Buddhas can answer different questions asked by people of different roots at the same time, and what everyone hears is the answer to their own question.
 
 Buddha Shakyamuni has such inconceivable qualities of speech.
 
-In "One Hundred and Fifty Praises", when praising the merits of the Buddha's speech, he said:
+In "Hymn of 150 Verses", when praising the merits of the Buddha's speech, he said:
 
 Guan Zun's face is lovely, from what he heard,
 
@@ -6143,7 +6160,7 @@ Destroy the most ignorant, obscured like the sun;
 
 By destroying my slow mountain, it is also waiting for King Kong.
 
-Seeing righteousness without deceit, without Dharmault therefore obeying,
+Seeing righteousness without deceit, without fault therefore obeying,
 
 Good affixes are easy to understand, and respectful words are good to say.
 
@@ -6304,11 +6321,11 @@ Dharma is the content of actual practice.
 
 A monk is a good friend and a friend of the Dharma.
 
-Cultivation of differences The cultivation of Buddha is to make offerings and undertakings. Dharmacing the Dharma is to practice the Dharma. To deal with the Sangha is to live in harmony with the Sangha in practice and life.
+Cultivation of differences The cultivation of Buddha is to make offerings and undertakings. Facing the Dharma is to practice the Dharma. To deal with the Sangha is to live in harmony with the Sangha in practice and life.
 
 The difference of mindfulness often recalls the merits of the Buddha, Dharma, and Sangha, and can cultivate the belief and pure confidence in the Three Jewels.
 
-In the "Sutra of the Three Treasures", the difference between reciting the Three Treasures is explained in detail:
+In the "The Noble Sūtra of Recalling the Three Jewels", the difference between reciting the Three Treasures is explained in detail:
 
 280
 
@@ -6322,7 +6339,7 @@ Forbearance is solemn, blessings and treasures are fundamental, wonderful and go
 
 faith is happy, wisdom is incapable of victory, strength is incapable of yielding.
 
-Teachers of sentient beings, Dharmathers of bodhisattvas, kings of saints, merchants of those who go to Nirvana.
+Teachers of sentient beings, Fathers of bodhisattvas, kings of saints, merchants of those who go to Nirvana.
 
 Wonderful wisdom is immeasurable, eloquence is difficult to think, speech is pure, voice and sound are beautiful;
 
@@ -6368,6 +6385,8 @@ Purify merit, purify all faiths.
 
 What should be gracious, universal should be gracious.
 
+---
+
 The Tibetan version of this sutra is very comfortable to read, and it is also very special. We should read it more and often when we have time.
 
 The difference between life and blessings Buddha can grow blessings by relying on one sentient being.
@@ -6391,7 +6410,7 @@ The monk should take refuge as a Dharma friend and companion in the practice of 
 
 He wrote a book called "Praise of the Sages", in which he said:
 
-I do not Dharmavor the Buddha, nor do I hate the heretics,
+I do not favour the Buddha, nor do I hate the heretics,
 
 Whoever preaches is reasonable, I believe in.
 
@@ -6435,7 +6454,7 @@ Because outsiders cannot access all kinds of wisdom, they lead to all kinds of
 
 284
 
-Wrong concept, after the concept is wrong, you will see things upside down and confused, so you will be wrong when you look at the perfect Buddha. Therefore, Venerable Tudun said that "the mind is broken and chaotic, and it is impossible to see the Buddha without Dharmault."
+Wrong concept, after the concept is wrong, you will see things upside down and confused, so you will be wrong when you look at the perfect Buddha. Therefore, Venerable Tudun said that "the mind is broken and chaotic, and it is impossible to see the Buddha without fault."
 
 In addition, in the history of heretics, there are many things of fighting and killing.
 
@@ -6462,7 +6481,7 @@ So as not to increase the troubles and hinder the study; Take and uphold the cor
 Abstinence and precepts include three aspects: taking refuge in the Buddha, not ghosts and spirits; taking refuge in the Dharma, without harming sentient beings; taking refuge in the Sangha, and not making evil friends.
 This is called forbidden precepts, which is said in the Great Parinirvana Sutra.
 
-(1) Those who have taken refuge in the Buddha, but not ghosts and spirits, "The Great Nirvana Sutra" says: "If you take refuge in the Three Jewels, it is a matter of right and near, and you should never take refuge in other gods and gods."
+(1) Those who have taken refuge in the Buddha, but not ghosts and spirits, "The Great Parinirvana Sutra" says: "If you take refuge in the Three Jewels, it is a matter of right and true, and you should never take refuge in other gods and gods."
 
 The difference between heretics and Buddhism has been discussed before, and I understand that only Buddhism has the true Dharma of liberation, which can lead sentient beings to Nirvana.
 
@@ -6472,15 +6491,15 @@ Therefore, after taking refuge in the Buddha, we don’t even take refuge in the
 
 If you often make offerings to these ghosts and gods and pray sincerely, you will unconsciously generate the heart to believe in them, and you will lose your refuge in the Three Jewels.
 
-After taking refuge in the Buddha, relying on the splendor of the Three Jewels, our leisurely human body has already surpassed those ghosts and gods. When some people encounter difficulties, it is very wrong to abandon the blessings of the Three Jewels and ask for the help of ghosts and gods.
+After taking refuge in the Buddha, relying on the splendor of the Three Jewels, our precious human body has already surpassed those ghosts and gods. When some people encounter difficulties, it is very wrong to abandon the blessings of the Three Jewels and ask for the help of ghosts and gods.
 
-For example, the gods of the earth, the gods of great freedom, and the gods of the gods, we cannot take refuge in them, because they have no ability to save us from reincarnation.
+For example, the gods of the earth, the gods of great freedom, and the gods of the gods, we cannot take refuge in them, because they have no ability to save us from rebirth.
 
 The monks do not bow down to worship these worldly gods. The blessings of the monks' precepts are very great, and they cannot bear it.
 
 If we take the five precepts, we should not kneel and worship, they will also be unhappy because they cannot bear this blessing.
 
-However, you can make offerings to these worldly gods, and you can ask them for help in worldly afDharmairs, such as asking them to help heal diseases, make money, and so on.
+However, you can make offerings to these worldly gods, and you can ask them for help in worldly affairs, such as asking them to help heal diseases, make money, and so on.
 
 Everyone must remember that the only one who can save us from the pain of the three evil realms is the Guru, the Three Jewels, and no other ghosts and gods have this ability.
 
@@ -6490,7 +6509,7 @@ For ghosts and gods, if you ask them to help support the cause of Buddhism, it i
 
 In addition, after converting to the Buddha, and then converting to the words of ghosts and gods, the original belief has become a different belief, and the different belief is also a new kind of trouble.
 
-(2) After taking refuge in the Dharma, the Dharma does not harm all living beings. The Dharma of Buddhism has great compassion, which is an important difference between Buddhism and heresy.
+(2) After taking refuge in the Dharma, the Dharma does not harm any living beings. The Dharma of Buddhism has great compassion, which is an important difference between Buddhism and heresy.
 
 Buddha Shakyamuni did not enter Nirvana after becoming a Buddha. It was because he had compassion for all beings and preached the Dharma in order to liberate all beings.
 
@@ -6508,7 +6527,7 @@ Therefore, unless you really have the ability to measure the other party, you sh
 
 Moreover, evil friends often harm others, and even some evil friends are murderers and terrorists, and such friends are even more unacceptable.
 
-This time I went to Europe to teach the Dharma, and some Catholics invited me to go. They believe in Buddhism and God. We may find it strange. Even so, as long as you keep listening to it, after a long time, you will be absorbed by the Three Treasures. Gradually, you will become pure faith in the Three Jewels.
+Once I went to Europe to teach the Dharma, and some Catholics invited me to go. They believe in Buddhism and God. We may find it strange. Even so, as long as you keep listening to it, after a long time, you will be absorbed by the Three Treasures. Gradually, you will become pure faith in the Three Jewels.
 
 In any case, there is a difference between those who have faith and those who do not. No matter which religion, they all exhort people to do good things and not to do evil things. This is the same.
 
@@ -6516,7 +6535,7 @@ However, the right view is different, the understanding of the good deeds and th
 
 For example, Brahmanism, the leader of Brahmanism said that the creator of all things is the Great Brahma, and the Great Brahma created all things, so we are the sons of the Great Brahma.
 
-Then, when we steal something, we take what belongs to our Dharmather, and there is no sin for a son to take what belongs to his Dharmather.
+Then, when we steal something, we take what belongs to our father, and there is no sin for a son to take what belongs to his father.
 
 But in our Buddhist view, this is not allowed. We talk about cause and effect, and if we create the cause of stealing, there will be evil retribution. This is the difference in right view.
 
@@ -6527,7 +6546,7 @@ Some people lack discernment in this area, so pay more attention.
 Before you have the ability to save such evil friends, or even distinguish them, you should stay away from them and not associate with these people for the sake of your own Dharma body and wisdom.
 
 Keeping the precepts is what we should abide by, including three points:
-If you have taken refuge in the Buddha, you must respect the Buddha statue.
+If you have taken refuge in the Buddha, you must respect the images of the Buddha.
 
 Once you have taken refuge in the Dharma, you must respect the Dharma.
 
@@ -6535,7 +6554,9 @@ Once you have taken refuge in the Sangha, you must respect the Sangha.
 
 Beginners of Buddhism are prone to offend these three points, and unknowingly accumulate a lot of bad karma.
 
-(1) Respect for Buddha statues For Buddha statues, whether they are statues or portraits; whether they are gilded or clay sculptures, made of copper, or other materials, all should be respected.
+(1) Respect for Buddha images 
+
+For Buddha statues, whether they are statues or portraits; whether they are gilded or clay sculptures, made of copper, or other materials, all should be respected.
 
 No matter how it looks or feels, there should be no sarcasm or rash remarks.
 
@@ -6547,15 +6568,15 @@ The Buddha statue should be regarded as a real Buddha, a field of blessing that 
 
 290
 
-Once, Gombawa invited a statue of Manjushri, took it to Venerable Atisha, and asked Venerable: "Is this statue well made? If it is not bad, you can invite it back." Venerable replied. : "There is nothing wrong with the statue of the Supreme Manjusri, but the workmanship of this statue is average." After that, he raised the statue of Manjushri respectfully on his head.
+Once, Gombawa made a statue of Manjushri, and took it to Venerable Atisha, and asked Atisha: "Is this statue well made? If it is not bad, you can give it back." Venerable replied. : "There is nothing wrong with the statue of the Supreme Manjusri, but the workmanship of this statue is average." After that, he raised the statue of Manjushri respectfully on his head.
 
 We should also respect Buddha statues like Venerable Atisha did. If we don’t respect Buddha statues and comment on Buddha statues and pagodas casually, there will be great sins and heavy retribution.
 
 (2) Respecting the Dharma, accepting and upholding the four verses of the Dharma, that is, more than one stanza, should stay away from and cut off all behaviors that are disrespectful to the Dharma.
 
-For example, mortgage and sell the scrolls; put the scrolls on the ground, on the seat, under the armpits, place them in dusty or easy-to-drop places, or put them together with shoes and socks, and cross the scrolls, etc.
+For example, buying and selling the scrolls; put the scrolls on the ground, on the seat, under the armpits, place them in dusty or easy-to-drop places, or put them together with shoes and socks, or step over the scrolls, etc.
 
-In Buddhist scriptures and dharma books, apart from the Hada for offering offerings, nothing else can be placed, not even Buddha statues.
+In Buddhist scriptures and dharma books, apart from the Hada for offering offerings, nothing else can be placed on top of them, not even Buddha statues.
 
 Because when the Buddha was alive, the Buddha also respected the Dharma and made offerings to the Dharma. In monasteries or Buddhist halls, Buddhist scriptures were placed on the Buddha statues to show respect for the Dharma.
 
@@ -6563,7 +6584,11 @@ Many of us arbitrarily place Buddhist scriptures and Dharma books, whether inten
 
 291
 
-Kadampa Dade Xarawa said: "I am equal to playing with the Dharma and doing everything, but those who disrespect the Dharma and the Dharma teachers are the cause of bad wisdom..." This means that many times, we don't think about things related to Buddhism and Dharma. They are all casual and casual, but in the final analysis, disrespect for the Dharma and disrespect for the guru is the main cause of bad wisdom.
+Kadampa Dade Xarawa said: 
+
+"I am equal to playing with the Dharma and doing everything, but those who disrespect the Dharma and the Dharma teachers are the cause of bad wisdom..." 
+
+This means that many times, we don't think about things related to Buddhism and Dharma. They are all casual and casual, but in the final analysis, disrespect for the Dharma and disrespect for the guru is the main cause of bad wisdom.
 
 (3) All monks should be treated equally in respect of the Sangha Treasures, and should be treated equally without distinction.
 
@@ -6577,11 +6602,15 @@ Therefore, no monks can be taken lightly.
 
 Some people casually comment on the monks' appearance and behavior, and say many things without thinking about it, and unintentionally plant evil causes. This should be noted.
 
-In the past, the Kadampa master Zhongdunpa and the great yogi Shayrawa saw what looked like a broken yellow cloth on a monk's robe on the road. They dared not step on it. , these are what we should learn.
+In the past, the Kadampa master Zhongdunpa and the great yogi Shayrawa saw what looked like a broken yellow cloth on a monk's robe on the road. They dared not step on it. These are what we should learn.
 
 292
 
-In addition, the "Samadhi King Sutra" says: "What kind of karma does one set up, and it should be like this." The Three Jewels are the most profound blessing fields in the world. Therefore, no matter how you respect the Three Jewels, you will feel the respect of all beings to you. , to gain the respect of others.
+In addition, the "Samadhi King Sutra" says: 
+
+"What kind of karma does one set up, and it should be like this." 
+
+The Three Jewels are the most profound blessing fields in the world. Therefore, no matter how you respect the Three Jewels, you will feel the respect of all beings to you. , to gain the respect of others.
 
 (2) Practice after taking refuge in the Three Jewels
 
@@ -6592,24 +6621,35 @@ The point is to be very clear about each difference or merit, and to think about
 
 Only by constantly remembering the merits of the Three Jewels and constantly cultivating our heart of taking refuge will our faith in the Three Jewels become stronger and stronger.
 
-Offering to the Three Jewels Practice Method 293
+Offering to the Three Jewels Practice Method 
+
+293
+
 (1) What are the merits of making offerings to the Three Jewels? According to the more extensive explanations in the scriptures, for Buddha statues or Buddha's relics, even with a bouquet of flowers, one can feel the fruit of Nirvana.
 
-The "Guanyin Sutra" says: "In the past, making offerings to countless Buddhas in person is not as great as making offerings to a Buddha statue in the last days.
+The "Guanyin Sutra" says: 
 
-"The sutra also says: Incense, flowers, lamps, paints, bells, music, umbrellas, covers, banners, and flags, each of which has ten kinds of merit.
+"In the past, making offerings to countless Buddhas in person is not as great as making offerings to a Buddha statue in the last days."
+
+The sutra also says: 
+
+Incense, flowers, lamps, paints, bells, music, umbrellas, covers, banners, and flags, each of which has ten kinds of merit.
 
 For example, by offering flowers, you can feel that the world where the practitioner will be born in the next life is as beautiful as a flower, with a strong body, extraordinary aura, beautiful skin color, and a strange fragrance on the body, and there will be no shortage of wealth.
 
-In short, when making offerings to the Buddha, which one of the six Buddha Dharmaculties you make offerings to, you will feel that your corresponding Dharmaculties are clean, bright, peaceful and wonderful.
+In short, when making offerings to the Buddha, which one of the six Buddha faculties you make offerings to, you will feel that your corresponding faculties are clean, bright, peaceful and wonderful.
 
 It is also said in the sutra that if you offer anything with sincerity, you can feel the fruit of becoming a Buddha.
 
-The book written by Songtsan Gampo, the Tibetan king, describes the merits of making offerings to Buddha statues by citing the words of Manjusri Bodhisattva asking Buddha. Manjusri Bodhisattva asked: After Buddha Nirvana, what are the blessing fields for all living beings.
+The book written by Songtsan Gampo, the Tibetan king, describes the merits of making offerings to Buddha statues by citing the words of Manjusri Bodhisattva asking Buddha. Manjusri Bodhisattva asked: 
 
-The Buddha replied: Bhikkhus and Upas, all of you must be aware that after I Nirvana, the offering of my body and image is no different from the field of merit and blessing that I presently offered to me.
+After Buddha Nirvana, what are the blessing fields for all living beings.
 
-There is no reason to be Dharmamiliar.
+The Buddha replied: 
+
+Bhikkhus and Upas, all of you must be aware that after I Nirvana, the offering of my body and image is no different from the field of merit and blessing that I presently offered to me.
+
+There is no reason to be familiar.
 
 Only when a Buddha is born can there be a Buddha statue.
 
@@ -6629,7 +6669,9 @@ Sometimes when everyone eats together, they put their hands together and say som
 
 In this way, eating is originally a consumption of blessings, but after making offerings, it will increase the blessings.
 
-(3) Make offerings continuously. You also need to persevere in making offerings, especially when you are not very good at making offerings, or the offerings are relatively poor.
+(3) Make offerings continuously. 
+
+You also need to persevere in making offerings, especially when you are not very good at making offerings, or the offerings are relatively poor.
 
 When the Kadampa Dade Puqiongwa made offerings to the Three Jewels, they could only offer spicy herbs at first, but gradually they were able to offer synthetic long incense, and later they were able to offer precious agarwood.
 
@@ -6647,11 +6689,11 @@ The heart must be good and broad.
 
 There must be strong confidence in the Three Treasures, and joy from the heart.
 
-After making offerings with such a mentality, then dedicate the merits and virtues to the supreme Bodhi, not to attain the fruit of man, heaven and Theravada, let alone to focus on worldly afDharmairs, that is, to dedicate to the vastness.
+After making offerings with such a mentality, then dedicate the merits and virtues to the supreme Bodhi, not to attain the fruit of man, heaven and Theravada, let alone to focus on worldly affairs, that is, to dedicate to the vastness.
 
 In the "Sutra of Judgment by King Ajatashi", there is a story about a poor girl who gave a lamp and received the prophecy of the Buddha. It shows that even if the offerings are small, but with great intentions, they can still get great results.
 
-One day, when the Buddha was in the Qijaburi Mountain in the country of Luoyueqi, King Ajataset invited the Buddha to have a meal. After the meal, the Buddha returned to the Jihuan Jingshe, and the Dharmamous doctor, the old woman, suggested lighting a lamp for offering to the Buddha.
+One day, when the Buddha was in the Qijaburi Mountain in the country of Luoyueqi, King Ajataset invited the Buddha to have a meal. After the meal, the Buddha returned to the Jihuan Jingshe, and the famous doctor, the old woman, suggested lighting a lamp for offering to the Buddha.
 
 296
 
@@ -6661,13 +6703,17 @@ At that time, there was a poor girl named Muni. Although she always wanted to ma
 
 Using a copper coin from begging, he lit a small oil lamp in front of the Buddha.
 
-The Muni girl knew that the lamp would be extinguished in the middle of the night, so she reverently made a vow to the Buddha: "I wish to be able to do Buddhist deeds in all my lifetimes, and I ask the Buddha to be blessed with this lamp that will not burn out all night."
+The Muni girl knew that the lamp would be extinguished in the middle of the night, so she reverently made a vow to the Buddha: 
+
+"I wish to be able to do Buddhist deeds in all my lifetimes, and I ask the Buddha to be blessed with this lamp that will not burn out all night."
 
 After dawn, the Buddha asked the Venerable Muggallana to put out the oil lamp.
 
 The Venerable went to the lamp of the Muni girl, and it was extinguished three times, but the lamp could not be extinguished. After the extinction, the light still shone into the sky, illuminating the three thousand worlds.
 
-After seeing it, the Buddha said: "This is the light of the future Buddha. The faith of the Muni girl has eliminated countless kalpas of sin and karma. After another thirty kalpas, her merits and virtues will be perfect, and she should be able to become a Buddha. The sun and the moon are needed, the people are full of great light, and the treasures in the palace are illuminated by the light, like the sky.”
+After seeing it, the Buddha said:
+
+"This is the light of the future Buddha. The faith of the Muni girl has eliminated countless kalpas of sin and karma. After another thirty kalpas, her merits and virtues will be perfect, and she should be able to become a Buddha. The sun and the moon are needed, the people are full of great light, and the treasures in the palace are illuminated by the light, like the sky.”
 
 When the Muni girl heard the Buddha's prophecy, she rejoiced in her heart and bowed to the Buddha.
 
@@ -6675,7 +6721,9 @@ After hearing this, King Ajataseth asked the old woman, "I have done a lot of me
 
 297
 
-The old woman replied: "Although the great king has done many things, his heart is different. The Muni girl has devoted herself to the Buddha because of her vows and devotions, and her heart has already corresponded to the boundless dharma.
+The old woman replied: 
+
+"Although the great king has done many things, his heart is different. The Muni girl has devoted herself to the Buddha because of her vows and devotions, and her heart has already corresponded to the boundless dharma.
 
 Because of her sincerity, the poor girl Muni only lit a lamp and received the prophecy of the Buddha, so she should come to become a Buddha.
 
@@ -6691,7 +6739,7 @@ Wherever you want to go, you must first worship three times in front of the Budd
 
 298
 
-The same is true for the lamas in the monastery. When they go Dharmar away, they should go to the Great Sutra Hall of Tuo Le Monastery first. After offering lamps, they make three bows, and then make seven offerings, offer mantras, and pray for a while before leaving. It will go smoothly.
+The same is true for the lamas in the monastery. When they go far away, they should go to the Great Sutra Hall of Tuo Le Monastery first. After offering lamps, they make three bows, and then make seven offerings, offer mantras, and pray for a while before leaving. It will go smoothly.
 
 In this way, not only will one's wishes come true, but it will also gradually strengthen the confidence in the Three Jewels, laying a solid foundation for future study.
 
@@ -6745,7 +6793,7 @@ As a result, after his death, because of the great blessings he offered to thous
 
 This is an example of the wrong devotion, but, even so, the blessing will eventually return to liberate him to become a Buddha.
 
-Our usual devotion is "dedicated merits and virtues to the six realms and sentient beings are free from suffering and attain happiness." This is a very good devotion. All living beings in the six realms are free from suffering and attain happiness, including both Dharmamily members and ourselves. It is very extraordinary. .
+Our usual devotion is "dedicated merits and virtues to the six realms and sentient beings are free from suffering and attain happiness." This is a very good devotion. All living beings in the six realms are free from suffering and attain happiness, including both family members and ourselves. It is very extraordinary. .
 
 Don't be afraid if the devotion is wrong, even if the blessing will turn to the wrong place, after taking refuge, because of the merit of taking refuge, the blessing will still return to the ultimate vow of becoming a Buddha and liberation.
 
@@ -6781,7 +6829,7 @@ The Buddha said in the "Guangzhou Game Sutra": "A person who is blessed can achi
 Venerable Milarepa's previous life, Kadampa's great virtue Chachacha also said: "If you have a normal heart of taking refuge, you will first be rewarded in this life, everything will be successful, and then at the end of your life, you will receive auspicious signs. ."
 
 Quick Achievement 304
-Before taking refuge, all aspects of practice are much worse than after taking refuge. Not to mention, there are the same differences as heaven and earth in terms of accumulating merit and eliminating karma. Therefore, after taking refuge, the achievement of studies will be Dharmaster.
+Before taking refuge, all aspects of practice are much worse than after taking refuge. Not to mention, there are the same differences as heaven and earth in terms of accumulating merit and eliminating karma. Therefore, after taking refuge, the achievement of studies will be faster.
 
 For the practice of the Four Refugees, please refer to Treasures of the Dharma Sea II.
 
@@ -6793,7 +6841,7 @@ If you don’t respect cause and effect, don’t know how to restrain yourself, 
 
 We always feel that we have studied Buddhism, and we have taken refuge in the Three Jewels of Guru.
 
-I feel that I haven't done much bad things, I seem to be Dharmar away from the evil realm, and I don't worry much about falling into the evil realm.
+I feel that I haven't done much bad things, I seem to be far away from the evil realm, and I don't worry much about falling into the evil realm.
 
 In fact, this is just an appearance that arises because you do not understand cause and effect, do not understand the essential characteristics of karma, and are not good at observing and thinking.
 
@@ -6805,7 +6853,7 @@ At the time of death, whichever power of good and evil karma is stronger will be
 
 I feel that I haven’t done much bad karma in this life, but if the big bad karma I created in the previous life matured in this life, or the small bad karma has grown into a big bad karma, what should I do?
 
-The size of karma, on the one hand, has something to do with the strength of the motive, Dharmabrication, and results of the karma.
+The size of karma, on the one hand, has something to do with the strength of the motive, fabrication, and results of the karma.
 
 Therefore, what we think of as a small evil can actually become a very large evil karma.
 
@@ -6920,7 +6968,7 @@ Therefore, we must face it calmly, and do not generate hatred and cause greater 
 The strong proliferative nature of the essence of karma The strong proliferative nature of the essence of karma is: even a small bad karma, when the retribution comes out, it will grow to a great size, and can harm a person for life after life; a small good karma Karma, when the good fruits appear, the blessings will be immeasurable and boundless.
 This is the general law of the nature of cause and effect, just like a small fire that burns up will eventually burn down the entire forest.
 
-For example, King Ashoka, when the Buddha was alive, King Ashoka's previous life was still a child of an ordinary Dharmamily.
+For example, King Ashoka, when the Buddha was alive, King Ashoka's previous life was still a child of an ordinary family.
 
 One day, the Buddha and Venerable Ananda met this child on the road. He was very happy when he saw the Buddha, but he had nothing to support him, so he grabbed a handful of soil on the ground and offered it to Shakyamuni Buddha as food.
 
@@ -6942,11 +6990,11 @@ He vowed: "How long is Nagarjuna Bodhisattva's lifespan, my lifespan will be as 
 
 "I made a vow to never leave my teacher, and after I made this vow, King Lexing lived for more than a hundred years before he died.
 
-At that time, Nagarjuna Bodhisattva took many precious classics from the Dragon Palace, spread Buddhism widely, and the Buddhadharma became more and more prosperous in the world. The Demon King Bo Xun was extremely uneasy and wanted to destroy the Buddhadharma, so he was reborn as Prince Guli, the son of King Lexing. , In order to gain the throne, every day expects his Dharmather to die.
+At that time, Nagarjuna Bodhisattva took many precious classics from the Dragon Palace, spread Buddhism widely, and the Buddhadharma became more and more prosperous in the world. The Demon King Bo Xun was extremely uneasy and wanted to destroy the Buddhadharma, so he was reborn as Prince Guli, the son of King Lexing. , In order to gain the throne, every day expects his father to die.
 
 However, no matter what you do, the king will not die.
 
-Later, his mother said to him: "Your Dharmather vowed to protect Nagarjuna Bodhisattva and live as long as Nagarjuna Bodhisattva. If Nagarjuna Bodhisattva passed away, your Dharmather would not die.
+Later, his mother said to him: "Your father vowed to protect Nagarjuna Bodhisattva and live as long as Nagarjuna Bodhisattva. If Nagarjuna Bodhisattva passed away, your father would not die.
 
 "The prince came to Nagarjuna Bodhisattva and said that he had unfortunately suffered from a disease that requires a human brain to heal, and asked the Bodhisattva to donate his head.
 
@@ -7056,9 +7104,9 @@ The Buddha's reincarnation day, enlightenment day, and death day are April 15th.
 
 The Buddha comes from the thirty-three days on September twenty-two.
 
-On the fourth day of the sixth month, the day when the Buddha first turned the Dharmalun.
+On the fourth day of the sixth month, the day when the Buddha first turned the Wheel of Dharma.
 
-The second day of the Buddha turning the Dharmalun is the fifteenth day of the third month.
+The second day of the Buddha turning the Wheel of Dharma is the fifteenth day of the third month.
 
 Tsongkhapa was born and passed away on the twenty-fifth of October.
 
@@ -7075,11 +7123,11 @@ In general, these are auspicious days, and on these special days, the results of
 If you do evil, the reward for evil will be great; if you do good, the reward for good will be great.
 
 The strong proliferation of individual good dharmas, some good dharmas have some unique laws, and we must understand and master them.
-(1) Strong proliferation in a special period In the age of the end of the Dharma, the merits of taking a certain precept and keeping it for one day are Dharmar better than the merits of keeping the whole precepts and keeping the precepts for a long time in the age of perfection.
+(1) Strong proliferation in a special period In the age of the end of the Dharma, the merits of taking a certain precept and keeping it for one day are far better than the merits of keeping the whole precepts and keeping the precepts for a long time in the age of perfection.
 
 (2) Strong proliferation in special regions 319
 
-In the Saha world of the age of the end of the Dharma, the merits and virtues of practicing good deeds for a moment are Dharmar better than the merits and virtues of practicing good deeds in the pure land of Buddhas and Bodhisattvas for many kalpas.
+In the Saha world of the age of the end of the Dharma, the merits and virtues of practicing good deeds for a moment are far better than the merits and virtues of practicing good deeds in the pure land of Buddhas and Bodhisattvas for many kalpas.
 
 We are now in the Saha world of the end of the Dharma era.
 
@@ -7218,7 +7266,7 @@ The opposite of the ten good karma is the ten evil karma, which are: killing, st
 
 (1) The results of the ten evil karma
 
-Severe killing means killing arahants, Dharmathers and mothers, and killing; 
+Severe killing means killing arahants, fathers and mothers, and killing; 
 
 moderate killings means killing large animals; 
 
@@ -7320,17 +7368,17 @@ A small licentiousness will fall into the realm of beasts.
 
 People who are wicked will consume the blessings quickly, and then gradually they will become ugly, ugly, and their bodies will stink; the living environment will be bad and dirty, and there will be a lot of muddy sewage. These are the results of wickedness.
 
-Abstaining from sexual immorality is also called the holy life. Such a person will be very beautiful, the body will naturally emit fragrance, the Dharmamily will be happy, the husband and wife will be harmonious, and the children will be happy.
+Abstaining from sexual immorality is also called the holy life. Such a person will be very beautiful, the body will naturally emit fragrance, the family will be happy, the husband and wife will be harmonious, and the children will be happy.
 
 It will be very fortunate, and after death, it will almost always be reborn in heaven.
 
-The consequence of Dharmalse speech is to speak deceitful words with the motive of greed, hatred, and delusion. The object of the speech is a normal person, and the other party can understand and have normal understanding ability.
+The consequence of false speech is to speak deceitful words with the motive of greed, hatred, and delusion. The object of the speech is a normal person, and the other party can understand and have normal understanding ability.
 
 330
 
 There are many kinds of lies, and the most serious lies are the teaching of the Law of the Supreme Being.
 
-The Dharma of the Master is to Dharmalsely claim that one has the merits and virtues above the first jhana, and Dharmalsely claim that one has the merits and abilities beyond the world.
+The Dharma of the Master is to falsely claim that one has the merits and virtues above the first jhana, and falsely claim that one has the merits and abilities beyond the world.
 
 For example, if you don’t have the merits of Buddhas and Bodhisattvas at first, but you say that you have such merits, you say that you are a Buddha or Bodhisattva; you don’t have supernatural powers, but you say you have supernatural powers; you are not a living Buddha, but you say that you are a living Buddha; .
 
@@ -7359,7 +7407,7 @@ The result of not telling lies is that you will be trusted by everyone and prais
 The consequences of lying is to sow discord.
 The more serious duplicity is in the monastery, when talking among the Sangha to instigate dissension, don't underestimate this verbal karma. This kind of karma is very easy to create, so be very careful.
 
-Others sow out the relationship between Dharmamily members.
+Others sow out the relationship between family members.
 
 For example, saying in front of the master, "Master, this disciple is not sincere and unbelieving in you..." to provoke the relationship between the master and the disciple.
 
@@ -7375,7 +7423,7 @@ The retribution is to cause relatives and friends to stay away or to fight and d
 
 332
 
-The result of not talking twice is that you will have more and more friends, and you will be liked by more and more people. Everyone believes in whatever you say, and you will be respected by your Dharmamily and subordinates, and it will be easy to achieve your career.
+The result of not talking twice is that you will have more and more friends, and you will be liked by more and more people. Everyone believes in whatever you say, and you will be respected by your family and subordinates, and it will be easy to achieve your career.
 
 The consequences of evil speech is to curse people.
 If you scold Buddhas, Bodhisattvas and teachers, the result in the next life will be going to hell. This is a very serious slander.
@@ -7501,7 +7549,7 @@ And it will also attract demons, because demons follow evil qi. Over time, they 
 
 So we must deal with anger, or be able to control it.
 
-First of all, at ordinary times, you should pay attention to the consequences and Dharmaults of anger, and gradually imprint them in your mind and consciousness.
+First of all, at ordinary times, you should pay attention to the consequences and faults of anger, and gradually imprint them in your mind and consciousness.
 
 Then you have to remind yourself frequently of things that may make you unhappy, and keep vigilant in your heart.
 
@@ -7604,7 +7652,7 @@ The Buddha said: "You are ignorant of the good teacher, this is an evil teacher,
 
 You have killed nine hundred and ninety-nine people like this and chopped off their thumbs, what a sin! After hearing this, Zhigao regretted it, converted to Buddhism, and repented before Shakyamuni Buddha. After a few years, his karma was eliminated and he attained the fruit of Arahantship.
 
-When Venerable Milarepa was a child, his Dharmather died, his uncle and aunt seized his Dharmamily's property and made him, his mother and sister work for them as servants.
+When Venerable Milarepa was a child, his father died, his uncle and aunt seized his family's property and made him, his mother and sister work for them as servants.
 
 His mother often said to him, "I heard that there is a Bon religion in Tibet. You go to learn some skills and come back and curse them. If you don't go, I will hang myself in front of you."
 
@@ -7618,7 +7666,7 @@ Therefore, no matter how great the negative karma is, it can be eliminated throu
 
 343
 
-At the same time of repentance, if you recite sutras and practice diligently, these karmic obstacles will be eliminated Dharmaster.
+At the same time of repentance, if you recite sutras and practice diligently, these karmic obstacles will be eliminated faster.
 
 Not only do we have to eliminate great negative karma, but even the smallest karma must be completely eliminated, and we must repent and clean up.
 
@@ -7632,7 +7680,7 @@ Section 5: If a human being can respect cause and effect, he will not fall into 
 
 However, we not only want to avoid falling into the evil realms and obtain the fruits of humans and heaven, but also to obtain the precious human body.
 
-Among the people who are full of leisure, the one who is most conducive to the practice of Buddhism is the one with the eight virtues. The eight virtues will be Dharmaster and more powerful in the practice of liberation.
+Among the people who are full of leisure, the one who is most conducive to the practice of Buddhism is the one with the eight virtues. The eight virtues will be faster and more powerful in the practice of liberation.
 
 A person with the eight virtues includes the following eight aspects:
 
@@ -7650,7 +7698,7 @@ After meeting Nagarjuna Bodhisattva, everyone made a vow to be like Nagarjuna Bo
 
 3. Born as an aristocrat: In modern society, there is no noble title, but there are still people who are rich, kind, and the three treasures of pure faith.
 
-If you are born in such a Dharmamily, there will be fewer obstacles to learning Buddhism.
+If you are born in such a family, there will be fewer obstacles to learning Buddhism.
 
 4. Wealth and popularity: people with wealth and popularity will have a an easier time  of doing good deeds and practicing.
 
@@ -7678,7 +7726,7 @@ If you have enough wisdom, you won't get tired when you practice the Dharma, you
 
 The above is a precious human body with the eight virtues.
 
-Relying on a human body with the eight virtues to practice the Dharma, it is very comfortable, very happy, relatively relaxed, liberating and attaining Buddhahood Dharmaster.
+Relying on a human body with the eight virtues to practice the Dharma, it is very comfortable, very happy, relatively relaxed, liberating and attaining Buddhahood faster.
 
 When the conditions are met, it will be very convenient and easy to forgive others.
 
