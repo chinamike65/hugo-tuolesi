@@ -48,40 +48,40 @@ Practice the Dharma
 
 Master Ngawang Gyatso was born on March 3, 1969 (the fifteenth day of the first lunar month) in Hainan Tibetan Autonomous Prefecture, Qinghai Province.
 
-The master began to practice Buddhism as a novice monk at the age of six, and became an ordained monk at the age of eighteen. He studied with Dharma Master Lama Yong Zeng, Geshe Rinpoche, Lobsang Dorje Vajra Guru, Gejia Rinpoche, Dharma Master Yeshe Gyatso, and Gazang Qusong Vajra Guru and the 10th Panchen Lama.
+The master began to practice Buddhism as a novice monk at the age of six, and became an ordained monk at the age of eighteen. He studied with Dharma Master Lama Yong Zeng, Geshe Rinpoche, Lobsang Dorje Vajra Guru, Gejia Rinpoche, Dharma Master Yeshe Gyatso, Gazang Qusong Vajra Guru and the 10th Panchen Lama.
 
-Master Ah Wang, having followed the precepts of his teachers, received complete transmission of the teachings from his seven masters, the forty-sixth generational heirs of the "Prajna Paramita Sutra", the most important classic of Buddhism. From them he obtained more than 200 kinds of empowerments, more than 300 advanced special empowerments, more than 280 guiding precepts, with more than 500 scriptural sutras and more than 80 oral transmissions of intangible secrets. Therefore, the lineage of the master's doctrinal transmission is extremely complete and especially rare.
+Master Ah Wang, having followed the precepts of his teachers, received complete transmission of the teachings from his seven masters, the forty-sixth generational heirs of the "Perfection of Wisdom Sutra", the most important classic of Buddhism. From them he obtained more than 200 kinds of empowerments, more than 300 advanced special empowerments, more than 280 guiding precepts, with more than 500 scriptural sutras and more than 80 oral transmissions of intangible secrets. Therefore, the lineage of the master's doctrinal transmission is extremely complete and especially rare.
 
-His Holiness Dharma Master Yongzeng, who was once the sutra teacher of the living Buddha, Sechi, in Lamodeqin Monastery was a person of superior virtue and the complete holder of the transmissions of the Gelugpa tantric teachings. Master Ah Wang followed Master Yongzeng for more than 20 years and absorbed all of the experience of the Venerable Dharma Master. The other six masters are also highly proficient in the esoteric secrets and have sufficient evidence of exceptional scholarly achievements. 
+His Holiness Dharma Master Yongzeng, who was once the sutra teacher of the living Buddha, Sechi, in Lamodeqin Monastery was a person of superior virtue and the complete holder of the transmissions of the Gelugpa tantric teachings. Master Ah Wang studied with Master Yongzeng for more than 20 years and absorbed all of the wisdom and experience of the Venerable Dharma Master. The other six masters are also highly proficient in the esoteric secrets and have sufficient evidence of exceptional scholarly achievements. 
 
-In addition, Master Ah Wang studied at Qinghai Buddhist College and the Ta'er (Kumbum) Monastery  Debating College of Dialectics (Debating College).
+In addition, Master Ah Wang studied at Qinghai Buddhist College and the Ta'er (Kumbum) Monastery Debating College of Dialectics (Debating College).
 With a single-minded commitment to study and wide erudition, he completed the study of sutra and tantra, the five major theories of the five great Dharma masters, well ahead of schedule.
 
-Since graduating from Qinghai Buddhist Academy and Ta'er Monastery Debating Academy with excellent grades, the master has been living at Qinghai Tuole Monastery, serving as the Vajra Guru and the abbot of the monastery. He teaches the monks of Tuole Monastery every day in groups: lectures on the five great treatises, San Shi Dao, and the four tantras, and has set up a new sutra debating school in the monastery.
+Since graduating from Qinghai Buddhist Academy and Ta'er Monastery Debating Academy with excellent grades, the master has been living at Qinghai Tuole Monastery, serving as the Vajra Guru and the abbot of the monastery. He teaches the monks of Tuole Monastery every day in groups: lectures on the five traditional monastic subjects, the "Three Principal Aspects of the Path", and the four classes of tantra, and has set up a new sutra debating school at the monastery.
 
 Master Ah Wang has now produced several batches of lamas with a Geshe degree (equivalent to a Ph.D. in Buddhism).
 
 The master also insists on going into retreat for two months every year.
 
-Lama Yongzeng once told Master Ah Wang: **"Your whole career in this life is to turn the wheel of Dharma widely and spread the Dharma for the benefit of all living beings."**
+Lama Yongzeng once told Master Ah Wang: "Your whole career in this life is to turn the wheel of Dharma widely and spread the Dharma for the benefit of all living beings."
 
-Master Ah Wang often gives sermons, teachings, lectures, and empowerment ceremonies in both Tibetan and Chinese areas, and often holds patriotic teachings, and patriotic activities in monasteries, making due contributions to the promotion of social harmony and stable development.
+Master Ah Wang often gives sermons, teachings, lectures, and holds empowerment ceremonies in both Tibetan and Chinese areas, and often holds patriotic teachings, and patriotic activities in monasteries, making due contributions to the promotion of social harmony and stable development.
 
 At the invitation of believers from other places, the master has travelled all over the world to teach the sutras and the Dharma to those who are destined to hear them.
 
-In 2009 and 2014, invited by the Buddhist community in Macau, the master, as representative of Tibetan Buddhist monks, presided over the Puja for the 10th and 15th anniversary of Macau's return to the motherland.
+In 2009 and 2014, invited by the Buddhist community in Macau, the master, as a representative of Tibetan Buddhist monks, presided over the Puja for the 10th and 15th anniversary of Macau's return to the mainland.
 
 In October 2015, the master was also invited to participate in the 2015 Chongsheng International Forum co-organized by the Yunnan Buddhist Association and the Dali Chongsheng Temple.
 
 Master Ngawang is not only perfect in his practice and perfect in his eloquence, but he is also the author of a rich collection of writings.
 
-The Master's writings include Commentary on Philosophy, Commentary on the Prajna Paramita Diamond Sutra, Dictation from the Three Masters of the Three Paths and Three Schools, Vajrasattva Ritual and Practice, and Dakini Buddha's Mother Ritual. Tracks and Practical Practices, Practice of Retreat, Simmering Sang Ritual, Biography of Vajra Guru Gazang Qusong, History of Tibetan Buddhism, Dabao Motto, Nectar Dharma Rain, Tantric Buddhism Feng Shui and the "Dharma Ocean Treasures" series, etc.
+The Master's writings include Commentary on Philosophy, Commentary on the Diamond Sutra, Dictation from the Three Masters of the Three Paths and Three Schools, Vajrasattva Ritual and Practice, and Dakini Mother of Buddha Ritual, Tracks and Practical Practices, Practice of Retreat, Simmering Sang Ritual, Biography of Vajra Guru Gazang Qusong, History of Tibetan Buddhism, Dabao Motto, Nectar Dharma Rain, Tantric Buddhism Feng Shui and the "Dharma Ocean Treasures" series (this is the third volume), etc.
 
 The master's writings are concise and comprehensive, and the analysis is profound and thorough, and has been praised and acclaimed by many great scholars in Buddhist circles at home and abroad.
 
-Master Ngawang once studied under the 10th Panchen Lama, who is deeply loved by the people. The Panchen Lama was called "a great patriot and an outstanding leader of Tibetan Buddhism" by the Central Committee of the Communist Party of China and made many important contributions to Buddhism in China.
+Master Ah Wang once studied under the 10th Panchen Lama, who is deeply loved by the people. The Panchen Lama was called "a great patriot and an outstanding leader of Tibetan Buddhism" by the Central Committee of the Communist Party of China and made many important contributions to Buddhism in China.
 
-Master Ngawang was deeply influenced by the Panchen Lama. In his religious thought, he advocated that Buddhist disciples should be concerned with the common people, cherish the "three great loves" and practice the "four practices" in order to achieve the harmony and perfection of the "five vows".
+Master Ah Wang was deeply influenced by the Panchen Lama. In his religious thought, he advocated that Buddhist disciples should be concerned with the common people, cherish the "Three Great Loves" and practice the "Four Practices" in order to achieve the harmony and perfection of the "Five Vows".
 
 "Three Loves": patriotism, love for the people, and love for education.
 
@@ -89,33 +89,32 @@ Master Ngawang was deeply influenced by the Panchen Lama. In his religious thoug
 
 "Five Wishes": Great social harmony, great national unity, great national prosperity, great world peace, great perfection in practice.
 
-Under the leadership of Master Ngawang, the Sangha of Tuola Monastery adheres to the rule of the Gelug School. The results are among the best. Master Ngawang said that no matter if we are talking about Southern Buddhism, Chinese Buddhism or Tibetan Buddhism, they are all Buddha's Dharma, and they are all very special.
+Under the leadership of Master Ah Wang, the Sangha of Tuole Monastery adheres to the rule of the Gelug School. The results are among the best. Master Ah Wang said that it does not matter if we are talking about Southern Buddhism, Chinese Buddhism or Tibetan Buddhism, they are all Buddha's Dharma, and they are all very special.
 
 Buddhists should go deeper into the scriptures, diligently study and think, and establish a right view. At the same time, it is necessary to develop Bodhicitta widely and truly think for the sake of all sentient beings, in order to achieve a perfect life for oneself and others.
 
-five traditional monastic subjects
 
-San Shi Dao
+San Shi Dao - Three Principal Aspects of the Path
 
 ![三士道](/images/sanshidaoshang.png)
 
 The third of the series "Treasures of the Dharma Ocean" from Tuole Monastery
 
-Sanshidao (Part 1 - Lower Scope)
+Three Principal Aspects of the Path (Part 1 - Lower Scope)
 
 Ngawang Gyatso Vajra Guru explained:
 
-I pay homage to the Great Master and the Buddhas and Bodhisattvas!
+I pay homage to the Great Masters and all the Buddhas and Bodhisattvas!
 
 Thank you Master! 
 
-He worked hard to explain the "San Shi Dao", and personally guided the proof-reading of the book, benefiting all sentient beings. Thanks to the teacher's instructions, I wrote this preface with sincerity and admiration.
+He worked hard to explain the "Three Principal Aspects of the Path", and personally guided the proof-reading of the book, benefiting all sentient beings. Thanks to the teacher's instructions, I wrote this preface with sincerity and admiration.
 
-I would like to share with fellow practitioners the experience of proof-reading and studying "San Shi Dao" over the past year. Please forgive me for any parts which may seem incomprehensible or difficult to understand.
+I would like to share with fellow practitioners the experience of proof-reading and studying "Three Principal Aspects of the Path" over the past year. Please forgive me for any parts which may seem incomprehensible or difficult to understand.
 
 In order to save all sentient beings, the Buddha preached 84,000 Dharma Doors, the core of which is the sequence of the Bodhi path. The order of the path is either manifest or hidden, and has always been hidden in the scriptures.
 
-The sequence of Stages of the Way preached by Buddha Shakyamuni is "The Great Prajna Sutra", and the sequence of Stages preached by Maitreya Bodhisattva is "The View on the Majesty of the Present". 
+The sequence of Stages of the Way preached by Buddha Shakyamuni is "The Prajna Paramita Sutra", and the sequence of Stages preached by Maitreya Bodhisattva is "Ornament for Clear Realization". 
 
 Great Bodhisattvas such as Nagarjuna and Asanga, as the lineage masters of the sequence of Stages, have all been followers of the sequence of Stages. 
 
@@ -123,33 +122,33 @@ The successive biography of books and essays.
 
 It was not until Venerable Atisha's "The Lamp for the Path to Enlightenment" that the order of the path of to enlightenment was clearly stated, and it was not until Master Tsongkhapa's "The Great Treatise on the Stages of the Path to Enlightenment" that the steps of the path were explained clearly.
 
-Countless practitioners have achieved success according to the stages of the path to enlightenment, and they have also become a part of learning according to the stages of the path. However, The Great Treatise on the Stages of the Path to Enlightenment is very terse and difficult to understand, especially for beginners.
+Countless practitioners have achieved success according to the stages of the path to enlightenment, and they have also become a part of learning according to the stages of the path. However, "The Great Treatise on the Stages of the Path to Enlightenment" is very terse and difficult to understand, especially for beginners.
 
 The study characteristics of Gelugpa.
 
 The compassionate master, taking into account the difficulties of all living beings in their studies, explained to us the essence of the path to enlightenment - "The Three Principal Aspects of the Path".
 
-The "The Three Principal Aspects of the Path" explained by the master focuses on the basics. In terms of content, it is mainly based on the teachings of the predecessors of the Gelug School and the sages of the Kadam School. The front and back sections of the whole book  explain and supplement each other.
+The "The Three Principal Aspects of the Path" explained by the master focuses on the basics. In terms of content, it is mainly founded on the teachings of the predecessors of the Gelug School and the sages of the Kadam School. The front and back sections of the whole book explain and supplement each other.
 
 In teaching the Dharma, the master cultivated profound and extensive knowledge, and adopted a comprehensive teaching method, including Yin and Ming, which was used when explaining the five traditional monastic subjects. The logic is rigorous and clear.
 
-On the whole, in "The Three Principal Aspects of the Path", the master uses vivid and concise language and interesting allusions to describe how an ordinary person must take a bright road from attaining perfection in the world to liberation and becoming a Buddha.
+On the whole, in "The Three Principal Aspects of the Path", the master uses vivid and concise language and interesting allusions to describe how an ordinary person must follow a clear path from attaining perfection in the world, to liberation and becoming a Buddha.
 
-The lower Path mainly talks about the impermanence of life, the suffering of the three evil realms, taking refuge, and knowing cause and effect. Liberation from the cycle of samsara; the middle Path talks about bodhicitta, the ten paramitas, and the four captures, with the goal of attaining Buddhahood.
+The Path of the Lower Scope mainly talks about the impermanence of life, the suffering of the three evil realms, taking refuge, knowing about cause and effect, and Liberation from the cycle of samsara. Path of the Middle Scope talks about bodhicitta, the ten perfections, and the four **captures**, with the goal of attaining Buddhahood.
 
-The cultivation of the three ways of lower, middle, and upper are the stages that every practitioner must go through. Buddhas and Bodhisattvas have come this way, and so have patriarchs and great virtuous masters.
+The cultivation of the three aspects of lower, middle, and upper scopes are the stages that every practitioner must go through. Buddhas and Bodhisattvas have come this way, and so have patriarchs and great virtuous masters.
 
-The master also said that the lower path is the foundation and the most difficult part to cultivate. After crossing the lower path and understanding the stages of the path to enlightenment, you will clearly know which stage you are at.
+The master also said that the lower path is the foundation and the most difficult part to practice. After crossing the lower path and understanding the stages of the path to enlightenment, you will clearly know which stage you are at.
 
 The direction will become clearer.
 
-Right now, we need to know what to cultivate, how to cultivate, to what extent, and how long it will take; what to cultivate in the next stage,
+Right now, we need to know what to practice, how to practice, to what extent, and how long it will take, along with what to practice in the next stage.
 
 What materials need to be prepared, etc., are all clearly explained.
 
-When reading other classics, it also has a strong guiding significance. It enables practitioners to determine which part of the Dharma a sutra belongs to, whether it is suitable for practice at the current stage, and so on. It is of great help to the study, and it has swept away the confusion in the mind of the student, and made his confidence in the Guru and the Three Jewels more firm.
+When reading other classics, it also has a strong guiding significance. It enables practitioners to determine which part of the Dharma a sutra belongs to, whether it is suitable for practice at the current stage, and so on. It is of great help to the study, and it has swept away the confusion in the mind of the student, and made their confidence in the Guru and the Three Jewels more firm.
 
-"The Three Principal Aspects of the Path" is not only a teaching of Buddhism, but also has a strong guiding significance for life in this world. The book tells us: To truly cherish oneself and life, is to cherish the human body and cultivate earnestly; if you want to be prosperous and healthy, you must not steal or kill, you must give more, release more living animals, and repent of karma; If you have prestige and good karma, you must not create bad karma and make all living beings happy.
+"The Three Principal Aspects of the Path" is not only a teaching of the Buddha, but also has a strong guiding significance for life in this world. The book tells us: To truly cherish oneself and life, is to cherish the human body and develop oneself earnestly; if you want to be prosperous and healthy, you must not steal or kill, you must give more, release more living animals, and repent of mistakes. If you have prestige and good fortune, you must not create bad karma and strive to make all living beings happy.
 
 In every respect, it varies.
 
@@ -159,11 +158,11 @@ The master understands the suffering of sentient beings too well, and his words 
 
 During the proof-reading period, I often remembered the master's explanation in the middle of the night, even in my dreams, and I couldn't calm down for a long time.
 
-The teacher's words are like a simple and powerful old hoe, and every sentence is hoeed on his heart that has been blinded by ignorance for a long time.
+The teacher's words are like a simple and powerful old hoe, and every sentence creates a furrow on one's heart that has been blinded by ignorance for a long time.
 
 Thinking about the first half of my life, I didn’t know how to distinguish between good and bad karma, I was dazed and didn’t know the direction, and I lived a life of confusion of right and wrong.
 
-Fortunately, it is worth meeting the teacher, and then you have to wake up.
+Fortunately, when you are lucky enough to meet the teacher, then you just have to wake up.
 
 From now on, just by listening to the teacher's words, being an honest person, steadfastly studying, and benefiting sentient beings, can the meaning of life continue to increase, and only then can one be worthy of the three jewels, of the teacher and one's own life.
 
@@ -173,23 +172,23 @@ In the process of sorting out the materials, the master also expanded a lot of c
 
 In particular, more detailed explanations and supplements have been made for the relatively brief parts in the "Great Treatise on the Stages of the Path of Enlightenment ".
 
-For example, the section on "Approaching the Good Men" in the "Great Treatise on the Stages of the Path of Enlightenment " has only 15 pages (Guanghua Temple edition of "The Path of Enlightenment"), and the text is difficult to understand. A Detailed explanation is given.
+For example, the section on **"Approaching the Good Men"** in the "Great Treatise on the Stages of the Path of Enlightenment " has only 15 pages (Guanghua Temple edition of "The Path to Enlightenment"), and the text is difficult to understand. A Detailed explanation is given.
 
 It can be said that this edition of "The Three Principal Aspects of the Path" is the most comprehensive, thorough and easy-to-understand book among the books that explain the correct sequence for teaching and learning the Dharma.
 
-The master has repeatedly emphasized that the sooner the "The Three Principal Aspects of the Path" is published, the sooner it will benefit all sentient beings!
+I repeatedly emphasized that the sooner the "The Three Principal Aspects of the Path" is published, the sooner it will benefit all sentient beings!
 
-Therefore, I often proof-read with my disciples until very late at night, and started proof-reading early the next day.
+Therefore, I often proof-read with my disciples until very late at night, and started proof-reading again early the next day.
 
-In June 2014, due to overwork, the master felt unwell. Afterwards, at the strong request of the Hong Kong disciples, he went to Hong Kong for a physical examination and adjusted his medication for half a year.
+In June 2014, due to overwork, I felt unwell. Afterwards, at the strong request of the Hong Kong disciples, I went to Hong Kong for a physical examination and adjusted my medication for half a year.
 
-The master hopes that the vast number of Buddhist students can correctly understand the essence of the Buddha's Dharma while they have a strong desire for the Buddha's holy teaching tools, get out of the misunderstanding of non-sequential and blind practice, and diligently study and reflect on the path to enlightenment, and practice diligently according to the three paths, in order to realize enlightenment as soon as possible!
+The master hopes that the vast number of Buddhist students can correctly understand the essence of the Buddha's Dharma and have a strong desire for the Buddha's holy teaching, get out of the misunderstanding of non-sequential and blind practice, and diligently study and reflect on the path to enlightenment, and practice diligently according to the three scopes, in order to realize enlightenment as soon as possible!
 
 Bow down, thank you, Master!
 
 Thanks to Nie Dolma and all the brothers who participated in the proof-reading!
 
-Inferior disciple Sanjay was established
+Disciple Sanjay was established
 
 August 8, 2015
 
@@ -229,11 +228,11 @@ Section Three - Other writings on the Path ………….. 24
 
 Part 2: How to Learn The Three Principal Aspects of the Path ……………… 29
 
-Chapter 1 The root of the Path is to be close to the guru………….. 31
+Chapter 1 The root of the Path is to be close to the guru ………….. 31
 
-Section 1 Requirements for a Guru... 34
+Section 1 Requirements of a Guru... 34
 
-1. Basic requirements for a guru... 34
+1. Basic requirements of a guru... 34
 
 (1) Pure Morality ... 34
 
@@ -309,9 +308,9 @@ Section 1 Requirements for a Guru... 34
 
 Session 2 - Getting Closer to the Guru……………… 58
 
-1. How to get close to the guru…………. 59
+1. How to get close to the guru …………. 59
 
-(1) Making offerings to the guru…………. 60
+(1) Making offerings to the guru …………. 60
 
 (2) Serving the Guru …………. 61
 
@@ -323,7 +322,7 @@ Session 2 - Getting Closer to the Guru……………… 58
 
 (2) The merits of serving the guru. . . . 63
 
-(3) With what kind of heart do you serve the guru.... 66
+(3) With what kind of attitude do you serve the guru? .... 66
 
 3. The merits of piety and sincerity ................................ 74
 
@@ -353,19 +352,19 @@ Section 3 The sin of disrespecting the guru ………………. 93
 
 1. The sinful karma of the body ................................................ 93
 
-2. The karma of language……………….. 94
+2. The karma of language ……………….. 94
 
 (1) The sin of slandering the guru... 95
 
-(2) The karma of violating the teacher's words ... 99
+(2) The karma of not following the teacher's words ... 99
 
-3. The sinful karma of the mind………………. 100
+3. The sinful karma of the mind ………………. 100
 
 (1) Sinful karma of being angry with the guru... 101
 
-(2) Paying attention to the sinful karma of finding the guru's flaws... 102
+(2) Paying attention to the sinful karma of finding the guru's flaws ... 102
 
-(3) Sin of Seeing the guru as an ordinary person.. 109
+(3) Sin of Seeing the guru as an ordinary person .. 109
 
 (4) The sin of despising the guru... 110
 
@@ -391,7 +390,7 @@ Section 3 The sin of disrespecting the guru ………………. 93
 
 (2) The grace of speaking … 131
 
-(3) Continuing the grace of blessings….. 132
+(3) Continuing the grace of blessings ….. 132
 
 (4) The kindness of reciting teachers inspires respect... 132
 
@@ -399,13 +398,13 @@ Section 5 - How to Learn to Draw Close to the Guru 135
 
 1. How to practice during regular practice ………… 135
 
-(1) Moving forward………………. 135
+(1) Moving forward ………………. 135
 
 (2) Righteousness………………. 161
 
 (3) Dedication ………………. 162
 
-2. How to meditate in daily life………….. 162
+2. How to meditate in daily life ………….. 162
 
 Section 6 - Disciples' Virtues and Requirements... 163
 
@@ -421,13 +420,13 @@ Section 6 - Disciples' Virtues and Requirements... 163
 
 (1) Disciples who hear the Dharma should always seek the Dharma… 165
 
-(2) Disciples who hear the Dharma must eradicate the faults of the three kinds of devices... 166
+(2) Disciples who hear the Dharma must eradicate the faults of the **three kinds of devices**... 166
 
 3. There are six kinds of thoughts that disciples who hear the Dharma should have... 168
 
 (1) Think of yourself as a patient... 168
 
-(2) Think of the Master as a doctor... 168
+(2) Think of the Guru as a doctor... 168
 
 (3) Think of the Dharma as medicine …….. 168
 
@@ -581,7 +580,7 @@ Section 5: The Eight Blessed Personal Attributes ………………. 345
 
 7. A Precious Human Life ... 347
 
-8. Possessing power………………. 347
+8. Possessing power ………………. 347
 
 Section 6 - Summary of the Lower Path ………………. 349
 
@@ -681,25 +680,25 @@ by Je Tsongkhapa
 
 Chapter 1 - Lineage of the Paths
 
- This time I will tell you about the Three Paths and the stages of the Path to Enlightenment.
+Now I will tell you about the Three Paths and the stages of the Path to Enlightenment.
 
 First of all, we must understand the meaning of "Stages of the Path to Enlightenment".
 
-Bodhi means enlightenment, cut off refers to the removal of afflictions and obstacles to knowledge; Enlightenment means the realization of emptiness, and also has the meaning of awareness; The Way refers to the Three Paths, which are the Lower, Middle, and Upper Paths; the order is the sequence, the procedure.
+Bodhi means enlightenment, cutting off refers to the removal of afflictions and obstacles to knowledge; Enlightenment means the realization of emptiness, and also has the meaning of awareness; The Way refers to the Three Aspects, which are the Lower, Middle, and Upper Scopes. The order is the sequence, the procedure.
 
-The Buddha Dharma sequence contains 84,000 Dharma gates, and what the Three Paths teach is the correct sequence of the "Stages of the Path of Enlightenment".
+The Buddha's teachings are comprised 84,000 Dharma gates, and what the Three Aspects teach is the correct sequence of the "Stages of the Path of Enlightenment".
 
-To talk about the "Stages of the Path of Enlightenment", we must talk about the "Extensive Treatise on the Stages of the Path of Enlightenment".
+To talk about the "Stages of the Path of Enlightenment", we must talk about the "Great Treatise on the Stages of the Path of Enlightenment" by Je Tsongkhapa.
 
-The Dharma of Buddhism is inherited from the pure and perfect Buddha, and the sequence of the paths is also passed down by Shakyamuni Buddha himself.
+The Dharma of Buddhism is inherited from the pure and perfect Buddha, and the sequence of the paths was also passed down by Shakyamuni Buddha himself.
 
 Once you understand the teaching of the order of the Path, when you study the sutras in the future, you will realize that: all Buddhist scriptures teach the order of the Path.
 
 Buddha Shakyamuni preached the "Prajna Paramita Sutra" at Vulture Peak. After the Chinese translation of the "Prajna Paramita Sutra", there are 600 volumes, including the entire content of 84,000 dharmas, and it is the most important Buddhist scripture.
 
-The "Prajna Paramita Sutra" explicitly preaches the profound order of the Path, while the hidden meaning preaches the vast order of the Path.
+The "Prajna Paramita Sutra" explicitly teaches the profound order of the Path, while the hidden meaning teaches the vast order of the Path.
 
-The very deep Path sequence was passed on to Manjushri by the Buddha, and Manjushri passed it on to Nagarjuna, and later formed the deep insight sect Dao sequence; the vast Dao sequence was passed on by the Buddha to Maitreya Bodhisattva. He created Maitreya's Five Sutras, such as the "Abhisamaya-alaṅkāra sutra", also known as the Five Treatises of Maitreya, as a teaching of the path to enlightenment, and passed it on to Asanga Bodhisattva. Later, the Guangxing School path was formed.
+The very deep Path sequence was passed on to Manjushri by the Buddha, and Manjushri passed it on to Nagarjuna, and later formed the deep insight sect Dao sequence; the vast Dao sequence was passed on by the Buddha to Maitreya Bodhisattva. He created Maitreya's Five Sutras, such as the "Abhisamaya-alaṅkāra sutra", also known as the Five Dharmas of Maitreya, as a teaching of the path to enlightenment, and passed it on to Asanga Bodhisattva. Later, the path of the Guangxing School was formed.
 
 In this way, in ancient India, two different lineages, deep insight and broad practice, were formed.
 
@@ -709,23 +708,23 @@ Only by learning and cultivating the two methods of wisdom, right view and skilf
 
 Before Venerable Atisha, the deep and broad paths were inherited separately.
 
-The lineage of the Profound View School passes from Manjushri to Nagarjuna, Nagarjuna to Candrakirti, Candrakirti Bodhisattva to Dazhengli Rhododendron, and Dazhengli Rhododendron to Xiaozhengli Rhododendron.
+The lineage of the Profound View School passes from Manjushri to Nagarjuna, Nagarjuna to Candrakirti, Candrakirti Bodhisattva to **Dazhengli Rhododendron, and Dazhengli Rhododendron to Xiaozhengli Rhododendron.**
 
-The Guangxing School was passed on from Maitreya Bodhisattva to Asanga Bodhisattva. At first, Asanga Bodhisattva retreated for 12 years. After 12 years, he met Maitreya Bodhisattva. Maitreya Bodhisattva brought Asanga Bodhisattva to Tusita Heaven and passed on the Five Sutras of Maitreya.
+The Guangxing School view was passed on from Maitreya Bodhisattva to Asanga Bodhisattva. At first, Asanga Bodhisattva went into retreat for 12 years. After 12 years, he met Maitreya Bodhisattva. Maitreya Bodhisattva brought Asanga Bodhisattva to Tusita Heaven and passed on the Five Dharmas of Maitreya.
 
 6
 
 Asanga Bodhisattva passed on the lineage of the Guangxing School to Vasubandhu Bodhisattva, who was Asanga Bodhisattva's half-brother.
 
-Vasubandhu Bodhisattva passed it on to the Vimuktisena, and gradually spread to the great and small Gusa Li and Master Dharmakirti.
+Vasubandhu Bodhisattva passed it on to the Vimuktisena, and gradually spread to the **great and small Gusa Li** and Master Dharmakirti.
 
-Venerable Atisha got the lineage of Profound View from Xiaozhengli Dujuan and the lineage of Guangxing School from Master Dharmakirti.
+Venerable Atisha got the lineage of Profound View from **Xiaozhengli Dujuan** and the lineage of the Guangxing School from Master Dharmakirti.
 
-Venerable Atisha also received the lineage of the Dorje Chang / Vajradhara of the Practice Blessing School. Shakyamuni Buddha incarnated as Vajradhara and passed it on to Tilopa, Tilopa passed it on to Naropa, Naropa passed it on to Zhububa, Jububa then passed it on to Venerable Atisha.
+Venerable Atisha also received the lineage of the Dorje Chang / Vajradhara of the Practice Blessing School. Shakyamuni Buddha incarnated as Vajradhara and passed it on to Tilopa, Tilopa passed it on to Naropa, Naropa passed it on to **Zhububa, Jububa** then passed it on to Venerable Atisha.
 
-At the same time, Venerable Atisha also received the lineage of Shantideva Bodhisattva's "Entering Bodhisattva Actions" by Manjushri.
+At the same time, Venerable Atisha also received the transmission of the lineage of Shantideva Bodhisattva's "A Guide to the Bodhisattva's Way of Life" by Manjushri.
 
-In this way, the Venerable received the complete transmission and teaching of the sutra and tantra, and gained access to all the Dharma.
+In this way, the Venerable Atisha received the complete transmission and teaching of the sutra and tantra, and gained access to all the Dharma.
 
 On this basis, Venerable Atisha wrote the famous "Lamp for the Path to Enlightenment", which captures all the essentials of the Dharma, and the phrase "Stages of the Path" has been around since then.
 
@@ -735,15 +734,15 @@ Later, other sects in the Tibetan area also formed their own sects based on the 
 
 7
 
-Venerable Atisha passed the "Lamp for the Path to Enlightenment" to Master Dromtönpa. At that time, the venerable passed it to him in secret, and Dromtönpa asked inexplicably, "Why did the venerable teach the secrets to others? The mantra, and teach me the order of the path?" The Venerable replied, "Besides you, I have not found anyone to whom can entrust this Dharma!" This shows the importance and splendor of the "Lamp for the Path to Enlightenment", and it also indicates that it is the origin that Master Dromtönpa will spread the Dharma and benefit life in the future.
+Venerable Atisha passed the "Lamp for the Path to Enlightenment" to Master Dromtönpa. At that time, the venerable passed it to him in secret, and Dromtönpa asked inexplicably, **"Why did the venerable teach the secrets to others? The mantra, and teach me the order of the path?"** The Venerable replied, "Besides you, I have not found anyone to whom can entrust this Dharma!" This shows the importance and splendor of the "Lamp for the Path to Enlightenment", and it also indicates that it is the origin of the saying that Master Dromtönpa will spread the Dharma and benefit life in the future.
 
 Later, Master Dromtönpa founded Radreng / Reting Monastery, established a Kadam School, spread the Dharma, and guided the practice according to the teachings of "Lamp for the Path to Enlightenment". Many people have achieved this.
 
-After the establishment of the Kadam School, Master Dromtönpa passed the "Lamp for the Path to Enlightenment" to Gonpawa, and Gonpawa passed it on to Yeshiba, and Yeshiba passed on Tamaba and Jechenpo, forming the Kadam Road. Sequential faction.
+After the establishment of the Kadam School, Master Dromtönpa passed the "Lamp for the Path to Enlightenment" to Gonpawa, and Gonpawa passed it on to Yeshiba, and Yeshiba passed on Tamaba and Jechenpo, forming the Kadam School.
 
-Dromtönpa also passed on the order of the path to Shi Owa, who passed on to Chayuwa, and later formed the Taoist order of the Kadam Professor School.
+Dromtönpa also passed on the order of the path to Shi Owa, who passed on to Chayuwa, and later formed the order of the path of the **Kadam Professor School.**
 
-Master Tsongkhapa received the lineages of these two schools from the great siddhi of Lodha, Namkha Gyaltsen. Master Namkha Gyaltsen was very accomplished and had received the deep teachings of Vajra Hand Bodhisattva himself.
+Master Tsongkhapa received the lineages of these two schools from the great siddhi of Lodha, Namkha Gyaltsen. Master Namkha Gyaltsen was very accomplished and had received these deep teachings from Vajra Hand Bodhisattva himself.
 
 In addition, Master Tsongkhapa also obtained the lineage of the Kadampa school from the Dharma Khenpo Dharma Protector of Tsaku Monastery, which was passed on by Dromtönpa to Potoba, and from Potoba to Sharaba.
 
@@ -751,57 +750,65 @@ In addition, Master Tsongkhapa also obtained the lineage of the Kadampa school f
 
 The three schools were gradually developed and formed according to the broad strategy of study and the ability of later disciples.
 
-To put it simply, the Kadam scriptures are based on the practices of various great scriptures and explain the order of the path, similar to the combination of the five great treatises and the steps of the path now, and the highest requirements for the wisdom and diligence of the disciples; The sect is to explain the order of the path in accordance with the "Stages of the Holy Dharma" by Master Zhuolongpa, which is slightly simpler than the previous sect, similar to the current study in accordance with the broad and abbreviated theory of the path to enlightenment, and the requirements for the disciples are slightly lower; The master explained the order of the path, pointed out the main points, and at the same time cooperated with various brief guiding principles to guide the disciples to study and practice, and the requirements for the disciples were the lowest.
+To put it simply, the Kadam scriptures are based on the practices of various great scriptures and explain the order of the path, similar to the combination of the five great treatises and the steps of the path now, and the highest requirements for the wisdom and diligence of the disciples; 
 
-In this way, Master Tsongkhapa obtained all the lineage of the broad, medium and brief stages of the Bodhi path, and the master created the "The Great Treatise on the Stages of the Path to Enlightenment" based on "Lamp for the Path to Enlightenment".
+The sect explains the order of the path in accordance with the "Stages of the Holy Dharma" by Master Zhuolongpa, which is slightly simpler than the previous sect, similar to the current study in accordance with the broad and abbreviated theory of the path to enlightenment, and the requirements for the disciples are slightly lower; The Kadampa masters explain the order of the path, highlight the main points, and at the same time employ various brief guiding principles to guide the disciples to study and practice, and the requirements for the disciples were the lowest.
 
-"Lamp for the Path to Enlightenment" provides a high-level summary of the teachings and demonstrations of Buddhism. It is very concise and only covers a few pages.
+In this way, Master Tsongkhapa obtained all the lineage of the lower, middle and upper stages of the Bodhi path, and wrote the "The Great Treatise on the Stages of the Path to Enlightenment" based on "Lamp for the Path to Enlightenment".
 
-The Great Treatise on the Stages of the Path of Enlightenment explains the Theory of the Lamp for the Path to Enlightenment in a deeper and broader way, which is broad, profound and easy to understand. For those who find the Lamp for the Path to Enlightenment difficult to understand, the Great Treatise on the Stages of the Path of Enlightenment explains it very clearly .
+"A Lamp for the Path to Enlightenment" provides a high-level summary of the teachings and demonstrations of Buddhism. It is very concise and only contains a few pages.
 
-In Tibetan areas, the Tibetan version of "Great Treatise on the Stages of the Path of Enlightenment " can be understood a lot by an ordinary person, such as a sheep herder; an arhat with high wisdom will also find it profound, subtle and inconceivable when he sees it. Great Treatise on the Stages of the Path of Enlightenment  is very, very special.
+"The Great Treatise on the Stages of the Path of Enlightenment" explains the theory of the "Lamp for the Path to Enlightenment" in a deeper and broader way, which is wide, profound and easy to understand. For those who find the "Lamp for the Path to Enlightenment" difficult to understand, the "Great Treatise on the Stages of the Path of Enlightenment" explains it very clearly .
 
-9
+In Tibetan areas, the Tibetan version of "Great Treatise on the Stages of the Path of Enlightenment " can be understood a lot by an ordinary person, such as a nomadic shepherds; an arhat with high wisdom will also find it profound, subtle and inconceivable when he sees it. "The Great Treatise on the Stages of the Path of Enlightenment"  is very, very special.
 
-10
+#### Chapter 2 
 
-Chapter 2 - the peculiarity of the order of the path, mentions the three ways, the order of the path of enlightenment, and the "Great Treatise on the Stages of the Path of Enlightenment", so it is inevitable to mention Master Tsongkhapa. So, what kind of person is Master Tsongkhapa?
+- the peculiarity of the order of the path, mentions the three aspects, the order of the path of enlightenment, and the "Great Treatise on the Stages of the Path of Enlightenment", so it is inevitable to mention Master Tsongkhapa. 
+
+So, what kind of person is Master Tsongkhapa?
 
 Section 1 - Master Tsongkhapa was born on the twenty-fifth day of the tenth year of the Tibetan calendar in 1357 in Huangzhong County, Qinghai Province. Because the place of birth is called "Tsongkha" in Tibetan, he is honored as Tsongkhapa, which means born in Tsongkha.
 
-Master Tsongkhapa is the founder of the Gelug School of Tibetan Buddhism and the wisdom reincarnation of Manjushri. Maitreya Bodhisattva once said: "The incarnation of Manjushri, like the eyes and heart of all Buddhas and Bodhisattvas, will appear in the world."
+Master Tsongkhapa is the founder of the Gelug School of Tibetan Buddhism and the wisdom reincarnation of Manjushri. 
+
+Maitreya Bodhisattva once said: "The incarnation of Manjushri, like the eyes and heart of all Buddhas and Bodhisattvas, will appear in the world."
 
 11
 
-Master Tsongkhapa's father often recited "Manjushri's True Name Sutra". Before the birth of the master, he dreamed of a great virtue, saying that he came from Wutai Mountain in the Han Dynasty and stayed with him, and then various auspicious signs appeared one after another.
+Master Tsongkhapa's father often recited "Manjushri's True Name Sutra". Before the birth of the master, he dreamt of a great virtue, saying that he came from Wutai Mountain in the Han Dynasty and stayed with him, and then various auspicious signs appeared one after another.
 
 All this shows that Master Tsongkhapa is the true reincarnation of Manjushri.
 
-The master was given the five precepts at the age of three. At the age of seven, he was sent to the Xia Qiong Monastery of the Kadam School by his family. He took the secret name of Lobsang Drakpa, and later received the novice precepts. In 1409, the master established Ganden Monastery, and on the foundation of the Kadam School, the Gelug School was established.
+The master was given the five novice precepts at the age of three. At the age of seven, he was sent to the Xia Qiong Monastery of the Kadam School by his family. He took the secret name of Lobsang Drakpa, and later took the novice vows. In 1409, the master established Ganden Monastery, and on the foundation of the Kadam School, the Gelug School was established.
 
 The master studied with many teachers in his life, and these masters belonged to different sects. The master gathered the heads of various schools, and after assiduous study, he gradually revealed many unparalleled talents.
 
-In a dharma conference, Master Shuofuwuhan explained 15 treatises at the same time, for three consecutive months without interruption; two books were finished early, and the other two were added immediately. A total of 17 treatises were lectured before and after the dharma conference. . At another Dharma conference, he explained twenty-one great treatises on the same day.
+In a dharma conference, Master **Shuofuwuhan** explained 15 treatises at the same time, for three consecutive months without interruption; two books were finished early, and another two were added immediately. A total of 17 treatises were lectured on during the dharma conference. At another Dharma conference, he lectured on twenty-one great treatises on the same day.
 
-There was even a marvelous event in which twenty-nine great treatises were simultaneously lectured at the Dharma conference, which was admirable. These wonderful lectures have never happened before in India or Tibet.
+There was even a marvelous event in which twenty-nine great treatises were simultaneously lectured at the Dharma conference, which was admirable. These wonderful lectures had never taken place before in India or Tibet.
 
-There are more than 600 volumes of the Prajna Paramita Sutra, which Buddha Shakyamuni could finish in one day, and many listeners could fully understand its profound meaning. It is only by virtue of language that such a wonderful speech can be performed.
+There are more than 600 volumes of the Prajna Paramita Sutra, which Buddha Shakyamuni could finish in one day, and many listeners could fully understand its profound meaning. It is only by virtue of language that such a wonderful feat can be performed.
 
 12
 
-In the period after the completion of his studies, the master of eloquence without hindrance, according to the scriptures and sects, no one can match;
+In the period after the completion of his studies, no one could match the master of eloquence without hindrance, according to the scriptures and sects.
 
 The master of learning without hindrance is able to understand all the Buddhadharma, and can realize all the holy words of the Buddha as practical teachings.
 
 Master Khedrubje Gelek Pelzang praised: 
 
-The Bodhisattvas in India and the Master Buston in Tibet, although they have learned widely, are not as well-versed as Master Tsongkhapa.
+The Bodhisattvas in India and the Master Buston in Tibet, 
 
-The Kagyu sect has a teaching of Mahamudra, the Nyingma sect has a teaching of Dzogchen, the Sakya sect has a teaching of Dao and Fruit, and the Kadam sect has a teaching of impermanence and bodhicitta.
+although they have learned widely, 
+
+are not as well-versed as Master Tsongkhapa.
+
+The Kagyu sect has a teaching of Mahamudra, the Nyingma sect has a teaching of Dzogchen, the Sakya sect has a teaching of Path and Fruit, and the Kadam sect has a teaching of impermanence and bodhicitta.
 
 However, the only one who can teach all the sutras spoken by the Buddha is the teaching of Tsongkhapa. For this reason, the scriptures created by the masters also have the following characteristics:
 
-Able to declare the complete path sequence for the upper, middle and lower foundations.
+Able to declare the complete path sequence for the upper, middle and lower aspects.
 
 They are all written by the masters themselves.
 
@@ -813,37 +820,36 @@ All the wise men rejoice and believe.
 
 In the early days of the precept-keeping master, the tenets of Tibetan Buddhism were relaxed, and Khedrubje Gelek Pelzang said in the biography of Master Tsongkhapa: 
 
-"At the time when Buddhism in the snowy land was about to be destroyed and existed in name only, some monks even took the name of the mantle and bowl they used to become monks. Never heard of it."
+**"At the time when Buddhism in the snowy land was about to be destroyed and existed in name only, some monks even took the name of the mantle and bowl they used to become monks. Never heard of it."**
 
-This shows how desolate Tibetan Buddhism was at that time, and the master was very distressed about it, so he strongly advocated the rectification of the precepts.
+This shows how desolate Tibetan Buddhism was at that time, and the master was very distressed about it, so he strongly advocated the reformation of the precepts.
 
-The master's own body, speech, and mind rested in a pure and solemn state. Inspired by the master, monks in large and small monasteries in Tibetan areas gradually became pure and virtuous.
+The master's own body, speech, and mind rested in a pure and solemn state. Inspired by the master, monks in large and small monasteries in Tibetan areas gradually became pure and more virtuous.
 
 Even if I accidentally violated it occasionally, I would feel ashamed and immediately repent according to the ritual.
 
 Many saints have been prophesied by the master Shakyamuni Buddha, Maitreya Bodhisattva, Manjushri Bodhisattva, Machig Labdrön, Yuecheng Bodhisattva, Guru Rinpoche, etc., all of whom have prophesied Master Tsongkhapa.
 
-Padmasambhava's "W"ords of Encouragement" says:
+Padmasambhava's "Words of Encouragement" says:
 
 Padmasambhava foretold that a fully ordained Buddhist monk named Lobsang Drakpa would appear in the east, near the land of China who would be regarded as an emanation of a Bodhisattva of the greatest renown and would attain the Complete Enjoyment Body of Buddha – Enlightenment.
 
 "In the East, near the Han land, there will be a Buddha named Lobsang Drakpa."
 
-In addition, in many sutras and treatises of great siddhas, there are prophecies of Master Tsongkhapa, who call him the second Buddha.
+In addition, in many sutras and treatises of great siddhas, there are prophecies regarding Master Tsongkhapa, where he is called the second Buddha.
 
 For example, Buddha Shakyamuni once foretold:
-
-"In the snowy regions of Tibet, there will be a person named Lobsang Drakpa who will solemnize my incarnation Buddha image as the image of Sambhogakaya."
+**"In the snowy regions of Tibet, there will be a person named Lobsang Drakpa who will solemnize my incarnation Buddha image as the image of Sambhogakaya."**
 
 Later, as predicted by the Buddha, on the first day of the first lunar month in 1409, Lama Tsongkhapa personally presented a five-buddha crown made of pure gold to the Sakyamuni Buddha statue in the Jokhang Temple in Lhasa at the prayer meeting. There are many precious pearl gemstones on it, and the craftsmanship is exquisite and very strict.
 
 14
 
-Master Wisdom Unhindered has been diligent in studying, thinking, cultivating, lecturing, and writing throughout his life, and has written nineteen books, each of which is the master's mastery.
+Master Wisdom Unhindered has been diligent in studying, thinking, cultivating, lecturing, and writing throughout his life, and has written nineteen books, each of which is a masterpiece.
 
 It can be said that every word is as precious as gold.
 
-In particular, The Great Treatise on the Stages of the Path of Enlightenment and The  Great Exposition of Tantra pointed out many subtle mistakes in practice, which are even more precious to later generations of disciples. The master also cultivated many eminent monks and great virtues, saved countless sentient beings, and reinvigorated Tibetan Buddhism, just like the reappearance of the Buddha.
+In particular, "The Great Treatise on the Stages of the Path of Enlightenment" and "The Great Treatise on the Tantric Stages of the Path to Enlightenment" pointed out many subtle mistakes in practice, which are even more precious to later generations of disciples. The master also trained many eminent monks and great virtues, saved countless sentient beings, and reinvigorated Tibetan Buddhism, just like the reappearance of the Buddha.
 
 Master Tsongkhapa's special qualities and merits are innumerable and inconceivable. For example, the master foresaw that sentient beings in the turbid world would be troubled and have difficulty in practicing diligently.
 
@@ -851,25 +857,27 @@ For the sake of all beings in the last days to be able to study, and for the Gel
 
 Therefore, disciples of later generations who study the Gelug school are generally wealthier and live longer.
 
-We are fortunate enough to meet the teachings of Master Tsongkhapa, we should cherish and be grateful. There are dozens of biographies of Master Tsongkhapa, many of which are written by later eminent monks, great virtues, and great achievers. We have time to read more, so that we can strengthen our confidence in the Dharma and in our study.
+We are very fortunate to have come across the teachings of Master Tsongkhapa, and we should cherish this fact and be grateful. There are dozens of biographies of Master Tsongkhapa, many of which are written by later eminent monks, great virtues, and great achievers. We have time to read more, so that we can strengthen our confidence in the Dharma and in our study.
 
 16
 
-Section 2 - "The Graded Stages of the Path to Enlightenment" talks about the order of the Path, which is the content of the "The Graded Stages of the Path to Enlightenment". Therefore, the excellence of the "The Graded Stages of the Path to Enlightenment" is the speciality of the Three Paths. Victory is also the ultimate victory of the path.
+Section 2 - "The Great Treatise on the Stages of the Path to Enlightenment" talks about the order of the Path. Therefore, the excellence of the "The Great Treatise on the Stages of the Path to Enlightenment" is the speciality of the Three Aspects.
 
-"The Graded Stages of the Path to Enlightenment" has five qualities: the creator, the teaching, the location, the persuasion, and the family.
+Enlightenment is also the ultimate victory of the path.
 
-1. Venerable Atisha, the creator of the San Shi Dao, is the incarnation of Amitabha. There were countless disciples in India at that time, and many of them achieved high achievements.
+"TThe Great Treatise on the Stages of the Path to Enlightenment" has five outstanding qualities: the creator, the teaching, the location, the persuasion, and the family.
 
-When His Holiness Venerable Atisha went to Tibet to teach the Dharma, he mainly taught the Three Ways, which enabled countless practitioners in Tibet to be liberated by studying the Three Ways.
+1. Venerable Atisha, the creator of the Three Principal Aspects, is the incarnation of Amitabha. There were countless disciples in India at that time, and many of them obtained high achievements.
 
-The teachings of His Holiness also influenced the major sects in Tibetan areas, especially the Gelug sect, which was formerly known as the New Kadampa.
+When His Holiness Venerable Atisha went to Tibet to teach the Dharma, he mainly taught the Three Aspects, which enabled countless practitioners in Tibet to be liberated by studying according to these Three Scopes.
 
-Master Tsongkhapa, the creator of the broad and brief discussion of the Bodhi path, is the reincarnation of Manjushri. The master explained in detail the three ways of Venerable Atisha, and created a complete Buddhist practice in Tibetan areas. Never before.
+The teachings of His Holiness also influenced the major schools in Tibet, especially the Gelug sect, which was formerly known as the New Kadampa.
+
+Master Tsongkhapa, the creator of the broad and brief discussion of the path to enlightenment, is the reincarnation of Manjushri. The master explained in detail the three aspects of the path of Venerable Atisha, and created a complete Buddhist practice in Tibetan areas. It had never been done before.
 
 17
 
-Before Master Tsongkhapa, most monks in Tibetan areas had abolished the precepts; in practice, those who practice meditation cannot distinguish between gross and subtle drowsiness, those who practice emptiness do not understand the deep insight of the Middle Way, and those who practice tantric methods do not Understand phantom body and double body movement.
+Before Master Tsongkhapa, most monks in Tibet had abolished the precepts. In practice, those who meditate cannot distinguish between gross and subtle drowsiness, those who practice emptiness do not understand the deep insight of the Middle Way, and those who practice tantric methods do not understand **phantom body and double body movement**.
 
 The emergence of the master has corrected these phenomena one by one. 
 
@@ -877,27 +885,27 @@ It can be said that Master Tsongkhapa saved Tibetan Buddhism.
 
 2. The Exceptional Teachings:
 
- The special teachings include: the quality is correct; the quantity is perfect; the order is accurate.
+The special teachings include: the quality is correct; the quantity is perfect; the order is accurate.
 
 (1) The nature is correct
 
-The content of The Graded Stages of the Path to Enlightenment is completely correct in nature, without the slightest error.
+The content of "The Great Treatise on the Stages of the Path to Enlightenment" is completely correct in nature, without the slightest error.
 
 In the past, the writings of many great siddhas in Tibet contained many errors in their insight.
 
 Tsongkhapa's eldest disciple, Gyaltsab Je, said that before he met the master, his understanding of emptiness based on the writings of previous scholars was wrong.
 
-Most of the previous commentators achieved success in the convenient method, such as renunciation and bodhicitta. Even if they achieved success, they did not necessarily realize emptiness.
+Most of the previous commentators achieved success in the lower aspects, such as renunciation and bodhicitta. Even if they achieved success, they did not necessarily realize emptiness.
 
 18
 
-Therefore, in terms of the nature of the Dharma taught by the previous generations, there was a little error.
+Therefore, in terms of the nature of the Dharma taught by the previous generations, there were a few errors.
 
 What Tsongkhapa said is not at all wrong in nature, it is very accurate and complete.
 
 (2) The quantity is complete
 
-The entire contents of The Graded Stages of the Path to Enlightenment are extraordinary.
+The entire contents of "The Great Treatise on the Stages" of the Path to Enlightenment are extraordinary.
 
 why? Because it is widely discussed that the lineage of Nagarjuna and Asanga is the two major vehicles.
 
@@ -909,88 +917,88 @@ Therefore, Shakyamuni Buddha said:
 
 "In common practice, everyone must follow Nagarjuna and Asanga Bodhisattva."
 
-The essentials of the Three Treasures taught by Buddha Shakyamuni are all condensed in the "The Graded Stages of the Path to Enlightenment", and the outline of the extensive treatise is the San Shi Dao.
+The essentials of "the "The Noble Sūtra of Recalling the Three Jewels" taught by Buddha Shakyamuni are all condensed in the "The Graded Stages of the Path to Enlightenment", and the outline of the extensive treatise is the The Three Principal Aspects of the Path.
 
 Dharma should be learned through listening, thinking, and practicing.
 
 But if there are too many dharma books to study, or if you don’t have the concept of order in your mind, you won’t be able to read it, because 84,000 dharmas can’t be read or learned completely.
 
-Master Tsongkhapa condensed the essence of the 84,000 Dharma doors in a book "The Graded Stages of the Path to Enlightenment", and explained the stages of Buddhist practice completely and clearly, so it can be called a perfect number.
+Master Tsongkhapa condensed the essence of the 84,000 Dharma doors in a book "The Great Treatise on the Stages of the Path to Enlightenment", and explained the stages of Buddhist practice completely and clearly, so it can be called a perfect number.
 
 19
 
 (3) The order is accurate
 
-In The Graded Stages of the Path to Enlightenment, the stages of practice are explained very clearly.
+In "The Great Treatise on the Stages of the Path to Enlightenment", the stages of practice are explained very clearly.
 
-It is very clear where to start training when you are just getting started, and how to practice after a while;
+It is very clear where to start training when you are just getting started, and how to continue practicing over time.
 
 If the order is not clear, it will be confusing and lead to blind and disorderly learning.
 
-Only the Bodhisattvas of the Eighth Stage can cultivate the Dharma door, and ordinary people will not be able to achieve it.
+Only the Bodhisattvas of the Eighth Stage (bhumi) can cultivate the Dharma door, and ordinary people will not be able to achieve it.
 
 It is very, very important to study in order! Whether it is lecturing the scriptures or practicing, if the order is not correct, there will be no achievement.
 
 This is different from reading a book. When reading a book, you need to read more about the news, and you can read any book.
 
-When you really want to cultivate, you have to do it in sequence, so that you won't make mistakes and you will be successful.
+When you really want to make progress in your practice, you have to do it in sequence, so that you won't make mistakes and you will be successful.
 
-If there is no order, there will be no achievement, just as wandering will not help you reach your destination.
+If there is no order, there will be no achievement, just as wandering around will not help you reach your destination.
 
 3. The place where you live is the place where you live.
 
 20
 
-Master Tsongkhapa was in Radreng Monastery when he wrote "Great Treatise on the Stages of the Path of Enlightenment ".
+Master Tsongkhapa was in Radreng Monastery when he wrote "The Great Treatise on the Stages of the Path of Enlightenment".
 
-Radreng Monastery was founded in 1057 by the founder of Kadampa, Dromtonpa, and has a history of more than 900 years. It is the first monastery of the Kadampa.
+Radreng Monastery was founded in 1057 by the founder of the Kadampa, Dromtonpa, and has a history of more than 900 years. It is the first monastery of the Kadampa.
 
-"Radreng" means "to eradicate all afflictions until it is free from the reincarnation of the three realms". Buddha Sakyamuni had a prophecy about the Radreng Monastery in the Buddhist scriptures.
+"Radreng" means "to eradicate all afflictions until free from rebirth of the three evil realms". Buddha Sakyamuni had a prophecy about the Radreng Monastery in the Buddhist scriptures.
 
-Studying, cultivating or writing at the practice of the predecessors, the blessing is very powerful, and it is easy to achieve.
+Studying, practicing or writing about the practice of the predecessors, the blessing is very powerful, and it is easy to achieve.
 
-The location of Radreng Monastery used to be a bald mountain without a single tree. Later, Songtsan Gampo, the incarnation of Avalokitesvara Bodhisattva, visited here, sprinkled water for washing his hair on the hillside, and prayed for blessings, so two trees grew. There are 15,000 verdant Thuja trees, all of which are prophesied in Buddhist scriptures.
+The location of Radreng Monastery used to be a bald mountain without a single tree. Later, Songtsan Gampo, the incarnation of Avalokitesvara Bodhisattva, visited here, sprinkled water for washing his hair on the hillside, and prayed for blessings, so two trees grew. There are 15,000 verdant Thuja trees, all of which were prophesied in Buddhist scriptures.
 
 In Radreng Monastery, there are spiritual bone stupas of Master Jinzhou, Venerable Atisha, and Master Dromtonpa, as well as sacred objects such as the statue of Venerable Atisha.
 
-4. After persuading Master Tsongkhapa to practice according to "A Lamp for the Path to Enlightenment" for a period of time, he attained the achievement of the Three Paths.
+4. After persuading Master Tsongkhapa to practice according to "A Lamp for the Path to Enlightenment" for a period of time, he attained the achievement of the Three Aspects.
 
 At this time, the master saw with his own eyes the lineage masters of the two major sects all appearing in front of him.
 
-From Shakyamuni Buddha to the master's own master, including Manjushri, Nagarjuna, as well as all the great virtues of Kadampa, such as Master Dromtonpa  and Master Bodowa, I also saw Venerable Atisha with my own eyes. .
+From Shakyamuni Buddha to the master's own master, including Manjushri, Nagarjuna, as well as all the great virtues of Kadampa, such as Master Dromtonpa  and Master Bodowa, he also saw Venerable Atisha with my own eyes.
 
 
 Then, all the Buddhas and Bodhisattvas and teachers merged into the body of Venerable Atisha, who put his hand on the head of Master Tsongkhapa and said, "You want to benefit all sentient beings, and write the "Guide to Bodhi", I'm here to help you and bless you."
 
 After speaking, Venerable Atisha merged into Master Tsongkhapa's body.
 
-At the same time, Guan Que Hua Sang, a great siddha in Tibet at that time, also encouraged Master Tsongkhapa.
+At the same time, **Guan Que Hua Sang**, a great siddha in Tibet at that time, also encouraged Master Tsongkhapa.
 
 In the end, Master Tsongkhapa wrote "The Great Treatise on the Stages of the Path of Enlightenment."
 
 During the time when the master was writing "The Great Treatise on the Stages of the Path of Enlightenment", Manjushri came in person three times.
 
-It was the first time I came to persuade Master Tsongkhapa to write "The Great Treatise on the Stages of the Path of Enlightenment".
+The first time he came to persuade Master Tsongkhapa to write "The Great Treatise on the Stages of the Path of Enlightenment".
 
-When he wrote about the meditation and wisdom method of the San Shi Dao, that is, the meditation paramita and the wisdom paramita, the master thought: Now there are too many people without great wisdom, and it is useless to write too much in this part.
+When he wrote about the meditation and wisdom method of the The Three Principal Aspects of the Path, that is, the meditation paramita and the wisdom paramita, the master thought: Now there are too many people without great wisdom, and it is useless to write too much in this part.
 
-At this time, Manjushri Bodhisattva appeared again and said to Master Tsongkhapa: "If you want to write more deep and broad meditation and wisdom Paramita, it will be of great benefit to all living beings in future generations."
+Manjushri Bodhisattva appeared again and said to Master Tsongkhapa: "If you write more deep and broad meditation and wisdom perfection, it will be of great benefit to all living beings in future generations."
 
-There are human beings and non-human beings among the disciples who support Master Tsongkhapa's writing "The Great Treatise on the Stages of the Path of Enlightenment".
+There were human beings and non-human beings among the disciples who supported Master Tsongkhapa's writing "The Great Treatise on the Stages of the Path of Enlightenment".
 
-For example, during the period when the master wrote the Great Treatise, the diet was mainly undertaken by the land gods of the three thousand great thousand worlds, especially the Animaqin, who was a mountain god of Ando Goluo and a Bodhisattva of the Ten Lands.
+For example, during the period when the master wrote the Great Treatise, his diet was mainly taken care of by the land gods of the three thousand great thousand worlds, especially Animaqin, who was a mountain god of Ando Goluo and a Bodhisattva of the Tenth Stage.
 
 
 
-5. After Master Tsongkhapa, his family member, wrote the "The Great Treatise on the Stages of the Path of Enlightenment", countless human beings and non-human beings have been liberated by studying the Great Theory.
+5. After Master Tsongkhapa wrote the "The Great Treatise on the Stages of the Path of Enlightenment", countless human beings and non-human beings have been liberated by studying the Great Treatise.
 
-Among them, it is even more difficult to count those who are able to practice both exoteric and esoteric practice and promote Mahayana Buddhism.
+Among them, it is even more difficult to count those who are able to perform both exoteric and esoteric practices and promote Mahayana Buddhism.
 
-Among the disciples of the master, not to mention those who have attained ordinary achievements, are those who are proficient in the essentials of the Tripitaka, and those who have completed the three disciplines of precepts, concentration, and wisdom, and those who have practised intensively in the three ways of spirituality and the second stage of Tantric Buddhism, are like the stars in the night sky, innumerable.
+Among the disciples of the master, not to mention those who have attained ordinary achievements, are those who are proficient in the essentials of the Tripitaka, and those who have completed the three disciplines of precepts, concentration, and wisdom, and those who have practised intensively in the three ways of spirituality and the second stage of Tantra, are like the stars in the night sky, innumerable.
 
 Among them, Gyaltsab Je, Kedrub Je, Zhaba Jianshen, Jamyang Choje,  Jamchen Choje (Daci Dharma King), Gyu Sherab-sengge (Hui Shishi), Gyelwa Gendun-drub and others.
 
-Gyaltsab Je and Kedrub Je inherited the throne of Master Tsongkhapa and ascended to Ganden Tripa (the head of Ganden Monastery, that is, the Dharma King of Yellow Hat school), which laid the foundation of Gelugpa School.
+Gyaltsab Je and Kedrub Je inherited the throne of Master Tsongkhapa and ascended to Ganden Tripa (the head of Ganden Monastery, that is, the Dharma King of Yellow Hat school), which laid the foundation for the Gelugpa School.
 
 They were the two most outstanding disciples who carried forward the teachings of Master Tsongkhapa.
 
@@ -998,72 +1006,74 @@ Master Tsongkhapa, Gyaltsab Je, and Kedrub Je were later honored as "Three Maste
 
 
 
-Section 3 - of other writings on the stages of the path 
+Section 3 - Other writings on the stages of the path 
 
-1. Other writings on the stages of the path If we understand the "The Graded Stages of the Path to Enlightenment", we will understand the sequence of the Path to Enlightenment, and we will understand how we will practice in the future.
+1. Other writings on the stages of the path 
 
-Guang Lun is our teacher and mentor.
+If we understand the "The Great Treatise on the Stages of the Path to Enlightenment", we will understand the sequence of the Path to Enlightenment, and we will understand how we should practice in the future.
+
+The Great Treatise is our teacher and mentor.
 
 My guru, Dharma King Yongzeng's teacher, was Rako Rinpoche. After Rako Rinpoche's teacher passed away, he wrote a letter to another great siddha saying, "To my teacher who taught the scriptures. After passing away, I want to find another guru, which one do you think is more suitable?" 
 
-The great siddhi replied, "Master Tsongkhapa's "The Graded Stages of the Path to Enlightenment" and "The Stages of the Path of Tantra" These two works are your best teachers.
+The great siddhi replied, "Master Tsongkhapa's "TThe Great Treatise on the Stages of the Path to Enlightenment" and "The Stages of the Path of Tantra" These two works are your best teachers."
 
-"Therefore, we need to realize the greatness of the Cantonese Theory. If we practice according to the order in the Cantonese Cantonese, we will definitely achieve success. It depends on whether we believe it or not, whether we study it or not, whether we practice or not, and whether we can be diligent or not.
+Therefore, we need to realize the greatness of the The Great Treatise. If we practice according to the order in the The Great Treatise, we will definitely achieve success. It depends on whether we believe it or not, whether we study it or not, whether we practice or not, and whether we can be diligent or not.
 
-This is because "The Graded Stages of the Path to Enlightenment" mainly focuses on the cultivation methods of ordinary people, not only for those who have been incarnated as Bodhisattvas and those who are great achievers.
+This is because "The Great Treatise on the Stages of the Path to Enlightenment" mainly focuses on the cultivation methods of ordinary people, not only for those who have been incarnated as Bodhisattvas and those who are great achievers.
 
-After Master Tsongkhapa wrote The Extensive Treatise on the Steps of the Path to Bodhi, a few years later, taking into account the foundation of all living beings in later generations, the master omitted the profound teachings in the Treatise and created the Brief Treatise on the Steps of the Path to Bodhi.
+A few years after Master Tsongkhapa wrote The Great Treatise on the Stages of the Path to Enlightenment,, taking into account the liberation of all living beings in later generations, the master shortened the profound teachings in the Treatise and produced "The Brief Treatise on the Stages of the Path to Enlightenment".
 
 
-It focuses on the main points of practical training, and the emphasis of Professor Guang Lun is different. The two treatises can complement each other and Dharmacilitate future generations to study and practice.
+It focuses on the main points of practical training, and the emphasis of The Brief Treatise is different. The two treatises can complement each other and facilitate the study and practice of future generations.
 
 At the same time, the master also realized that for practitioners in later generations, the teachings of these two treatises are still relatively broad, and some people may not know how to use these broader teachings for practice in the future.
 
-Therefore, the Master graciously instructed: "Though there are very few people who can understand that all discourses are practice, you can first summarize the things that should be practiced, and describe them in detail in a separate book.
+Therefore, the Master graciously instructed: "Though there are very few people who can understand that all discourses are practice, you can first summarize the things that should be practiced, and describe them in detail in a separate book."
 
-"After receiving such a promise from the master, the later great siddhas wrote books based on their own understanding of the "The Graded Stages of the Path to Enlightenment", and wrote hundreds of books before and after. There are eight chapters, called the Eight Great Guidances.
+After receiving such a promise from the master, the later great siddhas wrote books based on their own understanding of the "The Great Treatise on the Stages of the Path to Enlightenment", and wrote hundreds of books before and after. There are eight chapters, called the **Eight Great Guidances.**
 
-That is, Master Tsongkhapa's "A Grand Presentation of the Graded Stages of the Path (Lam-rim chen-mo)", "A Brief Review of the Steps of the Path to Enlightenment", and "Dao Song"; the fourth Panchen Lama's "The Path of Peace", referred to as "Le Dao"; the fifth Panchen Lama The Master's "Direct Teaching of the Path to Bodhi", referred to as "Speed ​​Path"; "The Path: Pure Gold" by the Third Dalai Lama; "Manjushri Dictation" by the Fifth Dalai Lama; The Essence of Good Speaking".
+That is, Master Tsongkhapa's "The Great Treatise on the Stages of the Path to Enlightenment (Lam-rim chen-mo)", "A Brief Commnetary on the Stages of the Path to Enlightenment", and "Dao Song"; the fourth Panchen Lama's "The Path of Peace", referred to as "Le Dao"; the fifth Panchen Lama The Master's "Direct Teaching of the Path to Bodhi", referred to as "Speed ​​Path"; "The Path: Pure Gold" by the Third Dalai Lama; "Manjushri Dictation" by the Fifth Dalai Lama; The Essence of Eloquence".
 
 Among them, "Speed ​​Road" can be regarded as the annotation of "Le Dao", and "Manjushri's Dictation" can be regarded as the annotation of "Dao Ji Di • Pure Gold".
 
 25
 
-The basis of the Eight Great Guidance is also the "The Lamp of the Path to Enlightenment".
+The basis of the **Eight Great Guidance** is also the "The Lamp of the Path to Enlightenment".
 
-The masters who inherit the teachings of the eight great guides and other stages of the path belong to the creators of the three ways.
+The masters who inherit the teachings of the eight great guides and other stages of the path belong to the creators of the three aspects.
 
-2. The Importance of the Succession of the Paths
+2. The Importance of the Sequence of the Paths
 
- In the study of Buddhism, the purity of the stream of Dharma is very important.
+In the study of Buddhism, the purity of the lineage of the Dharma is very important.
 
-The primary condition for the purification of the Dharma flow is that the Dharma learned and cultivated must be inherited.
+The primary condition for the purity of the Dharma lineage is that the Dharma learned and cultivated must be inherited.
 
-Having a lineage refers to the Dharma that has been heard and practiced. It has been passed down from generation to generation by the lineage teachers, starting with Buddha Shakyamuni, without increase or decrease, until it is passed on to us.
+Having a lineage refers to the Dharma that has been heard and practiced. It has been passed down from generation to generation by the lineage teachers, starting with Buddha Shakyamuni, without addition or removal, until it is passed on to us.
 
 With lineage, there will be blessings in practice.
 
 The lineage includes different aspects, including the lineage of empowerment, the lineage of oral transmission, the lineage of sermons, and so on.
 
-Oral transmission is the teaching of classics that the guru recites and wants to pass on to the disciples. The disciple listens carefully, and after listening to all of them, the continuum of the heart will get the lineage of oral transmission. When they cultivate to a certain life, they will suddenly think of everything that the master has recited. legality.
+Oral transmission is the teaching of classics that the guru recites and wants to pass on to the disciples. The disciple listens carefully, and after listening to all of them, the continuum of the heart will get the lineage of oral transmission. When they cultivate a certain way of life, they will suddenly think of everything that the master has recited.
 
-The lineage of sermons is the lineage of the sutras that the master has. Once he preaches the sutras to the disciples, the disciples obtain the lineage.
+The lineage of sermons is the lineage of the sutras that the master has. Once he teaches the sutras to the disciples, the disciples obtain the lineage.
 
-The lineage of our San Shi Dao and the Eight Great Guidance is the lineage of lecturing and oral transmission.
+The lineage of our Three Principal Aspects of the Path and the Eight Great Guidance is the lineage of lecturing and oral transmission.
 
-Our lineage is passed down by two great siddhis, Gyaltsab Je and Kedrub Je, disciples of Master Tsongkhapa.
+Our lineage was passed down by two great siddhis, Gyaltsab Je and Kedrub Je, disciples of Master Tsongkhapa.
 
 26
 
 It was passed on to the Fourth Panchen Lama, the fourth Panchen Lama is the reincarnation of the second coming of Master Tsongkhapa recognized in Tibet.
 
-Then it was slowly passed on to the third Gongtang Rinpoche, and finally to Rako Rinpoche, Rako Rinpoche passed it on to Dharma King Yongzin, and Dharma King Yongzin passed it on to me.
+Then it was slowly passed on to the third Gongtang Rinpoche, and finally to Rako Rinpoche, Rako Rinpoche passed it on to Dharma King Yongzeng, and Dharma King Yongzeng passed it on to me.
 
-I have studied under seven masters: Dharma King Yongzin, Dharma King Yeshe Gyatso, Guru Kazang Qusong Vajra, the 10th Panchen Lama, Gelga Rinpoche, Lobsang Dorje Vajra, and Geshe Rinpoche. Disciple of Rako Rinpoche.
+I have studied under seven masters: Dharma King Yongzeng, Dharma King Yeshe Gyatso, Guru Kazang Qusong Vajra, the 10th Panchen Lama, Gelga Rinpoche, Lobsang Dorje Vajra, and Geshe Rinpoche. Disciple of Rako Rinpoche.
 
 So, our lineage is that of Rako Rinpoche.
 
-I myself have received the lineage of the Three Paths and the Eight Great Guidances from Dharma King Yongzeng, and the Three Paths, The Extensive Treatise on the Stages of the Bodhi Path, and The Stages of the Bodhi Path from Master Gazang Qusong Vajra and Dharma King Yeshe Gyatso. The lineages of "A Brief Commentary" and "The Way of Peace" have also received other guidance from other masters. It is very important to have a lineage!
+I myself have received the lineage of the Three Principal Aspects of the Path and the Eight Great Guidances from Dharma King Yongzeng, and the Three Principal Aspects of the Paths, The Great Treatise on the Stages of the Path to Enlightenment, and The Brief Commentary on the Stages of the Path to Enlightenment from Master Gazang Qusong Vajra and Dharma King Yeshe Gyatso. The lineages of "A Brief Commentary" and "The Way of Peace" have also received other guidance from other masters. It is very important to have a lineage!
 
 27
 
@@ -1075,7 +1085,7 @@ Rako Rinpoche's "Treasures of the Sea of ​​the Dharma"
 
 ![拉科仁波切](/images/howtostudy3shidao.png)
 
-How to Learn the San Shi Dao 
+How to Learn the The Three Principal Aspects of the Path 
 
 #### Part 2
 
@@ -1117,43 +1127,43 @@ Chapter 1 - The root of the Path is to be close to the guru.
 
 The guru is the teacher who preaches the sutras and the Dharma, is the good teacher, the source of all good virtues, the teacher who acts for the Buddhas, fulfills the responsibilities that the Buddhas have not fulfilled, and guides the liberation of all living beings. Therefore, the guru is the root of the Path.
 
-Choosing a teacher is very important. To learn the Three Ways, you must first respect the guru, because the guru is not only the guru in this life, but also the reliance of future generations. Therefore, worshiping a guru is a great plan for all eternity. If you choose a good guru, you will benefit from it for eternity;
+Choosing a teacher is very important. To learn The Three Principal Aspects of the Path, you must first respect the guru, because the guru is not only the guru in this life, but also the reliance of future generations. Therefore, worshiping a guru is a great plan for all eternity. If you choose a good guru, you will benefit from it for eternity;
 
-Choosing the right guru is also very easy to achieve. If you choose a guru who does not have the qualifications and virtues, you will have great troubles.
+Choosing the right guru is also very easy. However, if you choose a guru who does not have the qualifications and virtues, you will have great troubles.
 
-For example, disciples who have not reached the level of tantric empowerment may break their precepts after empowerment, and they will fall into evil realms in future generations. A truly good teacher will observe, and a disciple will not impart empowerment until he reaches the level of empowerment. The same is true of precepts. If the precepts are pure, the guru will pass them on. If the precepts are observed to be novel and fun, the virtuous guru will not pass them on.
+For example, disciples who have not reached the level of tantric empowerment may break their precepts after empowerment, and they will fall into evil realms in future generations. A truly good teacher will observe, and a disciple will not receive the empowerment until he reaches the level required for the empowerment. The same is true of precepts. If the vows are pure, the guru will pass them on. If the precepts are observed to be novel and fun, the virtuous guru will not pass them on.
 
-If you worship a bad guru, or a guru who has not achieved success in learning and cultivation, and cannot deeply understand the Buddhadharma, you may teach and guide your disciples misunderstandings. When the master rejects other dharmas, the disciples also reject them; when the master says that a certain bodhisattva is not good, the disciples also say the same, and the disciples also follow the master to hell, and in the end they all fall into the evil realm.
+If you worship a bad guru, or a guru who has not achieved success in learning and cultivation, and does not deeply understand the Buddhadharma, they may teach and guide their disciples to misunderstanding. When the master rejects other dharmas, the disciples also reject them; when the master says that a certain bodhisattva is not good, the disciples also say the same, and the disciples also follow the master to hell, and in the end they all fall into the evil realm.
 
-Therefore, you must choose a good teacher, and you must not worship the teacher indiscriminately.
+Therefore, you must choose a good teacher, and you must not follow just any teacher indiscriminately.
 
 Choosing the right teacher is very, very important!
 
 After choosing a teacher with virtue and qualifications, if you want to be a teacher who guides your own practice, you must also take refuge in this teacher.
 
-First bow three times in front of the guru, and then follow the guru to recite the four refuges three times.
+First bow three times in front of the guru, and then follow the guru in reciting the four refuges three times.
 
-If you don't take refuge, you're not considered a master. Even if you listen to a certain guru teach the Dharma and participate in empowerment, you're not considered a master.
+If you don't take refuge, you're not considered a master. Even if you listen to a certain guru teach the Dharma and participate in empowerments, you're not considered a master.
 
-After worshipping a master, one must have firm confidence in the master.
+After deciding to follow a master, you must have firm confidence in the master.
 
 If you can believe in the guru just like you believe in the Buddhas and Tathagatas, you can get the blessings of the Buddhas and Tathagatas in body, speech, and mind.
 
-Our troubles are like cotton, the blessings of Buddhas and Tathagatas are like sunshine, and the blessings of teachers are like magnifying glasses.
+Our troubles are like cotton, the blessings of Buddhas and Tathagatas are like sunshine, and the blessings of teachers are like a magnifying glass.
 
 32
 
-The magnifying glass can gather sunlight to burn cotton, and so does the blessing of the guru. The blessings of the Buddhas and Tathagatas converge on us through the guru, and troubles will soon be cut off.
+The magnifying glass can concentrate sunlight to burn cotton, and so does the blessing of the guru. The blessings of the Buddhas and Tathagatas converge on us through the guru, and troubles will soon be eliminated.
 
 33
 
 Section 1 - Qualifications of a Guru
 
- The guru we want to worship, in general, needs to meet five conditions: pure precepts; perfect understanding of the Dharma; great kindness and compassion; pure lineage; understanding of emptiness.
+The guru we want to follow, in general, needs to meet five conditions: pure precepts; perfect understanding of the Dharma; great kindness and compassion; pure lineage; understanding of emptiness.
 
 1. Basic requirements for a guru 
 
-(1) Purity of the precepts 
+(1) Purity of the vows 
 
 As a guru, the precepts must be pure.
 
@@ -1161,105 +1171,113 @@ If the guru is a monk, then the monk vows must be pure.
 
 Tibetan Buddhist monks have 253 precepts, all of which must be pure.
 
-If the teacher has received the Bodhisattva Precepts, the Bodhisattva Precepts has eighteen fundamental precepts and forty-six secondary precepts, and these precepts must be pure.
+If the teacher has taken the Bodhisattva Vows, the Bodhisattva Vows divided into eighteen fundamental vows and forty-six secondary vows, these precepts must be pure and unbroken.
 
-Likewise, if one takes the Tantric precepts, the fourteen fundamental precepts and eight falling precepts of the Tantric vehicle must also be purified.
+Likewise, if one takes the Tantric vows, the fourteen fundamental precepts and eight secondary precepts of the Tantric vehicle must also be impeccably upheld.
 
 Purity of discipline is the first condition of being a guru.
 
 (2) Fully understand the Buddhadharma
 
- There are 84,000 Dharma gates, and as a guru, one must understand the various points
+ There are 84,000 Dharma gates, and as a guru, one must understand the various points.
 
 34
 
-The way of the party.
+The way of the Gelug School.
 
-It is necessary to understand the method of sutra, otherwise, it will be misunderstood and rejected.
+It is necessary to understand the many Sutras, otherwise teachings will be misunderstood and rejected.
 
-These are all slander, and are extremely bad karma.
+These misunderstandings or leading others to misunderstand are all forms of slandering the Dharma, and bring extremely bad karma.
 
 Being able to fully understand the Dharma is the second condition for being a guru.
 
 (3) Masters with great compassion and great kindness must have a great compassionate heart that wishes all sentient beings to have happiness and the causes of happiness, and a great compassionate heart that wishes all sentient beings to be free from suffering and the causes of suffering.
 
-You must teach the Dharma for the sake of saving sentient beings with compassion, not for the sake of Dharmame and fortune.
+You must teach the Dharma for the sake of saving sentient beings with compassion, not for the sake of fame and fortune.
 
 (4) Purity of Lineage
 
- Guru must have a Lineage, not only the Lineage, but also the Lineage must be pure.
+ A Guru must have a Lineage.
+ 
+ Not only the Lineage, but the Lineage must be pure.
 
-Our Lineage is from Sakyamuni Buddha to Manjushri Bodhisattva and Maitreya Bodhisattva, and slowly to Venerable Atisha, Master Tsongkhapa, and then from Gyaltsab Je and Kedrub Je to the fourth Panchen Lama. , the third Gongtang Rinpoche, and finally to Rako Rinpoche, and Rako Rinpoche to Dharma Master Yongzeng.
+Our Lineage extends from Sakyamuni Buddha to Manjushri Bodhisattva and Maitreya Bodhisattva, then on to Venerable Atisha, Master Tsongkhapa, and then from Gyaltsab Je and Kedrub Je to the fourth Panchen Lama, the third Gongtang Rinpoche, and finally to Rako Rinpoche, and Rako Rinpoche to Dharma Master Yongzeng.
 
 35
 
-From Buddha Shakyamuni to Venerable Atisha was the lineage of the Great Prajna Sutra. During that period, the deep and broad paths were transmitted separately.
+From Buddha Shakyamuni to Venerable Atisha was the lineage of the Prajna Paramita Sutra. During that period, the deep and broad paths were transmitted separately.
 
-Beginning with Venerable Atisha, the lineages of the deep and broad stages were combined into one.
+Beginning with Venerable Atisha, the lineages of the deep and broad paths were combined into one.
 
-In this way, for the lineage of the entire Bodhi path, from Buddha Shakyamuni to Dharma King Yongzeng is the forty-fifth generation, and Dharma King Yongzeng passed it on to me, the lineage is very pure and complete.
+In this way, for the lineage of the entire path to enlightenment, from Buddha Shakyamuni to Dharma King Yongzeng reaches the forty-fifth generation, and Dharma King Yongzeng passed it on to me, the lineage is very pure and unbroken.
 
-It has been more than 2,500 years since the birth of Buddha Shakyamuni, and the reason why the lineage of the path has only gone through forty-five generations is that in the lineage of the Bodhi path, many lineage masters have lived in the world for a long time.
+It has been more than 2,500 years since the birth of Buddha Shakyamuni, and the reason why the lineage of the path has only gone through forty-five generations is that in the lineage of the Bodhi path, many lineage masters lived in the world for a long time.
 
-For example, Nagarjuna Bodhisattva lived for over 600 years, his disciple Yueshen Bodhisattva lived for over 350 years, and there are many other long-lived lineage masters.
+For example, Nagarjuna Bodhisattva lived for over 600 years, his disciple Chandrakirti Bodhisattva lived for over 350 years, and there are many other long-lived lineage masters.
 
 The lineage of other dharmas has already exceeded forty-five generations.
 
-Purity of lineage  is extremely important.
+Purity of lineage is extremely important.
 
-The pure lineage means that the Dharma taught by the guru started from Buddha Shakyamuni and passed down from generation to generation without increase or decrease.
+The pure lineage means that the Dharma taught by the guru started from Buddha Shakyamuni and was passed down unchanged from generation to generation.
 
-In the process of teaching the Dharma, the master's own understandings and concepts were not added, or some masters thought they were wrong, and then eliminated the Dharma meaning of the lineage; and each generation of the masters of the lineage never gave up on their own masters. confidence.
+In the process of teaching the Dharma, the master's own understandings and concepts were not added. 
 
-Now, when many masters teach the Dharma, they will consciously or unintentionally add their own opinions and ideas, and pass them on to their disciples, such as "What do I think?" and so on.
+Some masters admitted that they themselves were wrong, and then eliminated the Dharma meaning of the lineage. And each generation of the masters of the lineage have never lost confidence in their own masters. 
+
+Nowadays, many masters, when teaching the Dharma, will consciously or unintentionally add their own opinions and ideas, and pass them on to their disciples, such as "In my opinion ..." and so on.
 
 36
 
-This kind of master loses the pure lineage, or destroys the cleanliness of the lineage, so the Dharma handed down is not pure and complete.
+This kind of master breaks the pure lineage, or destroys the cleanliness of the lineage, so the Dharma handed down is not pure and complete.
 
-The San Shi Dao that I teach you is passed down from the masters of the past generations, until my master passed it on to me and taught it to me, and it has been passed down to you in its entirety. ", and then added are all the Dharma passed down by Buddhas and Bodhisattvas, and what ordinary people think is not necessarily the Dharma.
+The The Three Principal Aspects of the Path that I teach you is passed down from the masters of the past generations, until my master passed it on to me and taught it to me, and it has been passed down to you in its entirety. There is no such phrase as "In my opinion ..." 
 
-Having a lineage, and the lineage is pure and complete, is the fourth condition for being a guru.
+What is added after that is all the Dharma passed down by Buddhas and Bodhisattvas, and ordinary people's opinions are not necessarily the Dharma.
 
-(5) Understanding emptiness
+Having a pure and complete lineage is the fourth condition for being a guru.
 
- Understanding emptiness means being able to understand emptiness through words and language.
+(5) Understanding Emptiness
+
+Understanding emptiness means being able to understand emptiness through words and language.
 
 As a teacher, it is best to realize emptiness.
 
 Because the root of liberation is the realization of emptiness.
 
-If you don't realize emptiness, you must at least understand emptiness. If your teacher doesn't understand emptiness, you can't talk about emptiness, and you can't guide your disciples on the path to liberation.
+If you don't realize emptiness, you must at least understand emptiness. If your teacher doesn't understand emptiness, he can't talk about emptiness, and he can't guide his disciples on the path to liberation.
 
 These are the five basic conditions that you need to have to be a guru.
 
 37
 
-There is a difference between a teacher and a guru. A teacher needs to meet the above five conditions, and a teacher must have the will and wisdom to save all sentient beings. The "Master" we usually say does not necessarily have to meet these conditions.
+There is a difference between a guru and a normal master. A gura needs to meet the above five conditions, and a guru must have the will and wisdom to save all sentient beings. The "Master" we usually refer to does not necessarily have to meet these conditions.
 
-Therefore, when taking refuge in Tibetan Buddhism, one must take refuge in the guru; the main purpose of the practice of Theravada Buddhism is to save oneself, so the master of Theravada is called the teacher, not the guru.
+Therefore, when taking refuge in Tibetan Buddhism, one must take refuge in the guru. The main aim of the practice of Theravada Buddhism is to save oneself, so the master of Theravada is called the teacher, not the guru.
 
-In general, if you want to worship a guru, you must worship a guru who meets the above five conditions.
+In general, if you want to follow a guru, you must follow a guru who meets the above five conditions.
 
-Guru can be divided into precept masters, Mahayana masters, and Tantric masters, all of which have different requirements.
+Gurus can be divided into precept gurus, Mahayana gurus, and Tantric gurus, all of which have different requirements.
 
-2. The conditions for the teacher to teach the precepts require that the teacher who imparts the precepts and the precepts refers to the teacher who transmits the precepts of other and liberation, such as the teacher who transmits the five precepts, the novice precepts, and the monk precepts.
+#### 2. Requirements for the Ordination Guru
 
-A precept master also needs to meet five conditions: purity of precepts; knowledge of disciplines; compassion; purity of residence; knowledge of timing.
+The conditions for the guru to teach the precepts and vows require that the teacher who imparts the precepts and the vows refers to the guru Guru who taught the Five Precepts, the Novice Precepts, and the Bhikkhu Precepts.
 
-(1) Purification of precepts
+A precept master also needs to meet five conditions: purity of precepts; knowledge of discipline; compassion; cleanliness of residence; patience.
 
- As a teacher of precepts and precepts, first of all, he must have received and held the precepts of monks, and he must pass ten years of precepts.
+(1) Purity of precepts
+
+ As a teacher of precepts and vows, first of all, he must have received ordination and upheld the vows of monks, for more than ten years.
 
 38
 
-Not only should the discipline be pure, but the precepts should also be pure.
+Not only should the discipline be pure, but the vows should also be unbroken.
 
 For example, when you wear a cassock, you need to dress very standardly and not casually.
 
 Precepts and tenets must be pure.
 
-(2) Masters who are familiar with the precepts and precepts must be familiar with the prescribed requirements of the precepts.
+(2) Masters who are familiar with the precepts and vows must be familiar with the prescribed requirements of the precepts.
 
 For example, it is necessary to understand what is abstinence and what is a violation of the precepts; if one violates the precepts, how to repent and remedy them, etc.
 
@@ -1267,184 +1285,209 @@ Another example is when preaching the Five Precepts, it is required to be able t
 
 Mastering the requirements of these precepts is called mastery of the discipline.
 
-(3) It is absolutely impossible to have compassion without compassion.
+(3) It is absolutely impossible to have no compassion.
 
- Without compassion, you are not qualified to be a guru.
+ Without compassion, one is not qualified to be a guru.
 
 (4) The place of residence is clean.
 
  The place of residence is clean, that is, the environment in which the masters who teach and give precepts live should be clean.
 
-This means that the master's living environment and interpersonal interactions should not affect his own precepts, such as living in a clean place such as a monastery, a mountain or a forest.
+This means that the master's living environment and interpersonal interactions should not affect his own vows, such as living in a clean place such as a monastery, a mountain or a forest.
 
 39
 
-(5) Know the timing
+(5) Know the correct timing
 
-The timing of preaching precepts and teaching the Dharma must be all about timing, as well as seasonal regulations, the appropriate age for precepts, the length of time for offenders, etc. The timing requirements stipulated in the precepts must be mastered.
+TWhen preaching precepts and teachings, we need to talk about timing, as well as seasonal regulations, the appropriate age for taking vows, and the length of time for retreat, etc.
+The temporal requirements specified in the precepts must be mastered.
 
 For example, it is necessary to understand the age rules for giving ordination.
 
-One must be twenty years old to receive the ordination of a monk, and seven years old to receive the ordination of a novice. The preceptor must know this.
+One must be twenty years old to be ordained as a monk, and seven years old to receive novice vows. The teacher must know this.
 
-The above are the five conditions that must be fulfilled by the precepts and ordination guru.
+The above are the five conditions that must be fulfilled by the guru transmitting precepts and conferring ordination.
 
-3. The condition of the Mahayana guru requires Maitreya Bodhisattva to say in the "Sutra of Majesty":
+3. Requirements for a Mahayana Guru 
 
-A good teacher must possess precepts, concentration and wisdom, Virtue is diligent and knowledgeable,
+Maitreya Bodhisattva says in the "Ornament of Mahāyāna Sūtras":
 
-With right view and good explanation, full of compassion and patience.
+>
+>One should follow a spiritual teacher who is disciplined, peaceful, serene,
+>
+>Endowed with special qualities, diligent, rich in scriptural learning,
+>
+>Highly realized concerning the nature of reality, skilled in speaking,
+>
+>The embodiment of love, and indefatigable.
+>
 
-The requirements for the masters of Mahayana lecturing and teaching are relatively high, and they need to meet ten conditions: possessing morality; possessing determination; possessing wisdom; profound knowledge; Be patient.
+The requirements for the masters lecturing and teaching the Mahayana are relatively high, and they need to meet ten conditions: possessing morality; possessing determination; possessing wisdom; profound knowledge; Patience.
 
 
-(1) The purpose of keeping the precepts with sufficient precepts is to use precepts to subdue the unruly mind, so precepts must be pure.
+##### (1) Disciplined
+
+Training in ethical discipline with vows. The purpose is to use precepts to tame the unruly mind, so the precepts should be pure.
 
 The precepts can be divided into three categories: 
 
-the precepts of no liberation, 
+The vow of non-liberation (for oneself alone), 
 
-the precepts of the bodhisattva, 
+Bodhisattva vows, 
 
-and the precepts of the tantric vehicle.
+Tantric vows.
 
-The precepts of no liberation include the Theravada precepts, the Upasaka precepts, the Upasaka precepts, the novice precepts, the novice precepts, the study precepts, the monk precepts, and the monk precepts.
+The precepts of non-liberation include the Theravadan eight precepts, the Upasaka precepts, the Upasaka special precepts, the novice precepts, the novice precepts, the study precepts, the monk precepts, and the precepts of nuns.
 
-Keeping the precept of liberation can subdue the evil karma of the body and mouth.
+Keeping the precept of non-liberation can subdue the evil karma of body and speech.
 
-That is, the body must not kill, steal, or commit sexual misconduct, and the mouth must not speak lies, slander, double-talk, or slander.
+That is, the person must not kill, steal, or commit sexual misconduct, and must not speak lies, slander, double-talk, or harsh words.
 
-Holding the Bodhisattva Precepts can subdue the sinful karma of body, speech, and mind, especially the mind, which is the mind.
+Taking the Bodhisattva Vows can subdue the sinful karma of body, speech, and mind, especially the mind.
 
-For example, to subdue miserliness, it is required not to be miserly in wealth, nor to be miserly in Dharma, which is a matter of body and mouth; it is also required to practice generosity frequently, all of which are aimed at subduing the miserliness.
+For example, to subdue miserliness, it is required not to be miserly in wealth, nor to be miserly in Dharma, which is a matter of body and speech; it is also required to practice generosity frequently, all of which are aimed at subduing miserliness.
 
-The eighteen precepts of the Bodhisattva Precepts are mainly methods for subduing the mind.
+The eighteen Bodhisattva Vows are mainly methods for subduing the mind.
 
-The precepts of the tantra are also methods of subduing the mind.
+The Tantric Vows are also methods of subduing the mind.
 
-When these three precepts are purified, they will naturally subdue the body, speech, and mind.
+When these three vows are kept, they will naturally subdue the body, speech, and mind.
 
-Precepts can completely subdue the body and mouth, but not the mind. The way to completely subdue the mind is to meditate.
+Taking precepts with vows can completely subdue the body and speech, but not the mind. The way to completely subdue the mind is to meditate.
 
 41
 
-(2) Having sufficient determinate form, sound, smell, taste, and touch, is called external environment. Having samsara and being unaffected by external conditions means having sufficient determinateness.
+##### (2) Having sufficient concentration 
+
+Form, sound, smell, taste, and touch, is called external environment. Having concentration and being unaffected by external conditions means having sufficient determination.
 
 As a teacher, the mind must be able to settle down, and if you have the ability to meditate, it will be even more extraordinary.
 
-Many of our lineage masters have the skill of meditation.
+Many of our lineage masters were highly skilled in meditation.
 
 If you don't have the ability to meditate, you need to keep your mind stable at all times and not be troubled by external disturbances.
 
-(3) There are many kinds of wisdom with wisdom, which here refers to the wisdom of distinguishing right from wrong.
+##### (3) Wisdom 
+
+Wisdom here refers to the wisdom of distinguishing right from wrong.
 
 As a teacher, you must have a strong ability to distinguish between good and evil, and if you have the wisdom of emptiness, it will be even more extraordinary.
 
-(4) As a teacher with profound knowledge, one must be able to fully understand the Dharma.
+##### (4) Wealth of Scriptural Knowledge
 
-First of all, you must master the methods of Theravada, then learn the methods of the Mahayana Buddhism, and then learn the methods of the Tantra, all of which must be learned.
+As a teacher with profound scriptural knowledge, one must be able to fully understand the Dharma.
+
+First of all, you must master the methods of Theravada, then learn the methods of the Mahayana Buddhism, and then learn the methods of the Tantra. All of these must be learned.
 
 In Tibetan Buddhism, it takes about sixteen years to learn the methods of Theravada and Mahayana sutras first.
 
-During these sixteen years, the master has to teach the scriptures every day, and the disciples have to recite it every day, and then learn and master it by debating the scriptures. Next, it takes seven or eight years to learn the tantra method.
+During these sixteen years, the master has to teach the scriptures every day, and disciples have to recite them every day, and then learn and master it by debating the scriptures. Next, it takes seven or eight years to learn the tantra method.
 
 42
 
 All in all, even if he is very diligent, an ordinary Tibetan Buddhist monk needs to study for more than 20 years before he can become a guru.
 
-Not only that, as a guru, one must also master the teachings of the Tripitaka and the Five Mings.
+Not only that, as a guru, one must also master the teachings of the Tripitaka and the five traditional monastic subjects.
 
-The ten studies of the Five Ming and Ming Dynasties include astronomy, geography, medicine, and technology, etc. In Tibet, the knowledge is in the monasteries, and the good teachers who understand the knowledge are also in the monasteries.
+The ten topics of the five traditional monastic subjects and Ming Dynasties include astronomy, geography, medicine, and craftsmanship, etc. In Tibet, this knowledge was held in the monasteries, and the good teachers who possess this knowledge were also in the monasteries.
 
 Therefore, during the winter and summer vacations, there are always many students who come to the monastery to study.
 
-If you are proficient in the Tripitaka, you will have deep knowledge; if you are proficient in all the Five Mings and Ten Learnings, you will have a broader range of knowledge.
+If you are proficient in the Tripitaka, you will have deep knowledge; if you are proficient in all the five traditional monastic subjects and Ten Learnings, you will have a broader range of knowledge.
 
 As a guru, the most important thing is to be proficient in the essentials of the Tripitaka.
 
-(5) Having the right view and the right view refers to the right view of the emptiness of the dependent origin, the right view of the person without the self, the right view of the law without the self, and so on.
+##### (5) Right View
+
+Having the right view refers to the right view of the emptiness of dependent origination, the right view of the person without the self, the right view of the law without the self, and so on.
 
 The sutra says: 
 
-"Virtues are more important than life, and right view is more important than morality.
+"Virtues are more important than life, and right view is more important than morality."
 
-"Without right view, it is impossible to have right faith, right thought, and right practice.
+Without right view, it is impossible to have right faith, right thought, and right practice.
 
 As a teacher, at the very least, you must understand emptiness, and it is better to realize emptiness. In this way, you have the right view of emptiness.
 
 43
 
-(6) Superior Morality and Ability
+##### (6) Superior Morality and Ability
 
- As a teacher, it is very important to surpass the disciple in virtue and ability.
+As a teacher, it is very important to surpass the disciple in virtue and ability.
 
-The Bodhisattva of Shiqin said in the "Collections of Relatives and Friends":
+The Bodhisattva Vasubandhu said in the "Collections of Relatives and Friends":
 
-Those who worship the inferior will degenerate, those who worship the same will not make progress, those who worship the superior will make progress, and those who worship the superior should be teachers.
+Those who worship the inferior will degenerate, 
 
-That is to say, if you worship a teacher whose morality is lower than your own, you will also degenerate; if you worship a teacher who is similar to you in all aspects, you will not make progress; only by worshiping a teacher can surpass your own teacher. , there will be progress.
+Those who worship the same will not make progress, 
+
+Those who worship the superior will make progress, 
+
+And those who worship the superior should be taken as teachers.
+
+That is to say, if you worship a teacher whose morality is lower than your own, you will also degenerate; if you worship a teacher who is similar to you in all aspects, you will not make progress; only by worshiping a teacher can you surpass your own level. Then there will be progress.
 
 Therefore, we should take refuge in a teacher whose virtues and talents are superior to our own.
 
-Not necessarily in some special cases.
+This is not necessarily in some special cases.
 
 For example, none of Tsongkhapa's teachers surpassed Tsongkhapa in virtue and talent. Later, these teachers worshiped Tsongkhapa as their guru.
 
-Master Tsongkhapa had more than forty teachers, the most outstanding is Master Rendawa.
+Master Tsongkhapa had more than forty teachers, and the most outstanding is Master Rendawa.
 
 When Master Tsongkhapa studied the five great treatises, most of the content was taught by Master Rendawa.
 
-At the end of each lecture, Master Rendawa asked Master Tsongkhapa. He found that Master Tsongkhapa understood differently from himself. Master Tsongkhapa had a deeper and broader understanding. This was the case every time. .
+At the end of each lecture, Master Rendawa questioned Master Tsongkhapa. He found that Master Tsongkhapa understood differently from himself. Master Tsongkhapa had a deeper and broader understanding. This was the case every time.
 
 44
 
-So after finishing the five great treatises, Master Rendawa worshipped Master Tsongkhapa as his teacher.
+So after finishing the five great treatises, Master Rendawa followed Master Tsongkhapa as his teacher.
 
-Several other masters of Master Tsongkhapa later worshiped Master Tsongkhapa as their masters. There is such a situation in Tibetan areas, if the disciples are good in virtue, knowledge and achievements, they will worship the disciples as masters.
+Several other teachers of Master Tsongkhapa later became students of Master Tsongkhapa and took him as their master. There is such a situation in Tibet, if the disciples are good in virtue, knowledge and achievements, a master will follow the disciples as masters.
 
 In general, the morality of the master must surpass that of the disciple.
 
-(7) Diligence and hard work
+##### (7) Diligence and hard work
 
- As a teacher, you must be diligent, study hard, and constantly improve yourself.
+As a teacher, you must be diligent, study hard, and constantly improve yourself.
 
 You must also be diligent in teaching your disciples, diligent in teaching the Dharma, diligent in practice, and diligent in all aspects.
 
-(8) To be good at expository
+##### (8) Skill in Instructing Disciples
 
- means to be fluent in teaching the scriptures and teaching the Dharma, so that you can speak freely and speak without hindrance.
+This means to be fluent in teaching the scriptures and teaching the Dharma, so that you can speak freely and without hindrance.
 
-The language should be able to express the content of the scriptures clearly and satisfaactorily.
+The language should be able to express the content of the scriptures clearly and satisfactorily.
 
-(9) Compassionate Guru
+##### (9) Compassionate Guru
 
  It is very important to have a compassionate mind, and it is a very necessary condition for the promotion of Buddhism.
 
 45
 
-A compassionate guru will affect the people around him, making people very relaxed physically and mentally, and they will be more receptive when teaching the Dharma, and the disciples will be more willing to get close to such a guru.
+A compassionate guru will affect the people around him, making people very relaxed physically and mentally, and they will be more receptive when hearing the Dharma, and the disciples will be more willing to follow such a guru.
 
 At the same time, because of his compassion for all beings, such a master will take the initiative to remove all kinds of obstacles when he propagates the Dharma, which is more conducive to the spread and promotion of the Dharma.
 
-(10) Be patient. 
+(10) Be patient. Abandoned Dispiritedness
 
-As a guru, you must be patient and not be annoying.
+As a guru, you must be patient and not get annoyed.
 
-Because disciples have different abilities, qualities, habits, etc., they may be asked repeatedly when they are just starting out, or in the process of learning and cultivation. The master must be patient and never tire of asking questions.
+Because every disciple has different abilities, qualities, habits, etc., they may ask the same questions over and over again when they are just starting out, or in the process of learning and cultivation. The master must be patient and never tire of answering questions or giving explanations.
 
 To be a Mahayana teacher who teaches sutras and Dharma, one must meet the above ten conditions.
 
-4. Requirements for a Tantric Guru: 
+#### 4. Requirements for a Tantric Guru: 
 
-A master of tantra empowerment needs to have many more conditions than a Mahayana master. At least thirteen conditions must be met: 
+There are many more requirements for a master of Tantra empowerments than those for a Mahayana master. At least thirteen conditions must be met: 
 
 Uphold the three righteousness; be full of wisdom; be patient; be upright; No fraud; understand medicine and mantra; have compassion; know scriptures and teachings; master double ten methods;
 
 46
 
-(1) Keeping the three righteousness
+##### (1) Protecting the Three Doors
 
- refers to the three righteousness of body, speech and mind.
+This refers to the three righteousnesses of body, speech and mind.
 
  And avoiding the following harmful actions:
 
@@ -1489,7 +1532,12 @@ No greed, No hatred, No wrong views.
 
 Righteousness of heart is righteousness of mind.
 
-(2) The wisdom of the tantric empowerment masters exceeds that of the Mahayana sutra masters. The ability to distinguish between good and evil must be very strong, and they must also have a very keen insight.
+##### (2) Thorough Knowledge of Reality
+
+The wisdom of the tantric empowerment masters exceeds that of the Mahayana sutra masters. The ability to distinguish between good and evil must be very strong, and they must also have a very keen insight.
+
+refers to a special training in 
+wisdom, the selflessness of phenomena
 
 (3) Tolerance: 
 
@@ -6608,7 +6656,7 @@ In the past, the Kadampa master Zhongdunpa and the great yogi Shayrawa saw what 
 
 In addition, the "Samadhi King Sutra" says: 
 
-"What kind of karma does one set up, and it should be like this." 
+"Whatever kind of karma one sets up, and it should be like this." 
 
 The Three Jewels are the most profound blessing fields in the world. Therefore, no matter how you respect the Three Jewels, you will feel the respect of all beings to you. , to gain the respect of others.
 
@@ -6657,7 +6705,7 @@ Only when a Buddha is born can there be a Buddha statue.
 
 Although it is a body image, it is my incarnation.
 
-That is to say, after the Buddha's Nirvana, offering offerings to the Buddha's image is no different from the merits of offering offerings to the Buddha's body when the Buddha was alive.
+That is to say, after the Buddha's Nirvana, making offerings to the Buddha's image is no different from the merits of making offerings to the Buddha's body when the Buddha was alive.
 
 (2) After taking refuge in the Three Jewels, you should think about the kindness of the Three Jewels more, and make offerings to the Three Jewels with the heart of repaying your kindness at all times.
 
@@ -6673,13 +6721,13 @@ In this way, eating is originally a consumption of blessings, but after making o
 
 You also need to persevere in making offerings, especially when you are not very good at making offerings, or the offerings are relatively poor.
 
-When the Kadampa Dade Puqiongwa made offerings to the Three Jewels, they could only offer spicy herbs at first, but gradually they were able to offer synthetic long incense, and later they were able to offer precious agarwood.
+When the Kadampa Dade Pu-chung-wa made offerings to the Three Jewels, they could only offer spicy herbs at first, but gradually they were able to offer synthetic long incense, and later they were able to offer precious agarwood.
 
 295
 
-It is said that later Master Pu Qiongwa used 22 taels of gold incense every time he prepared incense.
+It is said that later Master Buton Rinchen Drub used 22 taels of gold incense every time he prepared incense.
 
-We all have to learn from Master Pu Qiongwa. Even if the offerings are few and bad, as long as we persist in making offerings, we can gradually increase the blessings, get better offerings, and ultimately achieve great blessings.
+We all have to learn from Master Bu chungwa. Even if the offerings are few and bad, as long as we persist in making offerings, we can gradually increase the blessings, get better offerings, and ultimately achieve great blessings.
 
 If you feel that the offerings are not good and don’t make them, you will not be able to accumulate vast blessings, and you will only be a person with low blessings after reincarnation.
 
@@ -6693,11 +6741,11 @@ After making offerings with such a mentality, then dedicate the merits and virtu
 
 In the "Sutra of Judgment by King Ajatashi", there is a story about a poor girl who gave a lamp and received the prophecy of the Buddha. It shows that even if the offerings are small, but with great intentions, they can still get great results.
 
-One day, when the Buddha was in the Qijaburi Mountain in the country of Luoyueqi, King Ajataset invited the Buddha to have a meal. After the meal, the Buddha returned to the Jihuan Jingshe, and the famous doctor, the old woman, suggested lighting a lamp for offering to the Buddha.
+One day, when the Buddha was in the Qijaburi Mountain in the country of Luoyueqi, King Ajatashatru invited the Buddha to have a meal. After the meal, the Buddha returned to the Jihuan Jingshe, and the famous doctor, the old woman, suggested lighting a lamp for offering to the Buddha.
 
 296
 
-Therefore, King Ajataseth ordered ten thousand oil lamps to be lit from the gate of the palace to the Jihuan Jingshe where the Buddha lived. It was continuous and very spectacular.
+Therefore, King Ajatashatru ordered ten thousand oil lamps to be lit from the gate of the palace to the Jihuan Jingshe where the Buddha lived. It was continuous and very spectacular.
 
 At that time, there was a poor girl named Muni. Although she always wanted to make offerings to the Buddha, she was suffering from lack of money.
 
@@ -6705,11 +6753,11 @@ Using a copper coin from begging, he lit a small oil lamp in front of the Buddha
 
 The Muni girl knew that the lamp would be extinguished in the middle of the night, so she reverently made a vow to the Buddha: 
 
-"I wish to be able to do Buddhist deeds in all my lifetimes, and I ask the Buddha to be blessed with this lamp that will not burn out all night."
+"I wish to be able to do Buddhist deeds in all my lifetimes, and I ask the Buddha to bless this lamp that it will not burn out all night."
 
 After dawn, the Buddha asked the Venerable Muggallana to put out the oil lamp.
 
-The Venerable went to the lamp of the Muni girl, and it was extinguished three times, but the lamp could not be extinguished. After the extinction, the light still shone into the sky, illuminating the three thousand worlds.
+The Venerable Muggallana went to the lamp of the Muni girl, and tried to put it out three times, but the lamp could not be extinguished. After the extinction, the light still shone into the sky, illuminating the three thousand worlds.
 
 After seeing it, the Buddha said:
 
@@ -6717,7 +6765,7 @@ After seeing it, the Buddha said:
 
 When the Muni girl heard the Buddha's prophecy, she rejoiced in her heart and bowed to the Buddha.
 
-After hearing this, King Ajataseth asked the old woman, "I have done a lot of meritorious deeds, and the Muni girl only lit a lamp, but she was foretold by the Buddha. What is the reason?"
+After hearing this, King Ajatashatru asked the old woman, "I have done a lot of meritorious deeds, and the Muni girl only lit a lamp, but she was foretold by the Buddha. What is the reason?"
 
 297
 
@@ -6733,6 +6781,7 @@ After educating others to take refuge in the Three Jewels, you already know the 
 Do it as you can, and let it flow.
 
 Before doing anything by relying on the practice of the Three Jewels, you must pray for the blessings of the Three Jewels, which will gradually increase your confidence in the Three Jewels.
+
 For example, it is easy to succeed by making offerings to the seven branches before doing things, and then praying to the Three Jewels.
 
 Wherever you want to go, you must first worship three times in front of the Buddha statue, and then pray, so that wherever you go, it will be very auspicious.
@@ -6743,9 +6792,13 @@ The same is true for the lamas in the monastery. When they go far away, they sho
 
 In this way, not only will one's wishes come true, but it will also gradually strengthen the confidence in the Three Jewels, laying a solid foundation for future study.
 
-The practice method of contemplating the benefits of taking refuge In-depth contemplation of the eight merits and benefits of taking refuge mentioned later, and insisting on practicing the four refuges every day will also greatly increase the confidence in the guru and the Three Jewels.
+The practice method of contemplating the benefits of taking refuge 
 
-Vows to never give up the practice of taking refuge in the Three Jewels When we thoroughly understand the causes of taking refuge, the merits and benefits of taking refuge, and the various damages of not taking refuge in the guru and the Three Jewels in this life and the next life, we should never give up whatever happens in our hearts. Thoughts of the Three Jewels, and always make vows: as small as joking, as large as losing one's life, and never say anything about giving up and taking refuge.
+In-depth contemplation of the eight merits and benefits of taking refuge are mentioned later, and persisting in practicing the four refuges every day will also greatly increase the confidence in the guru and the Three Jewels.
+
+Vows to never give up the practice of taking refuge in the Three Jewels 
+
+When we thoroughly understand the causes of taking refuge, the merits and benefits of taking refuge, and the various damages of not taking refuge in the guru and the Three Jewels in this life and the next life, we should never give up whatever happens in our hearts. Thoughts of the Three Jewels, and always make vows: as small as joking, as large as losing one's life, and never say anything about giving up and taking refuge.
 
 299
 
@@ -6764,9 +6817,10 @@ The foundation of the precept of liberation is also taking refuge. If there is n
 After taking refuge in the merits of eliminating karma, the karma will be eliminated every day.
 300
 
-After taking refuge, you will become a Buddhist disciple. You will continue to receive the blessings of the Three Jewels of the Guru, and the blessings of Buddhas, Bodhisattvas, and Dharma Protectors. You will always eliminate karmic obstacles. Even if you recite the Buddha’s name of Buddha Shakyamuni once, you can eliminate karmic obstacles for tens of thousands of kalpas. .
+After taking refuge, you become a Buddhist practioner. You will continue to receive the blessings of the Three Jewels of the Guru, and the blessings of Buddhas, Bodhisattvas, and Dharma Protectors. You will always eliminate karmic obstacles. Even if you recite the Buddha’s name of Buddha Shakyamuni once, you can eliminate karmic obstacles for tens of thousands of kalpas. .
 
 After taking refuge in the Three Jewels, the merits and virtues of the Three Jewels are inconceivable, and the blessings obtained are also inconceivable, resulting in immeasurable blessings.
+
 In the Treatise on Receiving Paramita it says:
 
 The blessing of refuge is colored, and the three realms are still narrow.
@@ -6779,11 +6833,19 @@ The Buddha is the most extraordinary field of blessing. The root of goodness pla
 
 The Buddha said in the Great Compassion White Lotus Sutra:
 
-Ananda! As for the good roots born of the Buddha, they will attain the fruit of Nirvana even if they do not want them. I say that they will eventually attain Nirvana. In this way, the Buddha, World-Honored One, is born with a single thought, and the fruit of all their good roots is Nirvana, and I say that they will eventually attain Nirvana. "
+Ananda! As for the good roots born of the Buddha, they will attain the fruit of Nirvana even if they do not want them. 
+
+I say that they will eventually attain Nirvana. 
+
+In this way, the Buddha, World-Honored One, is born with a single thought, 
+
+and the fruit of all their good roots is Nirvana,
+
+and I say that they will eventually attain Nirvana. "
 
 301
 
-Here the Buddha said to Venerable Ananda that the roots of goodness planted by the Buddha, even if they did not initially attain the fruit of nirvana, will surely eventually become nirvana.
+Here the Buddha said to Venerable Ananda that the roots of goodness planted by the Buddha, even if they did not initially attain the fruit of nirvana, will surely eventually reach nirvana.
 
 Therefore, after taking refuge, when making offerings to Buddhas and Bodhisattvas, or after reciting scriptures and practicing the Dharma, when devotion is made, the devotion to bad and unfinished merits and blessings will not circulate at will, and will eventually return to Buddhahood.
 
@@ -6807,15 +6869,15 @@ Among the Four Refugees, one sentence of taking refuge in the guru means taking 
 
 For example, in our lineage, from Buddha Shakyamuni to the present, there are a total of forty-six generations. One sentence of "taking refuge in the guru" means taking refuge in forty-six masters, including the Buddha. Many Buddhas and Bodhisattvas.
 
-Similarly, taking refuge in a Buddha does not mean taking refuge in one or two Buddhas, but taking refuge in all the Buddhas in the ten directions and three times, including a certain Buddha who has a deep relationship with us.
+Similarly, taking refuge in a Buddha does not mean taking refuge in one or two Buddhas, but taking refuge in all the Buddhas of the ten directions and three times, including a certain Buddha who has a deep relationship with us.
 
 Taking refuge in the Dharma means taking refuge in 84,000 dharmas, including all the teachings and dharmas handed down by the Buddha.
 
-Taking refuge as a monk means taking refuge in all the bodhisattvas and arahants from one place to ten places, as well as the transcendent Dharma protectors, which naturally include the bodhisattvas and Dharma protectors who have a special predestined relationship with us.
+Taking refuge as a monk means taking refuge in all the bodhisattvas and arhats from one place to ten places, as well as the transcendent Dharma protectors, which naturally include the bodhisattvas and Dharma protectors who have a special predestined relationship with us.
 
 303
 
-As soon as we recite the Four Refugees, the Three Jewels will come to rescue us. Those Buddhas, Bodhisattvas and Dharma protectors who are related to us will come in an instant because of their karma.
+As soon as we recite the Four Refuges, the Three Jewels will come to rescue us. Those Buddhas, Bodhisattvas and Dharma protectors who are related to us will come in an instant because of their karma.
 
 So, after taking refuge, you will be protected by all these gurus, Buddhas, Bodhisattvas, and Dharma protectors, and you will not suffer any harm.
 
@@ -6824,18 +6886,27 @@ After taking refuge, if you always sincerely respect the Three Jewels and ask fo
 
 Although the degree of confidence is different and the blessings produced are different, the blessings will gradually increase, and doing things will become easier and easier. Therefore, the biggest method of accumulating blessings is to recite the Four Refugees.
 
-The Buddha said in the "Guangzhou Game Sutra": "A person who is blessed can achieve everything."
+The Buddha said in the "Guangzhou Game Sutra": 
 
-Venerable Milarepa's previous life, Kadampa's great virtue Chachacha also said: "If you have a normal heart of taking refuge, you will first be rewarded in this life, everything will be successful, and then at the end of your life, you will receive auspicious signs. ."
+"A person who is blessed can achieve everything."
 
-Quick Achievement 304
+Venerable Milarepa's previous life, Kadampa's great virtue Chachacha also said: 
+
+"If you have a normal heart of taking refuge, you will first be rewarded in this life, everything will be successful, and then at the end of your life, you will receive auspicious signs. ."
+
+Quick Achievement 
+
+304
+
 Before taking refuge, all aspects of practice are much worse than after taking refuge. Not to mention, there are the same differences as heaven and earth in terms of accumulating merit and eliminating karma. Therefore, after taking refuge, the achievement of studies will be faster.
 
-For the practice of the Four Refugees, please refer to Treasures of the Dharma Sea II.
+For the practice of the Four Refuges, please refer to Treasures of the Dharma Sea II.
 
 305
 
-Section 4 Karma takes refuge in the Three Jewels of the Guru. Although you won't fall into the three evil realms, you still need to respect Karma.
+Section 4 Karma takes refuge in the Three Jewels of the Guru. 
+
+Although you won't fall into the three evil realms, you still need to respect Karma.
 
 If you don’t respect cause and effect, don’t know how to restrain yourself, and create karma indiscriminately, you will still suffer in the three evil realms.
 
@@ -6881,15 +6952,25 @@ Now think about our motivation when we do good deeds, not to mention the Bodhici
 
 The first thing that comes to mind is usually to hope for wealth, peace, etc. in this life, or to say "return to the great Bodhi", but in my mind I still hope to be rich in this life, all of which are covetous for the happiness of this life. Liberation is not helpful.
 
-"Secret Continuation" says: "Don't be greedy for the results of this life. If you only pin your hopes on this life, it will not benefit the next life, but if you hope for the consummation of the next life, the results of this life will be extensive and abundant."
+"Secret Continuation" says: 
 
-Master Chung Dunpa asked Venerable Atisha: "If you do your karma for the sake of happiness, benefit, and respect in this life, what is the result of it?"
+"Don't be greedy for the results of this life. If you only pin your hopes on this life, it will not benefit the next life, but if you hope for the consummation of the next life, the results of this life will be extensive and abundant."
 
-The Venerable replied: "The reward is to get that."
+Master Chung Dunpa asked Venerable Atisha: 
 
-Then he asked, "What about the future?"
+"If you do your karma for the sake of happiness, benefit, and respect in this life, what is the result of it?"
 
-The Venerable said: "Hell, hungry ghosts, beasts!"
+The Venerable replied: 
+
+"The reward is to get that."
+
+Then he asked, 
+
+"What about the future?"
+
+The Venerable said: 
+
+"Hell, hungry ghosts, beasts!"
 
 The Venerable also said, like plants, if the root is poison, the branches and leaves are poison, and if the root is medicine, the branches and leaves are also medicine.
 
@@ -6903,15 +6984,19 @@ For example, one is lazy when studying, and when chanting sutras, one is either 
 
 At the end of the line, the devotion to the wish is similar to that of the heart, both of which are to fulfill the wishes of this life.
 
-Therefore, we think that we have done a lot of good karma, but in fact it is not necessarily.
+Therefore, we think that we have generated a lot of good karma, but it is not necessarily so.
 
 In this way, for the sake of future generations, it is not enough to just ask the Three Jewels for help. You must also listen to the teachings of the Guru and the Three Jewels and do what they say.
 
 In the Collection of Judgments and Sentences it says:
 
-The Buddhas do not wash off sins with water, nor do they remove all sufferings with their hands.
+The Buddhas do not wash off sins with water, 
 
-Unless you transfer the evidence to him, the truth of the Dharma will lead to liberation.
+nor do they remove all sufferings with their hands.
+
+Unless you transfer the evidence to him, 
+
+the truth of the Dharma will lead to liberation.
 
 It means that the Buddha's compassion is the greatest. If the Buddha can wash away our sins and obstacles with water, or he can rescue us from samsara with his hands, or if the Buddha can give us his fruits, then The Buddha has done this a long time ago, so we don't have to suffer from samsara.
 
@@ -6921,7 +7006,7 @@ Therefore, we must realize that: in order not to fall into the evil path, we mus
 
 1. Recognize cause and effect.
 
- Everything has a cause and effect.
+Everything has a cause and effect.
 
 For example, being able to have a cup of water to drink is because of the blessing of drinking this cup of water, this is the cause.
 
@@ -6931,11 +7016,17 @@ To respect cause and effect, we must recognize cause and effect, and we must rec
 
 It is necessary to recognize the four aspects of karma: the inevitability of karma, strong proliferation, non-retribution, and indestructibility.
 
-(1) The inevitability of karmic retribution Nagarjuna Bodhisattva said in the "Bao Ga Lun":
+(1) The inevitability of karmic retribution 
 
-Unwholesome feelings, all sufferings, like these evil realms;
+Nagarjuna Bodhisattva said in the "Bao Ga Lun":
 
-Feeling all pleasures, all living beings are happy.
+Unwholesome feelings, 
+
+all sufferings, like these evil realms;
+
+Feeling all pleasures, 
+
+all living beings are happy.
 
 The general law of cause and effect is that good karma leads to happy fruit, and bad karma leads to bitter fruit.
 
@@ -6943,7 +7034,9 @@ The general law of cause and effect is that good karma leads to happy fruit, and
 
 Although the operation of cause and effect is extremely subtle, there is no confusion at all.
 
-What is the inevitability of karma? The inevitability of karma is: Good will be rewarded with good, evil will be rewarded with evil, and the results of good and evil will not be wrong.
+What is the inevitability of karma? The inevitability of karma is: 
+
+Good will be rewarded with good, evil will be rewarded with evil, and the results of good and evil will not be wrong.
 
 If you plant beans, you will never produce wheat; if you plant wheat, you will produce wheat, but you will never produce beans; if you plant poison, you will be poison, and if you plant medicine, it will be medicine.
 
@@ -6953,26 +7046,34 @@ This is very important: what kind of karma is created, what kind of results are 
 
 For example, if we respect others, others will respect us; if we scold others, they will scold us in turn.
 
-Giving will bring wealth; releasing life will bring longevity, because releasing life is to save the lives of other beings, so the result will be longevity; killing life will be short-lived, because killing will damage the lives of other beings, so it will be short-lived; stealing will definitely lead to poverty ; Provocation will be alienated by relatives and friends.
+Giving will bring wealth; releasing life will bring longevity, because releasing life is to save the lives of other beings, so the result will be longevity; killing life will be short-lived, because killing will damage the lives of other beings, so it will be short-lived; stealing will definitely lead to poverty; Provocation will be alienated by relatives and friends.
 
 Once you understand the inevitability of karma, you will naturally understand many causal phenomena.
 
 You will understand that your pain is the result of your previous karma.
 
-Therefore, we must face it calmly, and do not generate hatred and cause greater evil karma.
+Therefore, we must face it calmly, and not generate hatred and cause greater evil karma.
 
 311
 
-(2) Strong proliferation of karma There are six aspects of strong proliferation of karma: strong proliferation of the essence of karma, strong proliferation of intentional consciousness, strong proliferation of karmic objects, and strong proliferation of karma maker's identity Sex, the strong proliferation of karma time, and the strong proliferation of individual good dharmas.
+(2) Strong proliferation of karma 
 
-The strong proliferative nature of the essence of karma The strong proliferative nature of the essence of karma is: even a small bad karma, when the retribution comes out, it will grow to a great size, and can harm a person for life after life; a small good karma Karma, when the good fruits appear, the blessings will be immeasurable and boundless.
+There are six aspects of strong proliferation of karma: strong proliferation of the essence of karma, strong proliferation of intentional consciousness, strong proliferation of karmic objects, and strong proliferation of karma maker's identity Sex, the strong proliferation of karma time, and the strong proliferation of individual good dharmas.
+
+The strong proliferative nature of the essence of karma 
+
+The strong proliferative nature of the essence of karma is: even a small bad karma, when the retribution comes out, it will grow to a great size, and can harm a person for life after life; a small good karma Karma, when the good fruits appear, the blessings will be immeasurable and boundless.
+
+
 This is the general law of the nature of cause and effect, just like a small fire that burns up will eventually burn down the entire forest.
 
 For example, King Ashoka, when the Buddha was alive, King Ashoka's previous life was still a child of an ordinary family.
 
 One day, the Buddha and Venerable Ananda met this child on the road. He was very happy when he saw the Buddha, but he had nothing to support him, so he grabbed a handful of soil on the ground and offered it to Shakyamuni Buddha as food.
 
-The Buddha said to Venerable Ananda, "Put this soil back in a bowl and apply it to the wall of the lonely garden. This child will be a king who will rule the world in the future.
+The Buddha said to Venerable Ananda, 
+
+"Put this soil back in a bowl and apply it to the wall of the lonely garden. This child will be a king who will rule the world in the future.
 
 312
 
@@ -6986,7 +7087,9 @@ Negative karma also grows substantially in nature.
 
 Nagarjuna lived for 600 years. When Nagarjuna was more than 400 years old, there was a king in India called King Lexing, who often did things for Nagarjuna.
 
-He vowed: "How long is Nagarjuna Bodhisattva's lifespan, my lifespan will be as long as Nagarjuna Bodhisattva, and on the day Nagarjuna Bodhisattva passes away, I will also follow the Bodhisattva to die.
+He vowed: 
+
+"How long is Nagarjuna Bodhisattva's lifespan, my lifespan will be as long as Nagarjuna Bodhisattva, and on the day Nagarjuna Bodhisattva passes away, I will also follow the Bodhisattva to die.
 
 "I made a vow to never leave my teacher, and after I made this vow, King Lexing lived for more than a hundred years before he died.
 
@@ -6994,13 +7097,17 @@ At that time, Nagarjuna Bodhisattva took many precious classics from the Dragon 
 
 However, no matter what you do, the king will not die.
 
-Later, his mother said to him: "Your father vowed to protect Nagarjuna Bodhisattva and live as long as Nagarjuna Bodhisattva. If Nagarjuna Bodhisattva passed away, your father would not die.
+Later, his mother said to him: 
+
+"Your father vowed to protect Nagarjuna Bodhisattva and live as long as Nagarjuna Bodhisattva. If Nagarjuna Bodhisattva passed away, your father would not die.
 
 "The prince came to Nagarjuna Bodhisattva and said that he had unfortunately suffered from a disease that requires a human brain to heal, and asked the Bodhisattva to donate his head.
 
 313
 
-Nagarjuna Bodhisattva naturally understood the reason for this, but he thought: "The Buddha has given his body countless times in the past, and now I am in such a situation. In order to save all sentient beings, I should also fulfill his wish." accepted.
+Nagarjuna Bodhisattva naturally understood the reason for this, but he thought: 
+
+"The Buddha has given his body countless times in the past, and now I am in such a situation. In order to save all sentient beings, I should also fulfill his wish." So he accepted.
 
 So the prince swung his sword and chopped off Nagarjuna's head, but it was like cutting the air, and he couldn't hurt Nagarjuna at all. Nagarjuna told him, "I have completely purified the consequences of weapon damage five hundred lifetimes ago, so the weapon can't hurt me.
 
@@ -7027,6 +7134,7 @@ Although he is a bodhisattva of high rank, he has passed away because of his pre
 Shows how terrible the growth of bad karma is.
 
 The strong proliferative nature of the mind-generating consciousness depends on the subjective consciousness. The karma-generating mind or motives are different, and the results are also very different.
+
 If you do a little thing with compassion and bodhicitta, the good retribution will be very, very large. This is good karma. If you do a little thing with great anger, hatred, greed, hatred, and delusion, the retribution will be very large in the future. Bad karma.
 
 In terms of motivation, the growth of good and evil karma is the same.
@@ -7050,14 +7158,16 @@ Giving a dollar to the poor with bodhicitta, the future retribution will be inco
 The size of the highly proliferative result of the karma object depends on the karma object.
 If the object of karma is one's mentor, parents, or Buddha or Bodhisattva, these are all benefactors.
 
-Parents are the benefactors who nurture ourselves, and teachers, Buddhas and Bodhisattvas are the benefactors who rescue us from samsara, from suffering and attain happiness.
+Parents are the benefactors who nurture us, and teachers, Buddhas and Bodhisattvas are the benefactors who rescue us from samsara, from suffering and attain happiness.
 
 If you do good deeds to these objects, the good reward will be great; if you do evil deeds, the evil reward will be great.
 
 This is the strong proliferation of the objects of karma.
 
-The strong proliferative nature of the identity of the builder Sometimes, the identities of the makers are different, and the size of the retribution is also different.
-Those who have not received ordinances, such as those who have just taken refuge but have not yet received ordinances, are compared with those who have received the five precepts. Those who take the five precepts create a little bad karma, and the karma will be very large; on the contrary, if they create a little good karma, The good news is also very big.
+The strong proliferative nature of the identity of the builder 
+
+Sometimes, the identities of the makers are different, and the size of the retribution is also different.
+Those who have not received ordination, such as those who have just taken refuge but have not yet received ordination, are compared with those who have taken the five precepts. Those who take the five precepts create a little bad karma, and the karma will be very large; on the contrary, if they create a little good karma, The good news is also very big.
 
 316
 
@@ -7065,7 +7175,7 @@ The retribution of karma is different, and the retribution of those who are orda
 
 Among those who are ordained, the results are also different.
 
-A person who takes the novice precepts, even if he does a little bit of bad karma, will get more bad karma than a person who takes the five precepts. Similarly, if he does a little bit of good karma, the good karma will be greater than those who take the five precepts.
+A person who takes the novice vows, even if he does a little bit of bad karma, will get more bad karma than a person who has not taken the five vows. Similarly, if he does a little bit of good karma, the good karma will be greater than those who take the five precepts.
 
 By analogy, those who take the monk ordination are greater than those who take the novice vows, those who take the bodhisattva vows are greater than those who take the monk ordinance, and those who take the tantric vows are greater than those who take the bodhisattva vows.
 
@@ -7084,7 +7194,9 @@ The strong proliferative nature of karmic time is divided into two parts here.
 
 This is easy to understand. Whether it is good karma or bad karma, long-term and continuous karma will definitely result in greater rewards than short-term karma.
 
-(2) The strong proliferative nature of the karma dates. Compared with normal karma, the increase in the results of karma on certain dates is different.
+(2) The strong proliferative nature of the karma dates. 
+
+Compared with normal karma, the increase in the results of karma on certain dates is different.
 
 The karma created in ordinary time is different from the karma created in the first and fifteenth day of the new year.
 
@@ -7123,19 +7235,26 @@ In general, these are auspicious days, and on these special days, the results of
 If you do evil, the reward for evil will be great; if you do good, the reward for good will be great.
 
 The strong proliferation of individual good dharmas, some good dharmas have some unique laws, and we must understand and master them.
-(1) Strong proliferation in a special period In the age of the end of the Dharma, the merits of taking a certain precept and keeping it for one day are far better than the merits of keeping the whole precepts and keeping the precepts for a long time in the age of perfection.
 
-(2) Strong proliferation in special regions 319
+(1) Strong proliferation in a special period 
+
+In the age of the end of the Dharma, the merits of taking a certain precept and keeping it for one day are far better than the merits of keeping the whole precepts and keeping the precepts for a long time in the age of perfection.
+
+(2) Strong proliferation in special regions 
+
+319
 
 In the Saha world of the age of the end of the Dharma, the merits and virtues of practicing good deeds for a moment are far better than the merits and virtues of practicing good deeds in the pure land of Buddhas and Bodhisattvas for many kalpas.
 
 We are now in the Saha world of the end of the Dharma era.
 
-(3) The strong proliferation of special methods In the secret method, there are many convenient methods that can increase merit.
+(3) The strong proliferation of special methods 
+
+In the secret method, there are many convenient methods that can increase merit.
 
 For example, in daily recitation, if you recite the mantra for increasing merit seven times every morning, the merit of that day can be increased by tens of thousands of times.
 
-Recite the rosary blessing mantra seven times, blow the rosary, and recite the rosary once is equivalent to reciting it a hundred times.
+Recite the rosary blessing mantra seven times, then blowing on the rosary, and reciting the rosary once is equivalent to reciting it a hundred times.
 
 Tantra also has special practice methods such as language blessing, and the merits increase even more.
 
@@ -7145,7 +7264,9 @@ Merit increasing mantras and blessings are all special ways to increase merit.
 
 The above is the strong proliferation of individual good dharmas.
 
-(3) Non-retribution of karmic retribution If you do not do evil karma, you will not have bad retribution, and if you do not do good karma, you will not have good retribution.
+(3) Non-retribution of karmic retribution 
+
+If you do not do evil karma, you will not have bad retribution, and if you do not do good karma, you will not have good retribution.
 
 Likewise, there will be no wealth without giving, and there will be no cause for health and longevity without release.
 
@@ -7153,21 +7274,24 @@ Likewise, there will be no wealth without giving, and there will be no cause for
 
 "Don't do non-retribution" also reminds us that we must be diligent in studying Buddhism.
 
-Although there will be no evil retribution if we do not do evil karma, who will give us good retribution if we do not do good karma? Patriarchs and great virtues are achieved only through hard practice, and nothing is gained for nothing.
+Although there will be no evil retribution if we do not do evil karma, who will give us good retribution if we do not do good karma? 
 
-If you don’t work hard, no matter how much blessings Buddhas and Bodhisattvas do, it’s useless. If Bodhi can be given, the Buddha would have given it to all sentient beings long ago.
+Patriarchs and great virtues are achieved only through hard practice, and nothing is gained for nothing.
+
+If you don’t work hard, no matter how many blessings Buddhas and Bodhisattvas send, it’s useless. If enlightenment could be given, the Buddha would have given it to all sentient beings long ago.
 
 Therefore, one should diligently practice and sow good causes, so as to reap the corresponding merits.
 
 (4) The incorrupt nature of doing karma means that the karma that has been done will not be eliminated on its own.
 
-Evil karma must be eliminated through repentance and chanting scriptures. Otherwise, the karma will disappear on its own unless the karma comes out and the karma ends.
+Evil karma must be eliminated through repentance and chanting scriptures. Otherwise, the karma will not disappear on its own unless the karma comes out and the karma ends.
 
-The same is true of good karma. If you do good deeds, if there is no anger and jealousy, the good karma will not disappear.
+The same is true of good karma. If you do good deeds, if there is no anger or jealousy, the good karma will not disappear.
 
 Then, what kind of state is the non-degenerate nature of karma?
 
 In the Buddhist scriptures on the retribution of birth and fruit of fate, it says:
+
 The karma created by sentient beings will not be destroyed for a hundred kalpas.
 
 That is to say, the good and bad karma we create will not be destroyed even after a hundred kalpas, until the karma is established, the result will appear.
@@ -7176,11 +7300,11 @@ The combination of karma will bring forth the result.
 
 Good and evil karma is the cause; karma is the factor that is conducive to the maturity of the cause and the resultant result, such as a specific person, thing, environment, condition, etc.
 
-When planting wheat, the seed is the cause; soil, watering, and spraying medicine are the primary and secondary factors.
+When planting wheat, the seed is the cause; soil, watering, and spreading fertilizer are the primary and secondary factors.
 
 We all know that seeds must be planted in order to germinate. If the seeds are not planted in the soil, or if they are planted, but not watered, fertilized, or sprayed, the seeds will either not germinate, or will not bear fruit.
 
-The same is true of karma. If there is no condition, the cause will not work. When the condition arrives, the cause and condition are combined, and the result will come out.
+The same is true of karma. If there is no condition, the cause will not work. When the condition arrives, the cause and the condition are combined, and the result will arise.
 
 The cause of making a fortune is generosity, and the predestined relationship is to encounter a good business or project.
 
@@ -7194,17 +7318,17 @@ In addition, people who do not have good fortune will ask questions even if they
 
 question.
 
-Therefore, you should always do good deeds, accumulate blessings, and accumulate more blessings. In this way, whatever kind of fate you encounter is a good thing, and you can bear it.
+Therefore, you should always do good deeds, accumulate more and more blessings. In this way, whatever kind of fate you encounter is a good thing, and you can bear it.
 
 The reason for good health is to recite sutras well, to release animals frequently, and not to kill.
 
 The fate is to take medicine, see a doctor in time, and pay more attention in life.
 
-If there is no healthy cause, the health is not good, no matter how good a doctor is, it may not be able to cure it.
+If there is no healthy cause, and your health is not good, no matter how good a doctor is, they may not be able to cure you.
 
 The good and bad karma created by the continuous circulation of predestination has not yet arrived. Those who hold a mind-only view believe that it is hidden in the alaya consciousness and will not disappear on its own, but will always wait for the appearance of karma.
 
-The Madhyamika school believes that the nature of karma is that it is not corrupt, that it is not preserved in the alaya consciousness, and that it will not be destroyed.
+The Madhyamika school believes that the nature of karma is that it is not corrupt, that it is not preserved in the alaya consciousness, and that it cannot be destroyed.
 
 Yuecheng Bodhisattva said in "Entering the Middle Treatise":
 
@@ -7222,13 +7346,13 @@ There is a way to delay the appearance of bad karma, which is to prevent the kar
 
 It's like putting a seed in a dry place and blocking the connection between water and soil, it won't germinate.
 
-For example, the cause of health is to save the lives of all sentient beings, so we release more animals and have a variety of good causes.
+For example, the cause of health is to save the lives of all sentient beings, so we release more animals and help a variety of good causes.
 
 However, we don’t know how much killing karma we have done before. Therefore, in order to delay the evil retribution of illness, we must pay more attention to the conditions that affect our health while planting good causes.
 
 For example, do not eat unclean things, do not go to disease-prone areas, and do not go to places where the soil and water are unacceptable. Take medicine when it is time to take medicine.
 
-Be careful what you do and you won't be unhealthy.
+Be careful about what you do and you won't be unhealthy.
 
 Delaying the appearance of evil retribution will prolong the time of repentance, and finally, karma can only be completely eliminated through repentance.
 
@@ -7236,9 +7360,13 @@ Delaying the appearance of evil retribution will prolong the time of repentance,
 
 2. The Ten Ways of Karma
 
- We have already understood the essential characteristics of karma and the importance of cause and effect, but we still do not necessarily understand what is good karma and what is bad karma, because cause and effect are very subtle, so how do we determine in the future Is what you do good karma? According to the "Kusa Lun":
+We have already understood the essential characteristics of karma and the importance of cause and effect, but we still do not necessarily understand what is good karma and what is bad karma, because cause and effect are very subtle, so how do we determine in the future Is what you do good karma? According to the "Kusa Lun":
 
-Taking a picture of it is rough, good and bad are as appropriate, and it is said to be the ten ways of karma.
+Taking a picture of it is rough, 
+
+good and bad are as appropriate, 
+
+and it is said to be the ten ways of karma.
 
 That is to say, the relatively obvious good and bad karma can be summarized into ten types, called the ten karma paths, including the ten good karma and the ten evil karma.
 
@@ -7246,7 +7374,13 @@ Since our words and deeds in the world are also included in the ten karma, it is
 
 On the other hand, the "Entrance to the Middle" says:
 
-If all the different births and all the words are born, if all the self-reliance and realization of Bodhi, and all the Buddha's sons are determined to win, the reason for the increase of the superior birth is not the remainder.
+If all the different births and all the words are born, 
+
+if all the self-reliance and realization of Bodhi, 
+
+and all the Buddha's sons are determined to win, 
+
+the reason for the increase of the superior birth is not the remainder.
 
 The ten good deeds in the ten karma are also called the ten good precepts.
 
@@ -7260,7 +7394,9 @@ Therefore, learning the ten ways of karma is very important for correctly unders
 
 It is also more conducive to cutting off bad karma, eliminating karmic obstacles, and accumulating merit.
 
-The ten good deeds are: no killing, no stealing, no sexual misconduct, no lying, no double tongue, no evil speech, no flattery, no greed, no hatred, and no wrong views.
+The ten good deeds are: 
+
+no killing, no stealing, no sexual misconduct, no lying, no double tongue, no evil speech, no flattery, no greed, no hatred, and no wrong views.
 
 The opposite of the ten good karma is the ten evil karma, which are: killing, stealing, sexual misconduct, lying, gossip, bad speech, flattery, greed, hatred, and wrong views.
 
@@ -7277,7 +7413,9 @@ In addition, there is no difference between letting others kill and committing s
 
 It is stated in the Kosher:
 
-If the military and other colleagues are colleagues, they are all like authors.
+If the military and other colleagues are colleagues, 
+
+they are all like authors.
 
 That is to say, like the army, because they have to obey the military orders and kill the enemy together, everyone's killing karma is the same, and even if one kills, the others will have the same retribution.
 
@@ -7305,7 +7443,7 @@ The effect of killing also depends on the motive at that time.
 
 Different motives bring different results.
 
-Killing is all because of greed, hatred, and delusion, some are because of greed, such as greed for the flesh, skin, horns, bones, etc. of animals; some are because of anger, hatred, and hatred of certain animals; In order to make offerings to certain gods, many cattle and sheep were killedand sacrificed.
+Killing is all because of greed, hatred, and delusion, some are because of greed, such as greed for the flesh, skin, horns, bones, etc. of animals; some are because of anger, hatred, and hatred of certain animals; In order to make offerings to certain gods, many cattle and sheep were killed and sacrificed.
 
 327
 
@@ -7319,11 +7457,15 @@ The result of not killing is health and longevity, increased blessings, and incr
 
 So, from now on, let's stop killing.
 
-If you want to avoid killing, you must first have the idea of ​​releasing life in your heart, and make a vow in your heart: "From today, I will treat all beings in the six realms with compassion and not kill any being."
+If you want to avoid killing, you must first have the idea of ​​releasing life in your heart, and make a vow in your heart: 
+
+"From today, I will treat all beings in the six realms with compassion and not kill any being."
 
 If you do this constantly, your thoughts will gradually change.
 
-The Effect of Stealing: Stealing is stealing what belongs to the Lord.
+The Effect of Stealing: 
+
+Stealing is stealing what belongs to the Lord.
 If it is unowned, it is not considered theft.
 
 Serious theft is stealing the property of the Three Treasures, or stealing valuables; moderate theft is stealing from the poor; petty theft is stealing small money, lack of business, and so on.
@@ -7336,7 +7478,7 @@ Because stealing cuts off the cause of making a fortune, wisdom, conditions and 
 
 If there is no cause, the cause will not work, so there will be poverty.
 
-For example, even though some people work very hard, have good conditions in all aspects of work, and are wise, they are still very poor and have a hard life. This is probably because there is no reason for getting rich, but only because of poverty.
+For example, even though some people work very hard, have good conditions in all aspects of work, and are wise, they are still very poor and have a hard life. This is probably because there is no reason for getting rich, but only causes of poverty.
 
 It may be that you stole something in a previous life. If you want to make a fortune in this life, you must first repent of your previous karma, and then do wealth and generosity.
 
@@ -7362,11 +7504,11 @@ Serious adultery will go to hell.
 
 A moderate level of sexual misconduct will fall into the realm of hungry ghosts in future generations. For example, the target of sexual misconduct is someone who has a relationship with him within three generations; or sexual misconduct after marriage; or a husband and wife act in front of a Buddha statue, 
 
-A Buddha statue is not placed in the bedroom. This is the reason.
+A Buddha statue is not to be placed in the bedroom. This is the reason.
 
 A small licentiousness will fall into the realm of beasts.
 
-People who are wicked will consume the blessings quickly, and then gradually they will become ugly, ugly, and their bodies will stink; the living environment will be bad and dirty, and there will be a lot of muddy sewage. These are the results of wickedness.
+People who are wicked will consume the blessings quickly, and then gradually they will become ugly, and their bodies will stink; the living environment will be bad and dirty, and there will be a lot of muddy sewage. These are the results of wickedness.
 
 Abstaining from sexual immorality is also called the holy life. Such a person will be very beautiful, the body will naturally emit fragrance, the family will be happy, the husband and wife will be harmonious, and the children will be happy.
 
@@ -7405,27 +7547,29 @@ It is necessary to endure peacefully, and after the retribution is over, the kar
 The result of not telling lies is that you will be trusted by everyone and praised by others, and you will be very kind.
 
 The consequences of lying is to sow discord.
+
 The more serious duplicity is in the monastery, when talking among the Sangha to instigate dissension, don't underestimate this verbal karma. This kind of karma is very easy to create, so be very careful.
 
 Others sow out the relationship between family members.
 
-For example, saying in front of the master, "Master, this disciple is not sincere and unbelieving in you..." to provoke the relationship between the master and the disciple.
+For example, saying in front of the master, "Master, this disciple is not sincere and unbelieving in you..." to poison the relationship between the master and the disciple.
 
-Then, he went to the disciple and said, "Your master doesn't care about you, it's not good for you..." to provoke the relationship between the disciple and the master.
+Then, he went to the disciple and said, "Your master doesn't care about you, it's not good for you..." to poison the relationship between the disciple and the master.
 
-The consequences of doing so will be tragic, it will lead to the betrayal of relatives and friends, and when you are old, you will be ignored, your own children will not be cared for, and you will die alone.
+The consequences of doing so will be tragic, it will lead to the betrayal of relatives and friends, and when you are old, you will be ignored, your own children will not take care of you, and you will die alone.
 
 You need to be very, very careful about this kind of sowing discord, and it is easy for lay people to create this kind of karma.
 
 The general level of lying is the words that are said between husband and wife and friends to sow discord.
 
-The retribution is to cause relatives and friends to stay away or to fight and discord. People around you cannot live in harmony and choose to live in places with uneven terrain.
+The retribution is to cause relatives and friends to stay away or to fight and quarrel. People around you cannot live in harmony and choose to live in places with uneven terrain.
 
 332
 
 The result of not talking twice is that you will have more and more friends, and you will be liked by more and more people. Everyone believes in whatever you say, and you will be respected by your family and subordinates, and it will be easy to achieve your career.
 
 The consequences of evil speech is to curse people.
+
 If you scold Buddhas, Bodhisattvas and teachers, the result in the next life will be going to hell. This is a very serious slander.
 
 If you scold your parents, it is also a huge karma, and there will be very painful consequences.
@@ -7509,9 +7653,9 @@ Anger means losing your temper and getting angry, and anger can easily eliminate
 
 People with great amounts of anger usually go to hell.
 
-For example, if you are angry with a Buddha or Bodhisattva, if you are angry with a Bodhisattva who has come to earth, the blessings accumulated over a hundred kalpas will be eliminated in an instant, and you will go to hell in the next life, and you will stay in hell for a hundred kalpas. If the opponent is a bodhisattva of eight or more lands, the blessings of a thousand kalpas will be eliminated at once, and you will spend a thousand kalpas in hell; if you are angry with ordinary bodhisattvas, the blessings of one kalpa will be eliminated, and you will stay in hell.
+For example, if you are angry with a Buddha or Bodhisattva, if you are angry with a Bodhisattva who has come to earth, the blessings accumulated over a hundred kalpas will be eliminated in an instant, and you will go to hell in the next life, and you will stay in hell for a hundred kalpas. If the opponent is a bodhisattva of the eight bhumi or more, the blessings of a thousand kalpas will be eliminated at once, and you will spend a thousand kalpas in hell; if you are angry with ordinary bodhisattvas, the blessings of one kalpa will be eliminated, and you will stay in hell.
 
-Therefore, we must never be angry with Buddhas and Bodhisattvas, because we do not know who Bodhisattvas are, so it is easy to create such bad karma.
+Therefore, we must never be angry with Buddhas and Bodhisattvas, because we do not know who is a Bodhisattvas or not, so it is easy to create such bad karma.
 
 336
 
@@ -7525,9 +7669,9 @@ In addition to the blessings that have been dedicated and the blessings of empti
 
 Anger not only destroys good fortune, but also leads to internal poison, which leads to aging and ugliness.
 
-Western scientists have studied that when a person is angry, collects his breath and breathes on a mouse, the mouse will die immediately, showing that angry people even have poisonous breath.
+Western scientists have studied that when a person is angry, if he collects his breath and breathes on a mouse, the mouse will die immediately, showing that angry people even have poisonous breath.
 
-A very beautiful person, if he loses his temper every day and always has anger on his face, will easily become ugly and will grow old very quickly. It is because of anger that produces internal poison.
+A very beautiful person, if he loses his temper every day and always has anger on his face, will easily become ugly and will grow old very quickly. It is because the anger produces internal poison.
 
 When anger arises, thoughts of harm often arise along with it. For example, when you are angry, you may feel anger in your heart and hope that the other person will die.
 
@@ -7535,15 +7679,15 @@ Therefore, it will inspire the troubles of being hurt by others, and often feel 
 
 Also, we all know that if someone is angry, the people around them will feel uncomfortable too.
 
-Because there is a kind of energy fluctuation in angry people, and this kind of fluctuation can make others afraid.
+Because there is a kind of energy vibration in angry people, and this kind of vibration can make others afraid.
 
-When many people lose their temper at the same time, the energy caused by the fluctuation will be very large. If tens of thousands or hundreds of thousands of people are constantly angry and resentful, the energy of the fluctuation can almost shake the world.
+When many people lose their temper at the same time, the energy caused by the vibration will be very large. If tens of thousands or hundreds of thousands of people are constantly angry and resentful, the energy of the vibration can almost shake the world.
 
 There are many reasons for causing earthquakes, one of which is because of anger, and the resentment of sentient beings is too much and too heavy.
 
 Earthquakes, fires, hurricanes, wars and plagues are mostly caused by hatred.
 
-There is also a great evil spirit in the fluctuations of anger. The gods of the earth and the world are afraid of this evil spirit. If a person is often angry, these gods will stay away and no longer protect the person.
+There is also a great evil spirit in the vibrations of anger. The gods of the earth and the world are afraid of this evil spirit. If a person is often angry, these gods will stay away and no longer protect the person.
 
 And it will also attract demons, because demons follow evil qi. Over time, they will create even greater evil karma.
 
@@ -7553,35 +7697,37 @@ First of all, at ordinary times, you should pay attention to the consequences an
 
 Then you have to remind yourself frequently of things that may make you unhappy, and keep vigilant in your heart.
 
-In this way, if the mood is not good, when the attack is about to occur, immediately grab the emotion that causes anger and control it.
+In this way, if you are in a bad mood, when the attack is about to occur, immediately grab the emotion that causes anger and control it.
 
 
-At the beginning, you may have to realize after being angry that you were angry just now.
+In the beginning, you may realize after being angry that you were angry just now.
 
 In fact, this is a good thing. We already have the awareness to catch this emotion, and we have noticed the thief of anger, and we will slowly catch it sooner to suppress the signs of anger.
 
-Not being angry will lead to health and longevity. Nagarjuna Bodhisattva lived for 600 years and never was angry in his life; 
+Not being angry will lead to health and longevity. Nagarjuna Bodhisattva lived for 600 years and was never angry in his life. 
 
 Asanga Bodhisattva lived for 400 years, and Yueshang Bodhisattva lived for more than 350 years, all of which are the result of not being angry.
 
-The Result of Clinging to Wrong Views: Clinging to wrong views is stubbornly clinging to upside-down ideas.
+The Result of Clinging to Wrong Views:
+
+Clinging to wrong views is stubbornly clinging to upside-down ideas.
 Bad things are considered good, good things are considered bad; things that exist do not exist, and things that do not exist exist.
 
-This is a wrong view, an upside-down notion.
+These are wrong views.Upside-down notions.
 
 For example, Buddhas and Bodhisattvas do exist, but some people think they do not. Why? They say that they can't see them.
 
 There are many things that our naked eyes have not seen, but it cannot be said that there is nothing just because we do not see it.
 
-The six realms of reincarnation exist, and so do the three worlds of cause and effect. These are invisible to the eyes, but it cannot be said that they do not exist.
+The six realms of rebirth exist, and so do the three worlds of cause and effect. These are invisible to the eyes, but it cannot be said that they do not exist.
 
 Once you have wrong views, everything you do will be wrong.
 
 339
 
-After a person clings to a wrong view, his character will become crooked, he will become more paranoid, he will spend his whole life in the inversion of right and wrong, and he will go to hell in the next life.
+When a person clings to a wrong view, his character will become crooked, he will become more paranoid, he will spend his whole life in the inversion of right and wrong, and he will go to hell in the next life.
 
-In addition to being confused by oneself, it can also affect others, harming oneself and others, but cannot be aware of it.
+In addition to being confused by oneself, it can also affect others, harming oneself and others, but we are not aware of it.
 
 When there are many people in the world who hold wrong views, water and mineral resources will disappear.
 
@@ -7597,9 +7743,9 @@ When we think about the contents of the ten evil karmas, we will know how many k
 
 Once karma is created, we must deal with it. We use the Four Forces to Eliminate Karma to get rid of our negative karma.
 
-The four powers are the power of reliance, the power to give up, the power to get rid of evil, and the power to counteract.
+The four antidotes are the power of reliance, the power to give up, the power to get rid of evil, and the power to counteract.
 
-The power of reliance: The power of reliance is to take refuge and generate bodhicitta. This is the power of reliance.
+The power of reliance: The power of reliance is to take refuge and generate bodhicitta. 
 
 After taking refuge, many karmic obstacles will naturally be eliminated, and the same is true of bodhicitta, which is called the power of reliance.
 
@@ -7608,17 +7754,21 @@ What they rely on is the power to eliminate karma, the power of Buddhas and Bodh
 Abandoning power: 
 
 Abandoning power is a feeling of remorse for the karma you have created.
-For example, repent in your heart: "I did a lot of bad things in the past, but now I regret it, and I won't do it again in the future.
+For example, repent in your heart: 
+
+"I did a lot of bad things in the past, but now I regret it, and I won't do it again in the future.
 
 "With a repentant heart, a lot of karma will naturally be eliminated.
 
 To be free from evil forces is to be free from evil karma.
-For example, vowing: "From today onwards, I will no longer commit this kind of bad deed."
+For example, vowing: 
+
+"From today onwards, I will no longer commit this kind of bad deed."
 
 This kind of firm determination is to be free from evil forces.
 
-Studying the Buddhadharma, reciting the Buddha, reciting mantras, chanting sutras, and repenting are all the countermeasures for karma.
-If the karma is not dealt with in time, the karma will grow rapidly.
+Studying the Buddhadharma, reciting the Buddha, reciting mantras, chanting sutras, and repenting are all countermeasures for negative karma.
+If the karma is not dealt with in time, it will grow rapidly.
 
 Therefore, every night we have to repent of the karma we created that day. If we do not repent, the karma will increase by an equal amount.
 
@@ -7644,23 +7794,23 @@ He believed it.
 
 Then he grabbed people everywhere and chopped off other people's thumbs. A total of 999 thumbs were chopped off, and many people died at the same time.
 
-Finally, when he was only a thumb away, he saw Shakyamuni Buddha, and he kept chasing after him. The Buddha seemed to be walking slowly, step by step, and his fingers could not catch up with all his strength.
+Finally, when he was only a thumb away, he saw Shakyamuni Buddha, and he chased after him. The Buddha seemed to be walking slowly, step by step, and his fingers could not catch up with all his strength.
 
-Later, the Buddha stopped and put his finger in front of the Buddha. He wanted the Buddha's thumb. Buddha Shakyamuni asked, "What do you want to do?" He said, "My master wants to teach me a mantra, which requires a rosary made of the thumbs of a thousand living people."
+After a while, the Buddha stopped and put out his finger. He wanted the Buddha's thumb. Buddha Shakyamuni asked, "What do you want to do?" He said, "My master wants to teach me a mantra, which requires a rosary made of the thumbs of a thousand living people."
 
 The Buddha said: "You are ignorant of the good teacher, this is an evil teacher, you must stay away from him.
 
-You have killed nine hundred and ninety-nine people like this and chopped off their thumbs, what a sin! After hearing this, Zhigao regretted it, converted to Buddhism, and repented before Shakyamuni Buddha. After a few years, his karma was eliminated and he attained the fruit of Arahantship.
+You have killed nine hundred and ninety-nine people like this and chopped off their thumbs, what a sin! After hearing this, Zhigao regretted it, converted to Buddhism, and repented before Shakyamuni Buddha. After a few years, his karma was eliminated and he attained the fruit of Arhatship.
 
 When Venerable Milarepa was a child, his father died, his uncle and aunt seized his family's property and made him, his mother and sister work for them as servants.
 
-His mother often said to him, "I heard that there is a Bon religion in Tibet. You go to learn some skills and come back and curse them. If you don't go, I will hang myself in front of you."
+His mother often said to him, "I heard that there is a Bon religion in Tibet. I want you to go and learn some skills and come back and curse them. If you don't go, I will hang myself in front of you."
 
-Milarepa went to Bon to teach the method of curse.
+Milarepa went to Bon to learn the method of curse.
 
-After returning, on the wedding day of his uncle's eldest son, Milarepa chanted a curse, thunder exploded in the air, hailstorms fell, houses collapsed, and thirty-five people and horses were killed.
+On returning, on the wedding day of his uncle's eldest son, Milarepa chanted a curse. Thunder exploded in the air, hailstorms fell, houses collapsed, and thirty-five people and horses were killed.
 
-This is a very serious killing. Later, Milarepa eliminated this karma through ascetic practice and repentance.
+This was a very serious killing. Later, Milarepa eliminated this karma through ascetic practice and repentance.
 
 Therefore, no matter how great the negative karma is, it can be eliminated through repentance.
 
@@ -7668,7 +7818,7 @@ Therefore, no matter how great the negative karma is, it can be eliminated throu
 
 At the same time of repentance, if you recite sutras and practice diligently, these karmic obstacles will be eliminated faster.
 
-Not only do we have to eliminate great negative karma, but even the smallest karma must be completely eliminated, and we must repent and clean up.
+Not only do we have to eliminate great negative karma, but even the smallest karma must be completely eliminated, and we must repent and make amends.
 
 Otherwise, even after hundreds of years and hundreds of kalpas, there will still be retribution.
 
@@ -7678,7 +7828,7 @@ After the seeds of karma have been exhausted, there will be no retribution.
 
 Section 5: If a human being can respect cause and effect, he will not fall into the three evil realms.
 
-However, we not only want to avoid falling into the evil realms and obtain the fruits of humans and heaven, but also to obtain the precious human body.
+However, we not only want to avoid falling into the evil realms and obtain the fruits of humans and heaven, but also to obtain a precious human body.
 
 Among the people who are full of leisure, the one who is most conducive to the practice of Buddhism is the one with the eight virtues. The eight virtues will be faster and more powerful in the practice of liberation.
 
@@ -7696,13 +7846,19 @@ When Nagarjuna Bodhisattva taught the Prajna Sutra, very few people could unders
 
 After meeting Nagarjuna Bodhisattva, everyone made a vow to be like Nagarjuna Bodhisattva, to be liberated and become a Buddha or become a Bodhisattva. In this way, many people have been saved.
 
-3. Born as an aristocrat: In modern society, there is no noble title, but there are still people who are rich, kind, and the three treasures of pure faith.
+3. Born as an aristocrat: 
+
+In modern society, there is no noble title, but there are still people who are rich, kind, and the three treasures of pure faith.
 
 If you are born in such a family, there will be fewer obstacles to learning Buddhism.
 
-4. Wealth and popularity: people with wealth and popularity will have a an easier time  of doing good deeds and practicing.
+4. Wealth and popularity: 
 
-5. Possess morality. To speak virtue is to say that the words are convincing, appealing and influential.
+people with wealth and popularity will have a an easier time  of doing good deeds and practicing.
+
+5. Possess morality. 
+
+To speak virtue is to say that the words are convincing, appealing and influential.
 
 Everyone will believe and respond.
 
@@ -7718,21 +7874,23 @@ In addition, it will be more convenient for men to travel or go in and out of cr
 
 8. Possessing power refers to having sufficient and outstanding conditions in various aspects such as body, wisdom, and ability.
 
-The body is strong and healthy, and can endure asceticism like Venerable Milarepa.
+When the body is strong and healthy, it can endure ascetic practices like Venerable Milarepa.
 
 If you have enough wisdom, you won't get tired when you practice the Dharma, your mind won't get tired easily, your ability to endure is strong, and it's easier to practice diligently.
 
 347
 
-The above is a precious human body with the eight virtues.
+We have just described a precious human body with the eight virtues.
 
-Relying on a human body with the eight virtues to practice the Dharma, it is very comfortable, very happy, relatively relaxed, liberating and attaining Buddhahood faster.
+When we can rely on a precious human body with the eight virtues to practice the Dharma, it is very comfortable, very happy, relatively relaxed, liberating and attaining Buddhahood faster.
 
 When the conditions are met, it will be very convenient and easy to forgive others.
 
 348
 
-The sixth section summarizes the path of the mortals. In the path of the mortals, the real practice is the ten virtues and taking refuge.
+The sixth section summarizes the path of the mortals. 
+
+In the path of the mortals, the real practice is the ten virtues and taking refuge.
 
 After completing these two dharmas, later generations will obtain the fruits of humans and heaven.
 
@@ -7748,29 +7906,29 @@ It is a pity to be able to realize that it is a pity not to practice after obtai
 
 Then to achieve the concept of impermanence in life.
 
-When there is no concept of impermanence in life, the practice will sometimes be diligent and sometimes slack.
+When there is no concept of impermanence of life, the practice will sometimes be diligent and sometimes slack.
 
-After realizing the concept of impermanence in life, you will definitely be diligent in practicing the Dharma.
+After realizing the concept of impermanence of life, you will definitely be diligent in practicing the Dharma.
 
 At this time, in the depths of consciousness, a firm belief has been formed, believing that the only thing that will help you when you are dying is the Buddhadharma, and nothing other than the Buddhadharma can help. Anything else cannot be relied upo.
 
-I also understand that people are bound to die, and that when they will die is uncertain, and I don't even know if they can live through today and see tomorrow.
+We also understand that people are bound to die, and that the time of their death is uncertain, and we don't even know if they can live through today and see tomorrow.
 
 Therefore, we must practice today, and we must diligently practice the Dharma of the Buddha.
 
 349
 
-The next step is to understand the three evil paths of suffering.
+The next step is to understand the three evil realms of suffering.
 
-First, think carefully about the pain of the three evil realms, and seriously think about how you would feel if you really fell into the evil realms, until a sense of fear arises from the bottom of your heart.
+First, think carefully about the pain of the three evil realms, and seriously think about how you would feel if you really fell into the evil realms, until a sense of dread arises from the bottom of your heart.
 
 At this time, taking refuge in the Three Jewels is a genuine refuge, and can truly recognize the preciousness of the Three Jewels.
 
 Then continue to think about the vast benefits of taking refuge, such as accumulating blessings, eliminating karmic obstacles, etc., and strengthen your confidence in the Three Jewels.
 
-After sincerely taking refuge, you must also think about believing in cause and effect.
+After sincerely taking refuge, you must also think about the truth of cause and effect.
 
-After taking refuge in the Three Jewels of the Guru, although you can temporarily not fall into the evil path, you still need to respect the law of cause and effect, otherwise you will still fall into the evil path.
+After taking refuge in the Three Jewels of the Guru, although you can temporarily avoid falling into the evil path, you still need to respect the law of cause and effect, otherwise you will still fall into the evil realms.
 
 To respect cause and effect, we must understand the nature of karma.
 
@@ -7778,11 +7936,11 @@ Through learning and cultivating the ten karma paths, I have come to know the gr
 
 Finally, I also learned about the eight meritorious persons who are most suitable for practicing the Dharma.
 
-This is the Lower Path.
+This is the path of the Lower Scope.
 
-When cultivating Shi Dao, after realizing the concept of impermanence in life, if you can realize that even if you get the Fruit of Humanity and Heaven, there will still be the possibility of falling into the evil realm in the next life, and the only way out is to escape from the six realms of reincarnation.
+When training in the Aspects of the Path, after realizing the concept of the impermanence of life, if you can realize that even if you get the Fruit of Humanity and Heaven, there will still be the possibility of falling into the evil realms in the next life, and the only way out is to escape from the six realms of rebirth.
 
-At this time, the idea of ​​​​seeking liberation will arise in the heart, and in this way, one will enter the way of the Middle Way.
+At this time, the idea of ​​​​seeking liberation will arise in the heart, and in this way, one will enter the path of the Middle Scope.
 
 
 ![EndLogo](/images/endlogo.png)
