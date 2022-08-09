@@ -1534,7 +1534,7 @@ Righteousness of heart is righteousness of mind.
 
 ##### (2) Thorough Knowledge of Reality
 
-The wisdom of the tantric empowerment masters exceeds that of the Mahayana sutra masters. The ability to distinguish between good and evil must be very strong, and they must also have a very keen insight.
+The wisdom of the tantric empowerment masters exceeds that of the Mahayana sutra masters. The ability to distinguish between good and evil must be highly developed, and they must also have a very keen insight.
 
 refers to a special training in 
 wisdom, the selflessness of phenomena
@@ -1549,27 +1549,29 @@ Tantric masters must be upright, have a kind heart, and cannot be cunning or sch
 
 47
 
-(5) No deception 
+##### (5) No deception 
 
 As a tantric master, one cannot deceive people.
 
 There is no such thing as supernatural power, so you cannot say that you have supernatural powers. If you have not attained bodhicitta, you cannot say that you have bodhicitta, and you cannot deceive others.
 
-(6) Understand Medicine
+##### (6) Understand Medicine
 
 To be able to save all sentient beings, one must also be proficient in medical remedies and medicine in general.
 
-In Tantra, there are many ways to use medicine to eliminate disasters, and some medicines and tantric incantations can be used to eliminate disasters.
+In Tantra, there are many ways to use medicine to eliminate disasters. 
+
+Some medicines and tantric incantations can be used to eliminate disasters.
 
 So, as a tantric guru, it is very important to master these.
 
-(7) Compassion 
+##### (7) Compassion 
 
 A Guru who imparts precepts must have compassion, as should all Mahayana and Tantric masters.
 
 To be a guru requires great compassion.
 
-(8) Deep Knowledge of scriptures and teachings
+##### (8) Deep Knowledge of scriptures and teachings
 
 One must be proficient in the teachings of the Mahayana and Hinayana Vehicles, as well as the teachings of the Sutra and Tantra.
 
@@ -1577,7 +1579,7 @@ As a Tantric Guru, it is a very important requirement to understand all the scri
 
 48
 
-(9) Mastery of the Double Ten 
+##### (9) Mastery of the Double Ten 
 
 The Dharma of Tantra is divided into outer and inner tantras.
 
@@ -1591,7 +1593,7 @@ Yoga tantra (rnal-'byor rgyud)– integrated deity practice
 
 Anuttarayoga (bla-med rnal-'byor rgyud) – peerlessly integrated (highest yoga) deity practice.
 
-Three of these belong to the lower path.
+Three of these belong to the path of the lower scope.
 
 Ritual, Behavioural, and Yoga.
 
@@ -1601,11 +1603,11 @@ The lower tantric masters must master the ten outer tantric methods, and the Sup
 
 ##### 1. 10 Outer Tantric Practices
 
-The ten outer secret methods include: Mandala offering; Guru yoga; mudra method; Prostration; sitting posture method; Vajrasattva mantra recitation; Zache Kadro fire puja method; Reading method.
+The ten outer tantric methods include: Mandala offering; Guru yoga; mudra method; Prostration; sitting posture method; Vajrasattva mantra recitation; Zache Kadro fire puja method; Reading method.
 
 (1) Drawing, constructing and visualizing the mandala abodes of the meditational deities
 
- The mandala in the 10 outer tantras refers to the colored and colorless mandala. It is necessary to know how to draw and contemplate these mandalas.
+The mandala in the 10 outer tantras refers to the colored and colorless mandala. It is necessary to know how to draw and contemplate these mandalas.
 
 (2) Maintaining the different states of single-minded concentration
 
@@ -1623,7 +1625,7 @@ The body method is the method of how the body moves.
 
 When studying the energy-channels, the first step is to soften the channels of the whole body. At this time, it is necessary to use the body method to cultivate, which requires a lot of practice.
 
-In tantric yoga, there are many ways to cultivate Qi, channels, and adjust the body. You must understand all of these.
+In tantric yoga, there are many ways to cultivate winds, channels, drops, and to adjust the body. You must understand all of these.
 
 (5) Sitting in the full meditation position
 
@@ -1653,7 +1655,7 @@ Mahayana has only external offerings, and only Tantric schools have internal off
 
 Internal offerings are offerings of the skull cap, containing nectar.
 
-Secret offerings are the esoteric method. Offering offerings is indistinguishable from emptiness and happiness, and emptiness and great bliss are indistinguishable from each other, so it is called bliss of emptiness.
+Secret offerings are the tantric method. Making offerings is indistinguishable from emptiness and happiness, and emptiness and great bliss are indistinguishable from each other, so it is called the bliss of emptiness.
 
 (9) Performing the rituals of:
 
@@ -1661,7 +1663,7 @@ a) Pacification of disputes, famine, and disease,
 
 b) Increase of life span, knowledge, and wealth,
 
-c) Power to influence others and
+c) Power to influence others
 
 d) Wrathful elimination of demonic forces and interferences
 
@@ -1669,20 +1671,20 @@ Tantric masters must understand these methods.
 
 (10) Invoking meditational deities and dissolving them back into their appropriate places
 
-When welcoming the deity, how to welcome the deity; after the invitation, how to make offerings and practice; after the practice, how to return the deity.
+When welcoming the deity, how to welcome the deity; after the invocation, how to make offerings and practice; after the practice, how to return the deity.
 
 These have specific rituals and visualizations, and you need to know how to do them.
 
 The above are the Ten Dharmas of Outer Secrets.
 
-**The Ten Inner Tantras include:**
+**2. The Ten Inner Tantras include:**
 
-wheel-guarding observation; amulet making; aquarium empowerment and secret empowerment; wisdom empowerment and speech empowerment; isolation; ; Soothing the gods and consecrating the light;
+Circle of protection; amulet making; vase empowerment and secret empowerment; wisdom empowerment and speech empowerment; isolation; ; Soothing the gods and consecrating the light;
 
 
-(1) Visualizing wheels of protection and eliminating obstacles
+(1) Visualizing the circle of protection and eliminating obstacles
 
- If the guru wants to protect a disciple for some reason, he can use the meditation gate to visualize an amulet or a wheel guard, and he must know how to visualize it.
+If the guru wants to protect a disciple for some reason, he can use the meditation gate to visualize an amulet or a circle of protection, and he must know how to visualize it.
 
 (2) Preparing and consecrating protection knots and amulets to be worn around the neck 
 
@@ -1690,45 +1692,53 @@ Proficient in the writing and practice of amulets.
 
 (3) Conferring the vase and secret initiations, planting the seeds for attaining a buddha’s form bodies
 
-The treasure bottle empowerment method and the secret empowerment method include the immovable Tathagata aquarium water empowerment, the Amitabha Buddha Vajra holding empowerment, the Vajra Buddha Vajra bell empowerment, the Many Treasures Tathagata Crown Banner empowerment, and the Vairocana name empowerment.
+The treasure vase empowerment method and the secret empowerment method includes the immovable Tathagata aquarium water empowerment, the Amitabha Buddha Vajra holding empowerment, the Vajra Buddha Vajra bell empowerment, the Many Treasures Tathagata Crown Banner empowerment, and the Vairocana name empowerment.
 
-Tantric masters need to be proficient in both vase empowerment and tantric empowerment.
+Tantric masters need to be proficient in both vase empowerments and tantric empowerments.
 
-(4) Conferring the wisdom and word initiations, planting the seeds for attaining a buddha’s wisdom bodies
+(4) Conferring the wisdom and speech initiations, planting the seeds for attaining a buddha’s wisdom bodies
 
- The only empty happiness obtained through the nectar blessed by Vajra Guru is wisdom empowerment.
+The bliss of emptiness obtained through the nectar blessed by the Vajra Guru is wisdom empowerment.
 
-The duality wisdom gained through the duality language recited by the guru is the speech empowerment.
+The aspiration to realize the wisdom mind of the unity that defies the intellect through the words recited by the guru is the speech empowerment.
 
-Tantric masters should be proficient in wisdom empowerment and speech empowerment.
+Tantric masters should be proficient in the wisdom empowerment and speech empowerment.
 
 (5) Separating the enemies of Dharma from their own protectors
 
-Some people often do evil, accumulate bad karma, and even destroy monasteries and cities, kill their fathers and mothers, destroy good laws, laws and regulations.
+Some people often do evil, generate bad karma, and even destroy monasteries and cities, kill their fathers and mothers, break good laws, rules and regulations.
 
-At this level, they can always escape punishment. This may be due to the blessing of the gods or beings in the demonic way. In this case, the isolation method must be used to separate the gods and beings in the demonic way.
+Having fallen to this level, they can always seem to escape punishment. This may be due to the help of the worldly gods or demonic beings in the world. In this situation, the isolation method must be used to isolate the worldly gods and demonic beings.
 
-Once separated, he is incapable of doing bad things.
+Once isolated or tamed, they is incapable of doing bad things.
 
-Generally, people who do these bad things are because the devil and other demons are helping him.
+Generally, people who do these bad things are doing so because the devil and other demons are helping him.
 
 Tantric masters must be proficient in isolation.
 
 (6) Making the offerings, such as of sculptured tormas
 
-Doma is also called Shizi. It is made of flour, ghee, and sugar. It has specific shapes and rituals.
+Tormas, also known as offering cakes are is made of flour, ghee, and sugar. They have specific shapes and rituals.
 
-It is used to make offerings to Buddhas, Bodhisattvas, deities, Dharma protectors, or to give to sentient beings in the six realms. The main purpose is to accumulate merit and achieve business.
+They is used to make offerings to Buddhas, Bodhisattvas, deities, Dharma protectors, or to give to sentient beings in the six realms. The main purpose is to accumulate merit and build up positive karma.
 
-Different tormas are used in the four activities of breathing, increasing, embracing, and killing, and the tantric master must be proficient in the production and usage of various tormas.
+---
 
-(7) Reciting mantras, both verbally and mentally, that is, visualizing them revolving around his heart
+The meaning of Xi Zeng Huai Zhu means: refers to the four Buddhist esoteric methods of breathing method, increasing method, holding method, and killing method. The method of relieving disasters is the method of relieving disasters, which is similar to the methods of eliminating disasters and repenting in the teachings. Enhancing the Dharma is the way to increase the merit and wisdom of sentient beings. To embrace the Dharma is to make sentient beings enjoy the joy of the Ten Dharma Realms, to turn evil into good, to turn enemies into friends, to turn consciousness into wisdom, and to turn afflictions into enlightenment. Punishment is the way to remove demonic obstacles for sentient beings.
 
-The trick mantra for reciting mantra includes the vajra mantra, mind mantra, and wheel mantra.
+---
 
-As a tantric master, in addition to knowing how to recite mantras, you must also master certain tricks of mantra recitation.
+There are four ways for Tormas to be used. The Torma can be visualized as the principal deity during practice, during the time of offering the torma as limitless desirable offerings, during receiving blessings as the wisdom nectar, and in order to reverse negative forces as a magical weapon with great compassion, and the tantric master must be proficient in the production and usage of various tormas.
 
-When reciting the vajra mantra, qi and mantra are indistinguishable.
+(7) The secret to chanting mantras
+
+Chanting mantras, both verbally and mentally, that is, visualizing them revolving around his heart
+
+Mantras include Vajra Mantra, Mind Mantra, and Wheel Mantra.
+
+As a tantric master, in addition to knowing how to recite mantras, you must also master certain techniques of mantra recitation.
+
+When reciting the vajra mantra, the breath and the mantra are indistinguishable.
 
 For example, when you inhale it is "hum", when you hold it, it is "ah", and when you exhale it is "hum".
 
@@ -1738,71 +1748,77 @@ Mindfulness mantra means reciting mantras with the heart, but not with the mouth
 
 The wheel mantra is the mantra wheel.
 
- How to write it and how to visualize it must be very clear.
+How to write it and how to visualize it must be very clear.
 
 (8) Performing wrathful ritual procedures for forcefully catching the attention of the meditational deities and protectors 
 
-The trick to stimulate function refers to some methods of compulsory achievement and elimination of obstacles.
+These techniques refer to some methods of forcing achievement and elimination of obstacles.
 
 (9) Consecrating images and statues 
 
-The soothing and consecrating methods include exorcising evil spirits, removing filth, contemplating Buddhas, welcoming Buddhas, making offerings, reciting mantras, transforming shapes, soothing the mind, consecrating the light, blessings, scattering flowers and praying for blessings, etc. There are many kinds of rituals.
+There are many kinds of rituals for exorcising evil spirits, removing filth, contemplating Buddha, welcoming Buddha, making offerings, reciting mantra, transforming form, soothing the mind, consecrating light, blessing, scattering flowers and praying for blessings.
 
-If there are stupas, halls, and statues that need consecration and blessing, as a Tantric Guru, you must be able to use these rituals proficiently.
+If there are stupas, halls, and statues that need consecration and blessing, as a Tantric Guru, you must be able to perform these rituals proficiently.
 
 (10) Making mandala offerings, performing the meditational practices (sadhana) and taking self initiations
 
-Mandala meditation offering method refers to mastering how to meditate on the mandala of Wisdom Deity, Ultimate Bliss, etc., and how to make offerings after meditating.
+Mandala meditation offering refers to mastering how to meditate on the mandala of Wisdom Deity, Ultimate Bliss, etc., and how to make dedications after meditating.
 
 55
 
 The above are the ten inner secret methods. As a tantric master, you need to have these abilities and cultivation bases.
 
-The double ten method is finished.
 
 (10) Understand the mandala making method. 
 
-Mandala is the pure land of the deity. There are many types of mandala: three-dimensional, colorful sand model, color drawing, artistic conception mandala and so on.
+Mandala is the pure land of the deity. There are many types of mandala: three-dimensional, colorful sand models, color drawings, artistic conception mandala and so on.
 
-Some are written on paper and cloth, some are made of sand, and some are made of wood. You must understand how to write and make mandala.
+Some are drawn on paper and cloth, some are made of sand, and some are made of wood. You must understand how to write and make mandala.
 
-(11) Proficient in esoteric practice 
+The above are the ten inner secret methods. As a tantric master, you need to have these abilities and cultivation bases.
 
-As a vajra guru, one needs to be proficient in tantra's Taoist sequence, tantric practice method, tantra's vital points of qi, secondary and other methods.
+These are the techniques of the two sets of ten.
 
-(12) Faith 
+(11) Proficient in tantric practice 
 
-Firm Faith includes faith in the guru, the Three Jewels, and the deity.
+As a Vajra Guru, one needs to be proficient in stages of teh Tantric path, tantric techniques, tantra's vital points of qi, secondary and other methods.
 
-As a guru, these beliefs must be firm and not regressed.
+(12) Firm Belief 
 
-(13) Pure root at root: 
+Firm Belief includes faith in the guru, the Three Jewels, and your personal deity.
 
-refers to the six roots, eye, ear, nose, tongue, body, and mind.
+As a guru, these beliefs must be firm and unwavering.
+
+(13) Pure at the root: 
+
+Internal sense bases: Refers to the six senses: eye, ear, nose, tongue, body, and mind.
 
 56
 
-Location: 
+External sense bases: 
 
-Refers to the six locations, form, sound, smell, taste, touch, and law.
+Refers to the six external sense objects: visible objects or form, sound, smell, taste, touch, and menatl objects.
 
-When the six sense organs correspond to the six sense organs in the external environment, if there is no affliction, then the sense organs are purified, that is, the six sense sense organs are purified.
+When the six sense organs correspond to the six sense domains in the external environment, if there is no obscuration, then the sense organs are purified.
 
 When the eyes look at external objects, they do not have thoughts, and do not generate greed, hatred, and delusion; when the ears hear other people's scolding, they do not get angry, and when they hear praise, they do not become arrogant. 
 
-The above are the thirteen conditions that a master of tantric empowerment needs to meet.
+---
+
+These are the thirteen conditions that a master of tantric empowerment needs to meet.
 
 #### Section 2 - Getting close to the guru
 
- After understanding the requirements for a guru, if you encounter a guru with these virtues, you must rely on him, listen to the scriptures, listen to the Dharma, and study hard.
+ After understanding the requirements for a guru, if you encounter a guru with these virtues, you should accept him as your guru, listen to the scriptures, listen to the Dharma, and study hard.
 
-During the period of study, you may encounter many teachers who are full of virtues. Then, you should rely on one teacher and then practice meditation;
+While you are studying, you may encounter many virtuous teachers. Should you follow only one guru and then practice meditation;
+Or, if you meet a teacher, you should take refuge, and then rely on multiple teachers.
 
-How to choose this?
+How do we make the choice?
 
-Both Thongtunpa and Sangpowa were disciples of the Venerable Atisha, and they were outstanding in every aspect.
+Both Dromtönpa Gyelwé Jungné and Sangpowa (Ngog Legpai Sherab) were disciples of the Venerable Atisha, and they were outstanding in every aspect.
 
-Master Thongdunpa founded the Kadam School. Master Sangpowa was a great translator and has made great contributions to the spread of Buddhism in Tibet, but the way they relied on their masters is completely different.
+Master Dromtönpa was the main leader of the Kadam tradition. Master Sangpowa was a great translator and has made great contributions to the spread of Buddhism in Tibet, but the way they relied on their guru is completely different.
 
 Master Sangpowa had many teachers, and when he heard that there were people teaching the Dharma, he would listen to them.
 
@@ -1812,51 +1828,53 @@ His disciples all thought that they should not go. The disciples said, "To liste
 
 Master Sangpowa said: "You can't say that. At least if I listen to it, I will have the merit of hearing it and rejoicing."
 
-On the contrary, Master Zhongdumba has only five teachers, two in India, three in Tibet, and after the age of thirty-nine, he only relied on the Venerable Atisha.
+On the other hand, Master Dromtönpa had only five teachers, two in India, three in Tibet, and after the age of thirty-nine, he only relied on the Venerable Atisha.
 
 58
 
 So, which master's way of following a teacher is preferable?
 
-Once, when the two masters Bodowa and Gombawa were together, they talked about this issue. In the end, they agreed that for the disciples who are just starting out, because their troubles are still more serious, they should look at the faults of others more than the merits and virtues of the master. If you haven't developed enough confidence to see your teacher as a Buddha, you should learn the way of relying on Master Zhongdunpa, and it is better to have less good teachers.
+Once, when the two masters Potowa and Gombawa were together, they talked about this issue. In the end, they agreed that for disciples who are just starting out, because their troubles are still relatively heavy, they look at the faults of others more than their merits and still have not ddevloped enough confidence in their guru, and cannot develop the view that the guru is a buddha.
 
-Now some people have worshipped many teachers, learned from everyone, listened to everyone's Dharma, and attended when they heard that there was empowerment.
+If you haven't developed enough confidence to see your teacher as a Buddha, you should learn Master Dromtönpa's way of relying, and it is better to have fewer teachers.
 
-For beginners, doing this is actually a taboo, and it is difficult to achieve success.
+Now some people have followed many teachers, learned from everyone, listened to everyone's Dharma, and attended whenever they heard that there was an empowerment ceremony.
 
-Beginners should rely on one or two masters, and study and practice in the order taught by the master. If the direction is right, the path will not go wrong.
+For beginners, doing this is actually a taboo, and makes it difficult to achieve any level of success.
+
+Beginners should rely on only one or two masters, and study and practice in the order taught by the master. If the direction is right, the path will not go wrong.
 
 1. How to get close to the guru 
 
-After relying on the guru, you must get close to the guru. First of all, you must understand the contents of being close to the guru.
+After taking refuge in the guru, you must get close to him. First of all, you must understand the meaning of 'being close to' the guru.
 
 Getting close to the guru mainly includes three aspects: making offerings to the guru, serving the guru, and following the teachings.
 
 59
 
-(1) Offering to the Guru 
+(1) Making Offerings to the Guru 
 
-Offering is the most important method of accumulating merits, and offering to the Guru is especially extraordinary, because the Guru is the incarnation of the Buddhas and Tathagatas, and if you make an offering to the Guru, you will make offerings to all the Buddhas.
+Offering is the most important method of accumulating merit, and making offerings to the Guru is especially extraordinary, since the Guru is the incarnation of the Buddhas and Tathagatas, and if you make an offering to the Guru, it will be the same as making offerings to all the Buddhas.
 
 There are three types of offerings to the guru:
 
-Wealth offering: 
+Offering of Wealth: 
 
-All legally obtained wealth and items can be offered to the guru, but they must be done according to their own abilities.
+All legally obtained wealth and items can be offered to the guru, but the giving should be done according to your own ability i.e. within your means.
 
-Also, it would be better if the offering would please the guru, or if the offering was made with one's own beloved items.
+Also, it is better if the offering is pleasing to the guru, and even better if the offering is made from among one's own beloved items.
 
-This will also cultivate one's own equanimity and respect for the guru, and it is also a good way to obtain the guru's blessing.
+This will also develop one's own equanimity and respect for the guru, and it is also a good way to obtain the guru's blessing.
 
-Body, speech, and mind offering: 
+Offerings of Body, speech, and mind: 
 
-It means offering one's body, speech, and mind to the guru.
+This means offering one's body, speech, and mind to the guru.
 
-Act as a teacher, take responsibility for doing things; speak for the teacher, pray and praise; think for the teacher, be pure and respectful, and correspond with the teacher.
+Offering body to the guru means, taking responsibility for doing thingsand undertaking the work; Offering speech to the guru means, offering prayers and praise; Offering mind to the guru means, in everything you think, be pure and respectful, and correspond with the teacher.
 
-Dharma offerings: 
+Offerings of Dharma: 
 
-After receiving the tantric empowerment, you have already made samaya vows and precepts with your guru. Therefore, you should practice diligently in accordance with the Dharma, and use your practice knowledge and practical actions to benefit sentient beings as offerings to your guru.
+After receiving the tantric empowerments, you have already made samaya vows and precepts with your guru. Therefore, you should practice diligently in accordance with the Dharma, and use your practice knowledge and practical actions to benefit all sentient beings as offerings to your guru.
 
 Among the three kinds of offerings, Dharma offerings are the most outstanding, body, speech, and mind offerings are second, and wealth offerings are the lowest.
 
@@ -1864,41 +1882,43 @@ Among the three kinds of offerings, Dharma offerings are the most outstanding, b
 
 (2) Serving the Guru 
 
-Serving the Guru is actually a kind of body offering.
+Serving the Guru is actually a kind of offering of one's body, known as "cheng shi".
 
-"Cheng" means to bear and take responsibility; "things" include all the things big and small that the guru has ordered to do, including not only the great undertakings of assisting the guru to spread the Dharma and benefiting students, but also including serving the guru in front of him. little things.
+"Cheng" means to bear and accept responsibility; "things" include all the things, big and small, that the guru has asked you to do, including not only the great deeds of assisting the guru in spreading the Dharma and benefiting living beings, but also little things like serving at his side.
 
-(3) The purpose of practicing Buddhism according to the teaching is to get rid of all kinds of troubles of oneself. In order to liberate and become a Buddha, it is also for this purpose to get close to the teacher.
+(3) Practice According to the Dharma
+
+The purpose of practicing Buddhism according to the teaching is to get rid of all kinds of afflictions in oneself. In order to liberate oneself and become a Buddha, it this is also the reason for getting close to the master.
 
 After making offerings to the guru, if you do not earnestly practice the Dharma taught by the guru, you will not be able to liberate yourself.
 
-Therefore, it is very important to listen to the teacher's teaching and follow it.
+Therefore, it is very important to listen to the master's teaching and put it into practice.
 
-In addition, the disciple listens to the teacher's words, and practices according to the teacher's teaching.
+In addition, if a disciple listens to the teacher's words, and practices according to the master's teaching, it is a very good way of making the guru happy.
 
 61
 
-2. The merits of offering and serving
+##### 2. The merits of offering and serving
 
- (1) The merits of making offerings to the guru 
+(1) The merits of making offerings to the guru 
  
-To make offerings to the guru, you must first know the merits of making offerings.
+To make offerings to the guru, you must first know the benefits of making offerings.
 
 When you make offerings to the master, you make offerings to the Buddhas and Tathagatas.
 
-In the Sequel to the Master of Victory Vajra, it says:
+In the Chakrasamvara Tantra, it says:
 
 Live in the body of the teacher and accept the confession of believers.
 
-What does it mean? This is to say that the four deities, such as the Victory Vajra, and the Buddhas and Tathagatas live in the body of the master and receive offerings from the disciples.
+What does it mean? This is to say that the Four Great Kings, such as Chakrasamvara, and the Buddhas and Tathagatas live in the body of the master and receive offerings from the disciples.
 
-If a disciple makes offerings to the guru, it is equivalent to making offerings to the four deities, and thus making offerings to the Buddhas and Tathagatas.
+If a disciple makes offerings to the guru, it is equivalent to making offerings to the Four Great Kings, and thus making offerings to the Buddhas and Tathagatas.
 
 When the guru accepts the offering, the Buddhas and Tathagatas receive the offering.
 
 Therefore, making offerings to the guru is a great way to accumulate blessings.
 
-If you only make offerings to Victory Vajra, then you can only make offerings to one deity; 
+If you only make offerings to Chakrasamvara, then you can only make offerings to one deity; 
 
 if you make offerings to Buddha Shakyamuni, you can only make offerings to one Buddha;
 
@@ -1906,83 +1926,83 @@ if you make offerings to Amitabha, you also have the merits of making offerings 
 
 However, if you make offerings to the guru, you will have the merit of making offerings to all the Buddhas and Tathagatas!
 
-"Hevajra Tantra" is a fundamental tantra of the Supreme Yoga of Tantra. In the "Hevajra Tantra", it says:
+The "Sambhota Tantra" is a fundamental tantra of the Supreme Yoga of Tantra. In the "Sambhota Tantra", it says:
 
-A single pore on the teacher's body, the merit surpasses the merits of offering offerings to all Buddhas and Bodhisattvas in the ten directions.
+A single pore on the teacher's body, the merit surpasses the merits of making offerings to all Buddhas and Bodhisattvas in the ten directions.
 
 This means that if you make an offering to a single pore on your guru, the merits and virtues will surpass that of making offerings to the Buddhas and Bodhisattvas of the ten directions.
 
 For example, even rubbing a little oil on one of the pores of the guru's body is very beneficial.
 
-There are many reasons for becoming a Buddha very quickly in the tantric method, and offering is one of them.
+There are many techniques for becoming a Buddha very quickly in the tantric method, and making offerings is one of them.
 
 The offerings of tantra are mainly to make offerings to the guru, and if one makes offerings to the guru, one will make offerings to the Buddhas and Tathagatas.
 
-The offerings of the Hinayana are mainly offerings to Shakyamuni Buddha, and the offerings of the Mahayana sects are Buddhas and Bodhisattvas. If you make offerings to a Buddha, you will only have the merits of making offerings to one Buddha; if you make offerings to a Bodhisattva, you will only have the merits of making offerings to a Bodhisattva, and you will not make offerings to others. The merits of the Buddha.
+The offerings of the Hinayana are mainly offerings to Shakyamuni Buddha, and the offerings of the Mahayana sects are to all Buddhas and Bodhisattvas. If you make offerings to a Buddha, you will only have the merits of making offerings to one Buddha; if you make offerings to a Bodhisattva, you will only have the merits of making offerings to a single Bodhisattva, and you will not make offerings to others. You will not accumulate the merits making offerings to all the Buddhas and Tathagatas.
 
-(2) The merits of serving the guru. 
+##### (2) The merits of serving the guru. 
 
-What the guru should do, and the disciples help to do it, the merit of serving the guru is also very, very great.
+Whatever the guru wants to do, the disciples should help, the merit of serving the guru is also very, very great.
 
 The Huayan Sutra says: 
 
-Serving the guru has incredible merit.
+Going to tutors and teachers, they should wish that all beings skillfully serve their teachers, and practice virtuous ways.
 
 Venerable Atisha had many highly accomplished disciples, and there was one disciple named Anijang Qu Rinchen, who was an old man.
 
-When he worshipped His Holiness as a teacher, he felt that he was very old and could not learn much about the Dharma. It was enough to serve the teacher well. He had been serving His Holiness for 17 years.
+When he took His Holiness as a teacher, he felt that he was very old and could not learn much about the Dharma. It was enough to serve the teacher well. He had been serving His Holiness for 17 years.
 
 Later, among the disciples, he had the highest concentration and understanding.
 
-Geshe Gon Bhawa once said:
+Geshe Gonpawa Wangchuk Gyeltsen once said:
 
-"At that time, Ani served the guru, and Zhongdumba was the interpreter for the guru. I concentrated on practicing meditation, but later, both of them had higher concentration and understanding than me."
+"At that time, Ani served the guru, and Dromtönpa was the interpreter for the guru. I concentrated on practicing meditation, but later, both of them had higher concentration and understanding than me."
 
-Geshe Sharaywa dedicated himself to serving his guru Shohwa.
+Geshe Sharawa dedicated himself to serving his guru Qin O Wa.
 
-One time, when he was cleaning the ashes, when he was carrying the ashes and was about to go downstairs to dump it, he suddenly realized all the essentials of the classics very clearly on the stairs, and he also had many magical abilities.
+One time, he was cleaning the ashes. As he was carrying the ashes and was about to go downstairs to dump it, he suddenly realized all the essentials of the classics very clearly on the stairs, and he also had many magical abilities.
 
-The Saban Teachings written by Sakya Pandita says:
+The Elegant Sayings written by Sakya Pandita says:
 
-After several kalpas of ascetic practice of prajna practice, giving of body, hands and feet,
+After several kalpas of ascetic practice of perfection of wisdom, giving of body, hands and feet,
 
-The teacher's way is complete in an instant, and he is happy to worship the teacher's practice.
+The teacher's way is complete in an instant, and he is happy to follow the teacher's path.
 
-When Sakya Pandita was a child, he followed his uncle Drabajian to learn the Dharma.
+When Sakya Pandita was a child, he followed his uncle Jetsün Drakpa Gyaltsen to learn the Dharma.
 
-When asking for Guru Yoga, Drapa Jianshen said:
+When asking for Guru Yoga, Jetsün Drakpa Gyaltsen said:
 
-"I can't pass on your Guru Yoga yet."
+"I can't pass Guru Yoga on to you yet."
 
-He asked, "Why?"
+Sakya Pandita asked, "Why?"
 
-Zhaba Jianshen said: "Because now you can only see me as an uncle, not as a Buddha or Bodhisattva. Without this belief, it is useless to pass on it."
+Drakpa Gyaltsen said: "Because now you can only see me as an uncle, not as a Buddha or Bodhisattva. Without this belief, it is useless to pass on it."
 
-Afterwards, one time, Master Zhapa Jianshen was ill, and Sakya Pandita also suffered from the cold. Zhapa Jianshen said, "I can't move. Please take good care of me during this time."
+Afterwards, one time, Master Drakpa Gyaltsen was ill, and Sakya Pandita also suffered from the cold. Drakpa Gyaltsen said, "I can't move. Please take good care of me for a while."
 
 64
 
-In this way, although Sakya Pandita himself was suffering, he still did his best to serve the guru.
+In this way, although Sakya Pandita himself was suffering, he still did his best to serve his guru.
 
-Three months later, Zhaba Jianshen said, "I can teach you Guru Yoga. I got sick to eliminate karma for you. Now, your karma has been purified."
+Three months later, Drakpa Gyaltsen said, "I can teach you Guru Yoga. I got sick to eliminate karma for you. Now, your karma has been purified."
 
-After teaching the Dharma, Sakya Panzhida diligently practiced Guru Yoga, and soon became proficient in the Ten Great Dharma.
+After teaching the Dharma, Sakya Pandita diligently practiced Guru Yoga, and soon became proficient in the Ten Great Dharmas, saw Manjushri Bodhisattva with his own eyes, and was personally blessed by the Bodhisattva.
 
-In fact, Buddhas and Bodhisattvas are everywhere, but sentient beings cannot see them. Why? It is because the karma of sentient beings is heavy!
+In fact, Buddhas and Bodhisattvas are everywhere, but sentient beings cannot see them. Why? Because the karma of sentient beings is heavy!
 
 Serving the guru can quickly eliminate karmic obstacles, and it is possible to see Buddhas and Bodhisattvas.
 
 Serving a guru is a relatively easy way to achieve success.
 
-When serving a teacher, you should treat your teacher as a Buddha or a Bodhisattva, who has the blessing power, and treat it as an ordinary person who has no blessing power.
+When serving a guru, you should treat your master as a Buddha or a Bodhisattva, who has the power to give blessings. To treat the guru as if they were an ordinary person will not bring any power of blessing.
 
-There is no Guru Yoga in Sutra, only in Tantra.
+There is no Guru Yoga in Mahayana, only in Tantra.
 
-The meaning of guru yoga is to visualize the indistinguishability of the guru and the Buddha, the indistinguishability of the guru and the Buddha Shakyamuni, and the Buddhas and Tathagatas.
+The meaning of guru yoga is to visualize the indistinguishability of the guru and the Buddha, the indistinguishability of the guru and the Buddha Shakyamuni, and all the Buddhas and Tathagatas.
 
-After contemplating in this way, because the guru is regarded as the Buddhas and Tathagatas, if you offer a cup of water to the guru, it is equivalent to offering a cup of water to the Buddhas and Tathagatas, not just one or two Buddhas.
+After contemplating in this way, since the guru is regarded as all the Buddhas and Tathagatas, if you offer a cup of water to the guru, it is equivalent to offering a cup of water to the Buddhas and Tathagatas, not just one or two Buddhas.
 
-In this way, in the moment of making offerings, there will be great merit, and in the moment of cultivation, many karmic obstacles will be eliminated, and great blessings will be accumulated.
+In this way, in the moment of making offerings, there will be great merit, and in the moment of practice, many karmic obstacles will be eliminated, and great merit will be accumulated.
 
 65
 
@@ -1990,9 +2010,9 @@ Therefore, the Dharma door of Tantra is very special.
 
 Mahayana does not have such a method.
 
-In the sutras, if offering offerings to Amitabha Buddha, only Amitabha Buddha will receive offerings; 
+In the sutras, if making offerings to Amitabha Buddha, only Amitabha Buddha will receive the offerings. 
 
-if offering offerings to Shakyamuni Buddha, only Shakyamuni Buddha will receive offerings.
+If making offerings to Shakyamuni Buddha, only Shakyamuni Buddha will receive the offerings.
 
 If you want to make offerings to the Buddhas and Tathagatas, you must make offerings one by one.
 
@@ -2002,53 +2022,69 @@ It is only possible after going through a lot of ascetic practices, even giving 
 
 Guru Yoga, a tantric practice, does not need to go through ascetic practices, and it can also accumulate great blessings and eliminate many karmic obstacles.
 
-(3) With what kind of heart to serve the guru 
+##### (3) The attitude of serving the guru 
 
 When serving the guru, it will be more complete if you follow the "Nine Attitudes of Devotion to the Guru" as stated in the Huayan Sutra.
 
 The Nine Attitudes are:
 
-The mind of a filial son is to regard the master as a parent, and as a disciple is a filial son, serving the master with the mentality of a filial son.
+1. Like a filial child. 
 
-1. That of a filial child. Like a filial child, one thoroughly carries out the instructions of the Guru without the slightest deviation.
+Like a filial child, one thoroughly carries out the instructions of the Guru without the slightest deviation.
 
-2. That of a Vajra. Like a Vajra that cannot be split apart, even when facing division created by devils or bad associates, one will never split away from the Guru.
+2. Like a Vajra. 
 
-3. That of the Earth. Like the Earth carrying everything in the world, one shoulders all assignments ordered by the Guru.
+Like a Vajra that cannot be split apart, even when facing division created by devils or bad associates, one will never split away from the Guru.
 
-4. That of the Iron Circle of Mountains. Like everlasting mountains, while abiding under the patronage of the Guru one endures hardships and sufferings without ever swaying in one’s determination.
+3. Like the Earth. 
 
-5. That of a servant. Like an obedient servant, even when one is obliged to carry out very difficult assignments one holds no grudges in one’s heart.
+Like the Earth carrying everything in the world, one shoulders all assignments ordered by the Guru.
 
-6. That of a sweeper. Like a humble sweeper, one renounces self-pride and regards oneself as inferior to the Guru.
+4. Like an Iron Circle of Mountains.
 
-7. That of a rope. Like a continuous rope, one rejoices in carrying on the Dharma activities of the Guru, regardless of its degree of difficulty and heaviness of load.
+Like everlasting mountains, while abiding under the patronage of the Guru one endures hardships and sufferings without ever swaying in one’s determination.
 
-8. That of a domestic dog. Like a loyal dog, even when the Guru ridicules, irritates or ignores one, one never responds with anger.
+5. Like a servant. 
 
-9. That of a boat. Like a ferry one goes back and forth on the Guru’s assignments without any discontent.
+Like an obedient servant, even when one is obliged to carry out very difficult assignments one holds no grudges in one’s heart.
+
+6. Like a sweeper. 
+
+Like a humble sweeper, one renounces self-pride and regards oneself as inferior to the Guru.
+
+7. Like a rope. 
+
+Like a continuous rope, one rejoices in carrying on the Dharma activities of the Guru, regardless of its degree of difficulty and heaviness of load.
+
+8. Like a domestic dog. 
+
+Like a loyal dog, even when the Guru ridicules, irritates or ignores one, one never responds with anger.
+
+9. Like a boat. 
+
+Like a ferry one goes back and forth on the Guru’s assignments without any discontent.
 
 The "filial son" here is translated as "Shunzi" in Tibetan, and the word "shun" is highlighted, which means to obey the master's will.
 
 66
 
-Because people nowadays have strong ego-clinging, they are used to everything being self-centered, and believe they can do whatever they want.
+Because people nowadays have strong ego-clinging, they are used to everything being centered on themsleves, and believe they can do whatever they want.
 
-To rely on the guru, one must throw away the ego and serve the guru like a filial son serves his parents.
+To follow the guru, one must throw away the ego and serve the guru like a filial son serves his parents.
 
-When a dutiful son in ancient times wanted to do something, he would not do it according to his own ideas, but to observe his parents. If the parents were happy, they would do it, and if they were not happy, they would not do it.
+When a dutiful son in ancient times wanted to do something, he would not do it according to his own ideas, but to observe his parents. If the parents were happy, he would do it, and if they were not happy, he would not do it.
 
 The same is true when doing things for the guru. You must first observe the guru's face before making a decision.
 
 Sometimes, it is not easy for the guru to speak directly about what the disciple is going to do, or it is inconvenient to say it at the time. At this time, if he sees that the guru is very happy, he approves; Whatever you say, don't stick to your own ideas.
 
-It is also stated in the Sutra of Samadhi Now Realized by the Buddha:
+It is also stated in the King of Samdhi Sutra:
 
-He renounces self-righteousness in all things, and turns with the pleasure of a good teacher.
+Students who rely properly on the teacher should always give up their self-assertiveness and instead act in accordance with the will of the teacher.
 
-On this point, Master Tsongkhapa especially reminded: 
+On this point, Master Tsongkhapa especially reminded us: 
 
-to act according to the will of the master does not mean that it must be done in front of any master, but must be in front of a master with virtue.
+To act according to the will of the master does not mean that it must be done in front of any master, but must be in front of a master with virtue.
 
 If the other party is not a real virtuous teacher, he cannot be led by the nose.
 
@@ -2056,22 +2092,26 @@ If the other party is not a real virtuous teacher, he cannot be led by the nose.
 
 Vajra Heart 
 
-The heart of relying on the guru is the vajra heart that never changes.
-After relying on the guru, the heart of being close to the guru must never be shaken, and it can be as firm and indestructible as a vajra.
+The attitude which is like a diamond. This means to make the relationship between teacher and student close and stable.
 
-Whether it is a "demon" who destroys the Dharma-rectification, learning and cultivation, or an evil friend who slanders the teacher and slanders the Dharma, none of them can destroy or shake the relationship between oneself and the teacher, leading to separation from the teacher.
+The heart of relying on the guru is the vajra heart that never changes.
+After relying on the guru, the heart of being close to the guru must never be shaken, and it should be as firm and indestructible as a vajra.
+
+"not to be split apart by anyone—demons, bad friends, and the like."
+
+Whether it is a "demon" who destroys the Dharma-connection, learning and practice, or a bad friend who slanders the teacher and disparages the Dharma, none of them can destroy or shake the relationship between oneself and the teacher, leading to separation from the teacher.
 
 "Magic" here refers to those who hinder study.
 
 The scriptures say: 
 
-"You should stay away. Friendship is impermanent, and affection is impermanent."
+"And forsake fickleness in close relationships and changeability in facial expressions."
 
 That is to say, in order to take into account the relationship and affection of some friends, you cannot follow them and prevent yourself from relying on your guru.
 
 The center of the earth can carry anything, it can carry high-rise buildings, it can carry people and animals, it can also carry trees.
 
-Whatever the guru has to do, as a disciple, you should have the courage to undertake it, that is, the "earth heart" that bears heavy responsibilities.
+Whatever the guru has to do, as a disciple, you should have the courage to undertake it, that is, the "earth heart" that bears heavy responsibilities and hard work.
 
 The earth's heart includes six aspects. Since you have made up your mind to take responsibility for your guru, you must do it from six aspects:
 
@@ -2079,93 +2119,111 @@ The earth's heart includes six aspects. Since you have made up your mind to take
 
 The heart of the mountain is widely known as the heart of the Lunwei Mountain, and the Lunwei Mountain is the Tiewei Mountain.
 
-The Tiewei Mountain firmly surrounds the saltwater sea in the middle, and the monstrous waves of the saltwater sea cannot shake or destroy the Tiewei Mountain.
+The Circling Iron Mountains firmly surround the saltwater sea in the center, and the monstrous waves of the saltwater sea cannot shake or destroy the Tiewei Mountain.
 
-At the end of the robbery, the robbery fire that can destroy all things cannot burn the Tiewei Mountain, and the violent storm is even less likely to shake the Tiewei Mountain.
+At the end of time, the great fire that can destroy all things cannot burn the Iron Mountain, and violent storms are even less likely to shake the Iron Mountain.
 
 Here, the mountain heart is used as a metaphor for the kind of perseverance that a disciple will never give up under any pressure or tribulation when he undertakes heavy responsibilities for the master.
 
 (2) Servant's heart 
 
-If what the guru instructs to do is relatively low, and think that it is not in line with one's own identity, don't feel embarrassed, hesitate, and do it decisively, that is the servant's heart.
+If what the guru instructs to do is relatively simple, thinking that it is beneath you, you shouldn't feel embarrassed or hesitate, and just do it decisively, that is the servant's heart.
 
-Once upon a time, there was a gathering place for great translators and wise men in the back of Tibet. There was a mud flat there. Zhong Dunpa took off his clothes to clean up the mud, and then spread a layer of clean white clay. He was still in front of Venerable Atisha. Made an altar.
+Once, for example, the scholar Atisha and all his translators had to stay in Tsang in an area of sewage and mud. Geshe Drom-dòn-ba took off all his clothes and cleaned up the filth. He covered the area with dry white earth, from where no one knows. He even built a [stone and earth] mandala in front of the Elder Atisha.
 
-His Holiness was very happy when he saw it, smiled and said, "It's amazing that there are people like you in India, but in Tibetan places are very rare."
+His Holiness was very happy when he saw it, smiled and said, "It's rare to find people like you in India, but in Tibet it is very rare."
 
-In fact, as Zhongdumba, he could instruct others to do the dirty work, but he still did it himself.
+ "Ah-ray! I had one like you in India, too." 
 
-That is to say, when serving the guru, as long as it can benefit the guru, no matter whether it is big or small, honor or disgrace, you must do your best.
+In fact, Dromtonpa could instruct others to do the dirty work, but he still did it himself.
+
+That is to say, when serving the guru, as long as it can benefit the guru, no matter whether it is big or small, honourable or disgraceful, you must do your best.
 
 69
 
-(3) The people of the lower class are the people of the heart, which is widely called "the removal of the unclean people".
+(3) an attitude like a sweeper 
+
+Means to eliminate completely all pride and feelings of superiority, and consider yourself to be lower than your guru.
+
+The people of the lower class are the people of the heart, which is widely called "the removal of the unclean people".
 
 India has a caste system. This kind of people is a lower caste. Because they have lived at the bottom of the society for generations, they are very humble.
 
 The subordination of the human heart means that when doing things for the guru, one should be respectful and not have any thoughts of "arrogance" and "too slow", and always maintain a humble attitude to serve the guru.
 
-Master Zhongdunpa said: 
+Master Dromtonpa said: 
 
-"I am slow to the high hills, and do not go out of the waters of virtue."
+"The water of good qualities does not collect on the heights of pride."
 
 It means that arrogance is like the top of a mountain and cannot accumulate merit water.
 
-Shu Owa also said: 
+Jen-nga-wa also said: 
 
-"At the beginning of spring, you should look at the high places on the top of the mountain, where the blue color grows everywhere, and the low places in the valleys and pits start first."
+"In the planting time of spring, look at whether the green growth comes from the high mountain peaks or from the low valleys."
 
-It means that in early spring, looking at the tops and valleys, where the grass grows first, it must be the grass that grows first in the low-lying areas, and then slowly grows to the top of the mountain.
+It means that in early spring, looking at the tops of the mountains and valleys, the grass that grows first in the low-lying areas, and then slowly grows to the top of the mountain.
 
 Therefore, it is said that only by being humble and low can you grow your merits. If I am slow to pay tribute to the higher, not only do I have no merits, but there are also faults.
 
-(4) Chechengxin 70
+(4) an attitude like a foundation, means to take on even the heavy responsibilities of the most arduous activities of your guru with pleasure. 
+
+70
 
 Even if the task that the master asks to be done is very arduous, the responsibility is heavy, and it is beyond one's own ability, like a carriage that can bear the load, he must bravely undertake it, take it all down, and then find a way to complete it.
 
-To be able to take on heavy responsibilities and to be the backbone of the master's preaching of the Dharma is to ride the heart.
+To be able to take on heavy responsibilities and to be the backbone of the master's preaching of the Dharma is the attitude of the cart.
 
-(5) A righteous dog can endure humiliation and does not abandon his master, just like a righteous dog that never leaves its master.
+(5) an attitude like a dog, means not to get angry even when your guru despises or berates you.  
+
+A righteous dog can endure humiliation and does not abandon his master, just like a righteous dog that never leaves its master.
 
 Here is how to deal with the scolding of the guru.
 
-When a disciple has made a big mistake, if the master wants to scold it, it is actually a good thing. Simply saying that the disciple may not listen to it, and will mistakenly regard the fult as a merit.
+When a disciple has made a big mistake, and the master to scolds him, it is actually a good thing. If the master simply speaks nicely the disciple may not listen to it, and will mistakenly regard the fault as a merit.
 
-The teacher's scolding is a blessing. It should not be simply considered that the teacher lost his temper, nor should he be angry. As a disciple, you must have such wisdom.
+The teacher's scolding is a blessing. It should not be simply considered that the teacher lost his temper, nor that he is angry. As a disciple, you must have such wisdom.
 
-There is a sentence in the "Eight Thousand Poems of Prajna", which is translated into modern language: If the master seems to scold the person who came to seek the Dharma, and then ignored it after scolding, in this case, the Dharma seeker Not only should people not give up, but they should also seek the Dharma more diligently.
+There is a sentence in the "Perfection of Wisdom in Eight Thousand Lines", which is translated into modern language: 
 
-Because the rectification of the Dharma is difficult to obtain, sometimes the guru does not teach the Dharma. It may be due to the fact that the disciple’s current blessings are not enough, and the precepts cannot be kept pure. At this time, the disciple must understand the guru and act according to the teacher.
+Even if the instructors of the teachings seem to despise and to ignore those who want their teachings, do not challenge them. 
+
+Persist tirelessly and respectfully, and diligently seek the teachings. 
+
+Because the connection to the Dharma is difficult to obtain, sometimes the guru does not teach the Dharma. It may be due to the fact that the disciple’s current blessings are not enough, and the required vows cannot be kept. At this time, the disciple must understand the guru and act according to the teacher's will.
 
 71
 
-(6) The heart of sailing the boat is not tired of doing anything for the guru, and is not afraid of trouble. This is the heart of sailing the boat.
+(6) 
 
-No matter how heavy, numerous, troublesome, or repeated things the guru instructs you, you must persevere as a disciple, and you can't get bored or complain.
+The heart of sailing the boat is not tired of doing anything for the guru, and is not afraid of trouble. This is the heart of sailing the boat.
 
-According to the biography of Venerable Milarepa, Guru Marpa asked Milarepa to build a house, as long as he did it alone. No one else was allowed to help.
+No matter how heavy, numerous, troublesome, or repeated things the guru instructs you to do, you must persevere as a disciple, and you can't get bored or complain.
 
-When it was about to be finished, he immediately picked on the faults and asked him to dismantle it. After dismantling, he also asked him to put all the stones back in their original place and arrange it properly.
+According to the biography of Venerable Milarepa, Guru Marpa asked Milarepa to build a house, and that he had to do it alone. No one else was allowed to help.
 
-It was built and demolished in this way, and it was demolished and built again. After going back and forth, I don’t know how many times, Milarepa carried the stone and worn out his back, and his bones were exposed.
+When it was about to be finished, Marpa immediately pointed out the faults and asked him to dismantle it. After dismantling, he also asked him to put all the stones back in their original place and arrange them properly.
 
-But Milarepa persisted in this way, and thus eliminated the karma of killing thirty-five people and horses with the secret mantra in the past in order to avenge his parents. He achieved great achievements and became a Buddha in his lifetime.
+It was built and demolished in this way, and it was demolished and built again. After going back and forth, I don’t know how many times, Milarepa  wore out his back by carrying the stones, and his bones were exposed.
+
+But Milarepa persisted in this way, and thus eliminated the karma of killing thirty-five people and horses through black magic in the past in order to avenge his parents. He reached great enlightenment and became a Buddha in his lifetime.
 
 The meaning of the heart of sailing is the same. The ship is loaded with goods and comes and goes at sea, constantly loading and unloading.
 
-The disciple's commitment to the master should be like a sailing ship, not afraid of repetition, not bored, not complaining, and willing to bear it.
+The disciple's commitment to the master should be like a sailing ship, not afraid of repetition, not bored, not complaining, and willing to bear everything.
 
 72
 
-Master Tsongkhapa simply divided the nine attitudes into four parts: The first part, when getting along with the teacher, pay attention to observe and understand the teacher's will, and obey the teacher's will, which is the heart of filial piety.
+Master Tsongkhapa simply divided the nine attitudes into four parts: 
 
-The second part, after relying on the guru, pay attention to cherish and protect the dependence relationship with the guru, so as not to be damaged by the alienation of those who slander the master and slander the Dharma, which is the vajra heart.
+The first part, when getting along with the teacher, pay attention to observe and understand the teacher's will, and obey the teacher's will, which is the heart of filial piety.
 
-The third part is to respect the master's cause of spreading the Dharma and benefiting students, to undertake all the important responsibilities for the master, to keep diligent and never slack off, which is the earth's heart.
+The second part, after relying on the guru, pay attention to cherish and protect the relationship with the guru, so as not to be damaged by the alienation of those who slander the master and disparage the Dharma. This is the vajra heart.
+
+The third part is to respect the master's cause of spreading the Dharma and benefiting sentient beings, to undertake all the important responsibilities for the master, to keep working and never slack off. This is the earth's heart.
 
 In the fourth part, the earth heart is divided into six areas: The unshakable belief in doing things for the guru is the mountain heart.
 
-When doing things, no matter the big or the small, being able to do it yourself is the servant's heart.
+When doing things, no matter how big or the small, being able to do it yourself is the servant's heart.
 
 To be humble and low-key when doing things is to be down-to-earth.
 
@@ -2175,125 +2233,151 @@ To be able to endure the master's scolding when doing things is a righteous dog'
 
 Being able to do things without fear of trouble and repetition is the heart of sailing.
 
-When serving the guru, use the nine attitudes to observe, compare and guide yourself, the merit will be great, the blessing will be great, and the progress will be faster.
+When serving the guru, use the nine attitudes to observe, compare and guide yourself, the merit will be great, the blessing will be great, and progress will be faster.
 
 73
 
-3. The merits of devotion and devotion There are three kinds of merits of devotion and devotion to the guru: natural blessing; spontaneous understanding; accelerated achievement.
+#### 3. The merits of piety and devotion 
 
-(1) Naturally, if you are blessed with sincerity and sincerity to your guru, you will naturally receive the blessings of your guru and all the Buddhas and Tathagatas.
+There are three kinds of merits of piety and devotion to the guru: natural blessing; spontaneous understanding; accelerated achievement.
 
-Master Bodova has a book called "The Blue Treasure Book", which is the most famous work of the Kadam School. The "Blue Treasure Book" says:
+(1) Naturally, if you are sincere and devoted to your guru, you will naturally receive the blessings of your guru and all the Buddhas and Tathagatas.
 
-The strength of the guru's blessing is not the guru's own.
+Master Potowa has a book called "The Blue Treasure Book", which is the most famous work of the Kadam School. 
 
-What is the size of the Guru's blessing? It mainly depends on the sincerity of the disciple.
+The "Blue Treasure Book" says:
 
-If the sincerity of the disciple is very great, the blessing of the guru will be very great, and the blessing of the Buddhas and Tathagatas will be very great.
+The extent of the guru's blessing is not the guru's own.
 
-If the sincerity of the disciple is not enough, he will not be able to receive the blessing of the master. Even if the master is the incarnation of Manjushri Bodhisattva or Avalokitesvara Bodhisattva, it is useless, and it is useless for Buddha Shakyamuni to speak the scriptures personally.
+What is the size of the Guru's blessing? 
 
-The greater the sincerity, the greater the blessing.
+It mainly depends on the devotion of the disciple.
+
+If the devotion of the disciple is very great, the blessing of the guru will be very great, and the blessing of the Buddhas and Tathagatas will be very great.
+
+If the devotion of the disciple is not enough, he will not be able to receive the blessing of the master. Even if the master is the incarnation of Manjushri Bodhisattva or Avalokitesvara Bodhisattva, it is useless, and it is useless for Buddha Shakyamuni to speak the scriptures personally.
+
+The greater the devotion, the greater the blessing.
 
 The Five Kagyu Laws also say:
 
-On the four-body snow-capped mountain of the master, if the sunshine of faith does not shine,
+On the four-body snow-capped mountain of the master, if the sunshine of devotion does not shine,
 
-The nectar of blessings will not flow out, and you should make more efforts in faith and vows.
+The nectar of blessings will not flow out, and you should make more efforts in devotion and vows.
 
-It shows that the strength of the disciple's blessing from the guru depends entirely on the strength of the disciple's belief and vows, that is, the strength of devotion to the guru and the strength of the will to pray for the guru's blessing.
+It shows that the strength of the disciple's blessing from the guru depends entirely on the strength of the disciple's devotion and vows, that is, the strength of devotion to the guru and the strength of the will to pray for the guru's blessing.
 
-(2) Self-generated comprehension
+(2) Self-awareness
 
-A devout and reverent teacher, you must comprehend the real truth because of faith, understanding, and understanding is not enough. Only when you understand it can it really work.
-Knowing and realizing are different. Knowing that you only gained the wisdom of hearing, realizing that you have obtained the wisdom of thinking, and realizing that you have obtained the wisdom of cultivation.
+1. With a devout teacher, faith gives birth to understanding
 
-For example, we all know the suffering of the six realms of reincarnation, and we understand the impermanence of life, but we still have a lot of troubles in our hearts, why?
+The real truth must be comprehended, but understanding it is not enough. Only after understanding it can it really work.
 
-Because I only understand those truths on the surface, but I haven't deeply realized and experienced them in my heart.
+Knowing and realizing are different. With knowing you only gained the wisdom of hearing, with realizing you have obtained the wisdom of thinking, and with real understanding you have obtained the wisdom of experience.
 
-For another example, if we realize the suffering of becoming one of the three sufferings, we can truly feel the suffering of being without support, and realize that apart from Buddhas and Bodhisattvas, everything else is unreliable.
+For example, we all know the suffering of the six realms of rebirth, and we understand the impermanence of life, but we still have a lot of troubles in our hearts, why?
 
-At this time, if someone does something against their will, they will not be troubled or suffer, but they will realize that people and things in the world are like this, and they are inherently unreliable, so why bother.
+Because we only understand those truths on the surface, but we haven't deeply realized and experienced them in our heart.
+
+For another example, if we realize the suffering of change within the three types of sufferings, we can truly feel the suffering of being without support, and realize that apart from Buddhas and Bodhisattvas, everything else is unreliable.
+
+At this time, if someone does something against their own will, you will not be troubled or suffer, but you will realize that people and things in the world are like this, and they are inherently unreliable, so why bother?
 
 In this way, you can truly let go of your worries.
 
-With devotion and devotion to the guru, your understanding will naturally increase, and you will realize many truths, until you realize that there is no ego in human beings and emptiness.
+With piety and devotion to the guru, your understanding will naturally increase, and you will realize many truths, until you realize emptiness of inherent self in human beings.
 
-In addition, if the disciple's sincerity is great, and the confidence in the master is high, understanding will naturally arise, and understanding will be enhanced.
+In addition, if the disciple's devotion is great, and the confidence in the master is high, understanding will naturally arise, and understanding will be enhanced.
 
 The Kagyu Master Guocangwa has achieved very high achievements. He said:
 
-High faith and aspiration, high comprehension, medium faith and aspiration, medium comprehension,
+High faith and aspiration, brings high comprehension, medium faith and aspiration, brings medium comprehension,
 
-The power of faith is low and the understanding is low. Correct faith is very important.
+If the power of faith is low, understanding will be low. 
+
+Correct faith is very important.
 
 If you have high faith and aspiration, your comprehension will naturally improve. In the end, your comprehension will be very high, you will realize a lot of truth, and you will eliminate a lot of troubles.
 
-For example, a water glass, once you realize its true nature, will not have the trouble of breaking the water glass, and will not be attached to it.
+For example, a water glass, once you realize its true nature, you will not be trouble by the water glass breaking, and will not be attached to it.
 
-Master Wensaba is an important patriarch of Gelug's teaching method. Like Venerable Milarepa, he has attained the perfect status of Double Luck Vajra Holder and attained the Vajra body of immortality, but he is not like Milarepa. Ba has been practicing asceticism for a long time, but he has achieved success very easily.
+Master Gyalwa Wensapa (1505–66) was an important patriarch of the Gelugpa school. He achieved enlightenment in one brief lifetime like the famous yogi Milarepa. Unlike Milarepa, Gyalwa Wensapa achieved enlightenment without having to endure such hardship. 
 
-Master Winsaba said:
+Master Wensapa said:
 
-The high and low levels of enlightenment and enlightenment depend entirely on the power of meditation, faith, and aspiration.
+The high and low levels of enlightenment and awakening depend entirely on the power of meditation, faith, and aspiration.
 
 76
 
-This is the experience of Master Wensaba, which shows that the key to the master's achievement is that through meditation on the power of faith and aspiration to the master, the understanding is improved, and the achievement is achieved.
+This is the experience of Master Wensapa, which shows that the key to the master's achievement is that through meditation on the power of faith and aspiration to the master, the understanding is improved, and the achievement is achieved.
 
 The Seventh Dalai Lama also said:
 
-To promote the realization of achievement, the guru's blessing is the most powerful, which in turn relies on the power of faith and vow, because prayers must be made sincerely.
+To promote the realization of achievement, the guru's blessing is the most powerful, 
+
+This in turn relies on the power of faith and vow, because prayers must be made sincerely.
 
 In a word, the greater the faith in the guru, the greater the blessing; the greater the blessing, the greater the understanding; the greater the understanding, the greater the achievement.
 
 Therefore, the power of faith and aspiration triggered by devotion to the guru is the secret to generating enlightenment. If the power of faith and aspiration reaches a certain level, it will naturally induce a sense of enlightenment.
 
-The power of faith and vows is high, and Nagarjuna Bodhisattva has five disciples, one of whom is named Longbodhi, who has great faith and vows to Nagarjuna Bodhisattva.
-Once, Nagarjuna Bodhisattva was tired and spit out some saliva. He immediately took it with his hands and ate it as the nectar blessed by the Bodhisattva. His comprehension improved immediately, and he realized emptiness the next day.
+##### 2. If the power of faith and aspiration is high，there is merit of understanding
 
-This is the behavior of a person with a very strong faith and will. If the faith and will is not at this level, it is useless to do so.
+Nagarjuna Bodhisattva had five disciples, one of whom was named Longbodhi, who has great faith in Nagarjuna Bodhisattva.
+
+Once, Nagarjuna Bodhisattva was tired and spit out some saliva. Longbodhi immediately took it with his hands and ate it as the nectar blessed by the Bodhisattva. His comprehension improved immediately, and he realized emptiness the next day.
+
+This is the behavior of a person with a very strong faith and pure motive. If the faith and will is not at this level, it is useless to do so.
 
 77
 
-Once, Naropa was walking with his master Tilopa, and Tilopa brought Naropa to a tomb, and there was a dead body in the tomb, and Tilopa brought the rotten head of the corpse, Put it in a kabbalah, hand it to Naropa and say, "If you have enough faith in me, you can eat it, and if you don't have enough faith, don't eat it."
+Once, Naropa was walking with his master Tilopa, and Tilopa brought Naropa to a tomb, and there was a dead body in the tomb, and Tilopa brought the rotten head of the corpse, put it in a skull-cap, handed it to Naropa and said, "If you have enough faith in me, you can eat it, and if you don't have enough faith, don't eat it."
 
-Master Naropa's faith and sincerity in Master Tilopa was very great, so he ate it and achieved it in his lifetime.
+Master Naropa's faith and devotion to  Master Tilopa was very great, so he ate it and achieved enlightenment in his lifetime.
 
-There are some Buddhists in Tibet who take back the water that the master used to wash his feet and face, and use it to wash his face and bathe, hoping to get the blessing of the master.
+There are some Buddhists in Tibet who take away the water that the master used to wash his feet and face, and use it to wash their own face and bathe, hoping to get the blessing of the master.
 
-It is not impossible to do this, but it depends on whether the devotion, faith and aspiration to the guru are enough. If it is not enough, it will not work. If it is enough, using these things can improve the understanding.
+It is not impossible to do this, but it depends on whether the devotion, faith and aspiration to the guru are strong enough. If it is not strong enough, it will not work. If it is strong enough, these things can improve the understanding.
 
-(3) Accelerated achievement Respecting the guru with devotion will accelerate achievement, and achievement will be quick.
+(3) Accelerated achievement 
+
+Respecting the guru with devotion will accelerate achievement, and achievement will come sooner.
 
 Master Tilopa said:
 
+---
+
 That is, the body achieves the vajra practice,
 
-The ultimate way is the way of teachers,
+The ultimate way is the way of the gurus,
 
-The highest faith teacher.
+The highest faith in the gurur.
 
 By honoring the guru with the highest faith, the achievement will continue to improve.
 
+---
+
 The supreme belief is to see the guru as a real Buddha, a living Buddha.
 
-When one's belief is raised to this level, one can get the blessings of both big and quick, and it will be accomplished very quickly.
+When one's belief is raised to this level, one can get great blessings quickly, and it will be accomplished very quickly.
 
-Even just visualizing the guru without practicing the Dharma can be accomplished.
+Even just visualizing the guru without practicing the Dharma can bring success.
 
-Master Yanggongpa, a very accomplished guru of the Kagyu school, said:
+Master Yanggongpa (Gyalwa Yungtonpa), a very accomplished guru of the Kagyu school, said:
+
+---
 
 The master does not teach a single sentence of the Dharma, 
 
 the disciple does not meditate once,
 
- and once he becomes a Buddha, 
+and once he becomes a Buddha, 
  
- he believes in the master's path.
+he believes in the master's path.
 
-That is to say, when the sincerity of the disciple is so great that he can see that the teacher is a real Buddha, a living Buddha, even if he does not meditate or recite sutras, he will achieve success.
+---
+
+That is to say, when the devotion of the disciple is so great that he can see that the teacher is a real Buddha, a living Buddha, even if he does not meditate or recite sutras, he will achieve success.
 
 Guru is Buddha! 
 
@@ -2309,7 +2393,7 @@ To build an image of a guru, the merit is far better than,
 
 To make countless images for countless Buddhas.
 
-It shows that the merits and virtues of sculpting the statue of the Guru are far greater than the merits and virtues of sculpting countless Buddha statues.
+It shows that the merits and virtues of sculpting the statue of the guru are far greater than the merits and virtues of sculpting countless Buddha statues.
 
 Offering a photo or image of the guru has the same merit.
 
@@ -2317,33 +2401,35 @@ Reverently sculpting the image of the guru is the same as sculpting the statues 
 
 When Master Tsongkhapa built Ganden Monastery, most of the Buddha statues and mandala were ready, only the Buddha statue in the middle of the hall had not been built.
 
-Master Tsongkhapa said: "Disciples, this Buddha statue is up to you to build."
+Master Tsongkhapa said: 
 
-Everyone discussed: 
+"Disciples, it is up to you to build this Buddha statue."
+
+The disciples had a discussion: 
 
 What is the best way to build this most important Buddha statue? Finally, all the disciples agreed to build a statue of Shakyamuni Buddha.
 
-At this time, both Sera Monastery and Drepung Monastery chose the image of Master Tsongkhapa as the main Buddha statue in the center of the hall.
+At this time, both Sera Monastery and Drepung Monastery chose the image of Master Tsongkhapa as the main Buddha statue in the centre of the hall.
 
 After the Buddha statues of the three major monasteries were all built, Master Tsongkhapa said: 
 
-"It is very good to build the Buddha statue of Sakyamuni in Ganden Monastery, but Drepung Monastery and Sera Monastery built my statues. In the future, the Dharma relationship of Ganden Monastery will be inferior to that of Sera Monastery and Drepung Monastery.”
+"It is very good to build the Buddha statue of Sakyamuni in Ganden Monastery, but Drepung Monastery and Sera Monastery built statues of me. In the future, the Dharma relationship of Ganden Monastery will be inferior to that of Sera Monastery and Drepung Monastery.”
 
-Later, it turned out to be the case. Ganden Saichi was the throne of Master Tsongkhapa. Those who sat in this position were equivalent to the leaders of the Gelug sect. They were all the best teachers in the three monasteries. Among them, the most came from Sera Monastery and Drepung Monastery. Yes, there are very few from Ganden Monastery, because of the origin of the statue of the master.
+Later, it turned out to be the case. Ganden Saichi was the throne of Master Tsongkhapa. Those who sat in this position were equivalent to the leaders of the Gelug school. All the best teachers from the three monasterieswere there. Most of them came from Sera Monastery and Drepung Monastery. Yes, there were very few from Ganden Monastery, because of the origin of the statue of the master.
 
 80
 
-The origin of the statue of the guru is very good, and the statue of the teacher is the statue of the Buddha.
+The origin of the statue of the guru is very good, and the statue of the guru is the statue of the Buddha.
 
-Therefore, in the Great Sutra Hall of Tuola Temple, there are statues of Dharma King Yongzeng, Jiayang Xieba, and many teachers.
+Therefore, in the Great Sutra Hall of Tuole Temple, there are statues of Dharma King Yongzeng, Jiayang Xieba, and many teachers.
 
-5. The merits of missing and praying
-
- the merits of praying to the guru, including the merits of thinking of the guru and the merits of praying to the guru.
+5. The merits of thinking about and praying to the guru
 
 (1) Remembering the merits of the guru
 
-In the case of the opposite, thinking of the master is better than thinking of the Buddhas. The merit of thinking of the master is to visualize the merit of the Buddhas and Tathagatas, and it is to visualize the merit of the deity.
+Thinking of the guru is better than thinking of the Buddhas. 
+
+The merit of thinking of the master is to visualize the merit of the Buddhas and Tathagatas, and it is to visualize the merits of the perssonal deity.
 Sometimes, if it is difficult to visualize the deity, just visualize the guru.
 
 The Canon of Oaths says:
@@ -2352,19 +2438,19 @@ The Canon of Oaths says:
 
 With a dignified body, contemplating a hundred thousand kalpas,
 
-It's not as good as a moment to miss the teacher.
+It's not as good as a moment thinking of the teacher.
 
-This means that contemplating the Buddha's thirty-two and eighty-sixty appearances, or the appearance of a bodhisattva or deity for 100,000 kalpas, is the same as thinking of the guru for a moment.
+This means that contemplating the Buddha's thirty-two and eighty-sixty marks, or the marks of a bodhisattva or deity for 100,000 kalpas, is the same as thinking of the guru for a moment.
 
 Therefore, the merit of thinking of the guru is very, very great! Many people say, "I can't visualize the deity, nor can I visualize Shakyamuni Buddha."
 
 In this case, it is enough to visualize the guru.
 
-Sometimes it's a little more difficult to visualize the guru, and that's the reason for karma.
+Sometimes it's a little more difficult to visualize the guru, and that's due to karma.
 
-When some people meditate on the guru, they can't remember what they think. Even the guru has just given them empowerment, but they even forget the guru's face. This is because the karma is relatively heavy.
+When some people meditate on the guru, they can't remember what they think. Even if the guru has just given them an empowerment, they forget the guru's face. This is because their karma is relatively heavy.
 
-In terms of practice, the master of contemplating the practice of the master is better than practicing Tantra, the second and second master Guo Cangwa said:
+In terms of practice, contemplating the practice of the master is better than practicing Tantra, the second Drukpa master Gotsangpa Gonpo Dorje (rgod tshang pa mgon po rdo rje, 1189-1258) said:
 
 Although there are many stages of generation, the method of visualizing the master is the best.
 
@@ -2372,23 +2458,25 @@ It is also stated in the Atisha Form Continuation:
 
 Give up sleep and hustle and bustle,
 
- and meditate on the path of perfection through eons.
+and meditate on the path of perfection through eons.
 
 No more than an instant in my mind, visualize the tenth of the masters.
 
-Whether our practice can be successful or not depends on two aspects. The first aspect is to see if one has achieved Guru Yoga, and is able to visualize that the Guru and the Buddha are indistinguishable. When there is a belief in the mind that "the guru and the Buddha are indistinguishable", the achievement will be very Dharmast.
+Whether our practice can be successful or not depends on two aspects. The first aspect is to see if one has achieved Guru Yoga, and is able to visualize that the Guru and the Buddha as indistinguishable. When there is a belief in the mind that "the guru and the Buddha are indistinguishable", the achievement will be very fast.
 
 The second aspect is to practice the second stage of Tantra on the basis of the achievement of Guru Yoga, so that one can quickly become a Buddha.
 
-At this time, if you visualize any deity, such as King Matou Ming, as long as you visualize the same as the master, there will be blessings, and there will be two kinds of blessings, big and quick.
+At this time, if you visualize any deity, such as Hayagrīvag, as long as you visualize the same as the master, there will be blessings, and there will be two kinds of blessings, immense and quick.
 
-If we only have faith in Buddhas and Bodhisattvas, due to our heavy karma, no matter how great the blessings of Buddhas and Bodhisattvas are, it will be difficult for us to obtain them, and achievement will be slow.
+If we only have faith in Buddhas and Bodhisattvas, due to our heavy karma, no matter how great the blessings of Buddhas and Bodhisattvas are, it will be difficult for us to obtain them, and enlightenment will be slow.
 
-For future generations, it is easier to be reborn in the Pure Land when you miss your guru. The merits of missing your guru are very, very great, especially when you are dying. If you can miss your guru, you will definitely be reborn in the Pure Land. This is 100%!
+For future generations, it is easier to be reborn in the Pure Land when you think of your guru. The merits of thinking of your guru are very, very great, especially when you are dying. If you can think of your guru, you will definitely be reborn in the Pure Land. This is 100% sure!
 
-The tantra classic "The Good Army Request Continuation" says: "When a person is dying, he can transfer his consciousness to rebirth when he misses his teacher."
+The tantra classic "The Good Army Request Tantra" says: 
 
-Buddhist practitioners, if they do not achieve success in this life, when they die, no matter how heavy their karma is, as long as they can remember their guru, and through the power of faith in the guru's Three Jewels, they will surely be able to transfer their consciousness to rebirth. Outstanding.
+"When a person is dying, he can transfer his consciousness to a better rebirth when he thinks of his teacher."
+
+Buddhist practitioners, if they do not achieve enlightenment in this life, when they die, no matter how heavy their karma is, as long as they can remember their guru, and through the power of faith in the guru's Three Jewels, they will surely be able to transfer their consciousness to a better rebirth. Outstanding.
 
 83
 
@@ -2396,19 +2484,19 @@ Tibetan Buddhism has the Powa method of transferring consciousness to rebirth, a
 
 Therefore, by relying on oneself one may not really be able to be reborn in the Pure Land.
 
-However, when you are dying, if you can really think of your guru and miss your guru, you will definitely be reborn in the Pure Land!
+However, when you are dying, if you can really think of your guru and yearn for your guru, you will definitely be reborn in the Pure Land!
 
-In terms of career, it is easier to miss the guru as you wish. If you miss your guru often, your career will be as wishful and easy to accomplish.
+In terms of living, it is easier to think of the guru whenever you wish. If you think of your guru often, your life will be as wishful and easy to accomplish.
 
 The Tibetan version of the Huayan Sutra says:
 
-Always keep the teacher in mind, 
+If you always keep the teacher in mind, 
 
-everything is easy to accomplish.
+Everything will be easy to accomplish.
 
 The same is true for the cause of Buddhism. If you miss your guru often, you will easily get the blessings of the Buddhas and Tathagatas.
 
-Master Tsangpa Gyare once said:
+Master Tsangpa Gyarepa once said:
 
 As long as the mind does not leave the teacher,
 
@@ -2426,15 +2514,15 @@ Because only through the guru can the blessings of the Buddhas and Tathagatas be
 
 (2) Praying for the guru's merits
 
- Often praying to the guru, such as reciting the guru's prayer, the merit is also very, very great.
+Often praying to the guru, such as reciting the guru's prayer, the merit is also very, very great.
 
-Because reciting the guru's prayers is the same as reciting the prayers of the Buddhas and Tathagatas, so there is such a great merit.
+Because reciting the guru's prayer is the same as reciting the prayers of the Buddhas and Tathagatas, so there is such a great merit.
 
-Master Guocangwa said that it is better to pray to the master once to recite the mantra thousands of times.
+Master Gotsangpa Gonpo Dorje (rgod tshang pa mgon po rdo rje, 1189-1258) said that it is better to pray to the master once than to recite the mantra thousands of times.
 
 Reciting the guru's prayer once is the same as reciting the mantra thousands of times.
 
-We can also recite Master Tsongkhapa's prayer:
+We can also recite Master Tsongkhapa's prayer (Migstema):
 
 ---
 >
@@ -2451,15 +2539,15 @@ We can also recite Master Tsongkhapa's prayer:
 
 ---
 
-Frequently reciting the prayers of Master Tsongkhapa will have the merits of reciting the prayers of all Buddhas, Tathagatas, lineage masters, and root masters. It is very, very special.
+Frequently reciting the prayer of Master Tsongkhapa will have the merits of reciting the prayers of all Buddhas, Tathagatas, lineage masters, and root masters. It is very, very special.
 
 85
 
-6. The merits of the Buddha's reverence 
+6. The merits of reverence for the Buddha 
 
-(1) The guru is the prophecy of the Buddha according to the scriptures, and all masters with virtue are the manifestations of all Buddhas and Bodhisattvas.
+(1) The guru is Buddha according to the scriptures, and all masters with virtue are the manifestations of all Buddhas and Bodhisattvas.
 
-For example, in the "Baoji Sutra: The Meeting of fathers and Sons", the Buddha said:
+For example, in the "Heap of Jewels Sutra: The Meeting of fathers and Sons", the Buddha said:
 
 After I attain Nirvana, I shall transform into the body of a guru to benefit all sentient beings.
 
@@ -2473,7 +2561,7 @@ At the end of the Dharma, I am now a master.
 
 The Vajra Sutra says:
 
-At the end of the turbid world, I appeared to be a good teacher and spoke.
+At the end of the turbid world, I appeared as a good teacher and spoke.
 
 The Vajra Body Tantra says:
 
@@ -2507,9 +2595,9 @@ For example, making a vow:
 
 I will save all sentient beings."
 
-Therefore, after becoming a Buddha, he will surely come to save us.
+Therefore, after becoming a Buddha, he will surely come to help us.
 
-When the blessings of human beings are very great, the Buddha can manifest himself in person to save sentient beings; when the blessings of people are small and greed, hatred and delusion are very great, even if the Buddha appears, sentient beings will not be able to see it.
+When the blessings of human beings are very great, the Buddha can manifest himself in person to save sentient beings; when the blessings of people are small and greed, hatred and delusion are very great, even if the Buddha appears, sentient beings will not be able to see him.
 
 So, what method is used to save sentient beings? The Buddha merged into the body of the master to save sentient beings.
 
@@ -2517,9 +2605,9 @@ Many times, the Buddhas and Tathagatas merge into the body of the guru, or trans
 
 Therefore, the disciple should regard the guru as the Buddha.
 
-Treat your guru as a Buddha and you will receive the blessing of a Buddha; as a Bodhisattva, you will receive the blessing of a Bodhisattva; as an ordinary person, you will have no blessing, because ordinary people have no blessing.
+Treat your guru as a Buddha and you will receive the blessing of a Buddha; Treat him as a Bodhisattva, you will receive the blessing of a Bodhisattva; Treat him as an ordinary person, and you will have no blessing, because ordinary people cannot give blessings.
 
-Some people have multiple masters. We are not sure whether these masters are all Buddhas, but according to Buddhist scriptures and tantras, due to the bodhisattva's vow to become a Buddha, at least one Buddha will be integrated into the master's. Physically, that's for sure.
+Some people have several masters. We are not sure whether these masters are all Buddhas, but according to Buddhist scriptures and tantras, due to the bodhisattva's vow to become a Buddha, at least one Buddha will be integrated into the master. Physically, that's for sure.
 
 As for which Buddha was integrated into the guru, or the body of which guru the Buddha integrated into, it is not certain.
 
@@ -2527,7 +2615,7 @@ As for which Buddha was integrated into the guru, or the body of which guru the 
 
 Therefore, if we treat all the teachers we have taken refuge with as Buddhas, we will surely receive the blessings of the Buddhas and Tathagatas.
 
-Sometimes, it is necessary to regard Buddhas, Bodhisattvas, and Buddhas as incarnations of teachers, and the merits of such visualization are even greater.
+Sometimes, it is necessary to regard teachers as incarnations of Buddhas and Bodhisattvas, and the merits of such visualization are even greater.
 
 (2) The Buddhist scriptures on merit and virtue as viewed by the Buddha
 
@@ -2539,11 +2627,11 @@ To believe is to believe sincerely.
 
 It means that the power of the Three Jewels of Believing in the Guru is incredible, and the good deeds and blessings obtained are also inconceivable.
 
-Because the Buddha is inconceivable, the results obtained by taking the guru as a Buddha and taking refuge with sincerity are also inconceivable.
+Because the Buddha is inconceivable, the results obtained by taking the guru as a Buddha and taking refuge with devotion are also inconceivable.
 
-From this point of view, it is very important to take refuge in regard to the guru and the Buddha as one and the same.
+From this point of view, it is very important to take refuge and regard the guru and the Buddha as one and the same.
 
-There is a biography called "Jinwen Dawa Biography", which tells about the incarnation of a Avalokitesvara Bodhisattva. 
+There is a biography called "Jinwen Dawa Biography", which tells about the incarnation of Avalokitesvara Bodhisattva. 
 
 The biography says:
 
@@ -2553,11 +2641,11 @@ he regards the master as one Buddha, one body.
 
 All good virtues develop the power,
 
- and all the disciples of the Buddha practice the Way together.
+and all the disciples of the Buddha practice the Way together.
 
-It means: to cultivate the heart of faith and refuge in the guru to the extent that it is consistent with the heart.
+It means: to cultivate the heart of devation and refuge in the guru to the extent that it is consistent with the heart.
 
-When we praise the guru as a Buddha in our mouth, and see the guru as a Buddha in our heart, we see that the guru and the Buddha are indistinguishable.
+When we praise the guru as a Buddha in our speech, and see the guru as a Buddha in our heart, we see that the guru and the Buddha are indistinguishable.
 
 88
 
@@ -2571,11 +2659,11 @@ With this thought in mind,
 
 all good things will arise.
 
-Guru Marpa was majoring in the Hevajra deity. One morning, while Guru Marpa was still sleeping, his master, Master Naropa, manifested Hevajra in the sky, and then woke Guru Marpa. Said: 
+Guru Marpa was studying in the Hevajra deity. One morning, while Guru Marpa was still sleeping, his master, Master Naropa, manifested Hevajra in the sky, and then woke Guru Marpa. Said: 
 
-"You get up now and go outside and have a look."
+"Get up now and go outside and have a look."
 
-Master Marpa went out and looked at it and said, "It's nothing.
+Master Marpa went out and looked, and said, "It's nothing.
 
 Master Naropa said: 
 
@@ -2589,61 +2677,65 @@ Master Naropa asked Guru Marpa,
 
 Master Marpa thought: 
 
-"The teacher is always in front of me, and there are many opportunities to bow to the teacher, but there are not many opportunities to bow to the Hevajra. 
+"The teacher is always in front of me, and there are many opportunities to bow to the teacher, but there are not many opportunities to bow to Hevajra. 
 
-I want to bow to the Hevajra."
+I want to bow to Hevajra."
 
-Master Marpa gave the Hevajra three obeisances.
+Master Marpa bowed to Hevajra three obeisances.
 
-At this time, Master Naropa said, "Without a guru, there would be no Buddha, Bodhisattva, or yidam.
+So, Master Naropa said, "Without a guru, there would be no Buddha, Bodhisattva, or yidam.
 
- Buddhas, bodhisattvas, and yidams are all transformed and manifested by a guru."
+Buddhas, bodhisattvas, and yidams are all transformed and manifested by a guru."
 
-After he finished speaking, he took back Hejingguo and integrated it into his heart.
+After he finished speaking, he took back Hevajra and dissolved it into his heart.
 
 Then he said to Master Marpa, "In the future, the lineage of your descendants will not last long.
 
-This morning, if you had bowed to your guru first, the continuation of the lineage of your descendants would have been very good, but you didn't. 
+This morning, if you had bowed to your guru first, the continuation of the lineage of your descendants would have been very good, but you didn't. "
 
-"It turned out to be so.
+It turned out to be so.
 
 Guru and Buddhas and Bodhisattvas are indistinguishable, and when one bows to the master, one bows to the Buddhas and Tathagatas.
 
-When Guru Marpa bowed to the Hevajra, he did not necessarily bow to Naropa, but if he bowed to Naropa, he bowed to the Hevajra.
+When Guru Marpa bowed to the Hevajra, he did not necessarily bow to Naropa, but if he had bowed to Naropa, he would also have been bowing to Hevajra.
 
-When we cultivate Vajrasattva, we must visualize that Vajrasattva is indistinguishable from the guru, and is indistinguishable from the Buddhas, Tathagatas, and the four deities.
+When we cultivate Vajrasattva, we must visualize that Vajrasattva is indistinguishable from the guru, and indistinguishable from the Buddhas, Tathagatas, and the four deities.
 
-With this state of mind, reciting the hundred-syllable mantra once is equivalent to reciting the mantras of the Buddhas and Tathagatas, and is equivalent to reciting the mantras and fundamental mantras of the four deities.
+With this state of mind, reciting the hundred-syllable mantra once is equivalent to reciting the mantras of the Buddhas and Tathagatas, and is equivalent to reciting the heart mantras and fundamental mantras of the four deities.
 
-If you don't have this mentality, you won't have so much merit when reciting the hundred-syllable mantra.
+If you don't have this attitude, you won't have so much merit when reciting the hundred-syllable mantra.
 
 There are many kinds of Guru Yoga: 
 
-Guru Yoga of Avalokitesvara is to visualize the teacher and Avalokitesvara as indistinguishable; Guru Yoga of Manjushri is to visualize the Guru and Manjushri as indistinguishable; Tsongkhapa Master's guru yoga is to visualize that the guru and Tsongkhapa are indistinguishable.
+Guru Yoga of Avalokitesvara is to visualize the teacher and Avalokitesvara as indistinguishable; Guru Yoga of Manjushri is to visualize the Guru and Manjushri as indistinguishable; Master Tsongkhapa's guru yoga is to visualize that the guru and Tsongkhapa are indistinguishable.
 
-In any kind of guru yoga, the guru and the Buddha and Bodhisattva must be regarded as indistinguishable, and the guru and the deity are indistinguishable.
+In any kind of guru yoga, the guru, the Buddha and Bodhisattvas must be regarded as indistinguishable, and the guru and the deities are indistinguishable.
 
-When practicing the deity, in order to obtain the corresponding, you also need to first practice guru yoga.
+When practicing the deity (yidam), in order to obtain the corresponding benefit, you also need to first practice guru yoga.
 
 Vajrapani Bodhisattva once said to Master Nanka Gyaltsen:
 
 90
 
-"You should know that you have not yet cultivated great respect for your guru, but you are lying when you say that you have seen the deity in person and that understanding has arisen in your heart... Relying on your guru, you should treat your guru like a Buddha with confidence."
+"You should know that you have not yet cultivated great respect for your guru, 
 
-Therefore, we must understand that all the deities we meditate on are the manifestations of our masters. If we can’t cultivate in accordance with our masters, how can we correspond to deities? Only by practicing Guru Yoga and practicing the deity can you achieve rapid achievement.
+but you are lying when you say that you have seen the deity in person and that understanding has arisen in your heart... 
 
-The first emphasis of tantric practice is to take refuge in the guru and the Three Jewels. If there is no faith in the guru to be a Buddha, the practice of tantra will not be successful.
+Relying on your guru, you should treat your guru like a Buddha with confidence."
 
-The blessing of the master is like an iron hook, and the disciple's faith and vows are like an iron ring. Without this ring, the iron hook cannot hook anything.
+Therefore, we must understand that all the deities we meditate on are the manifestations of our masters. If we can’t cultivate in accordance with our masters, how can we correspond to deities? Only by practicing Guru Yoga and practicing the deity can you achieve rapid enlightenment.
+
+The first emphasis of tantric practice is to take refuge in the guru and the Three Jewels. If there is no faith in the guru as a Buddha, the practice of tantra will not be successful.
+
+The blessing of the master is like an iron hook, and the disciple's faith and vows are like an iron ring. Without this ring, the iron hook cannot catch onto anything.
 
 (3) The merits and virtues of the Buddha's reverence include the reverence of body, speech and mind.
 
-Physical reverence includes prostration, prostration, and reverence in actions and behaviors when in contact with the guru; verbal reverence includes admiration and praise of the teacher’s virtue on all occasions, as well as reverence in words when talking with the guru.
+Physical reverence includes prostration, bowing, and reverence in actions and behaviors when in contact with the guru; verbal reverence includes admiration and praise of the teacher’s virtue on all occasions, as well as reverence in words when talking with the guru.
 
-Respect includes respect and love for the guru from the heart, and a heart of love and respect for the guru who sincerely takes refuge in the guru.
+Respect includes respect and love for the guru from the heart, and an attitude of love and respect for the guru by sincerely taking refuge in the guru.
 
-Since the guru is the incarnation of the Buddhas and Tathagatas, if you pay homage to the guru, you will have the merit of respecting the Buddhas, and you will be able to accumulate a huge amount of merit.
+Since the guru is the incarnation of the Buddhas and Tathagatas, if you pay homage to the guru, you will have the merit of respecting all the Buddhas, and you will be able to accumulate a huge amount of merit.
 
 91
 
@@ -2653,39 +2745,45 @@ Respecting the guru with body, speech, and mind is the source of all good virtue
 
 92
 
-Section 3 - Sins of Disrespecting the Guru 
+#### Section 3 - Sins of Disrespecting the Guru 
 
-Not respecting the Guru is not respecting the Buddhas and Tathagatas, which is a very serious sin.
+Not respecting the Guru is not respecting the Buddhas and Tathagatas, which is a very serious fault.
 
-After worshiping a teacher, one must respect the teacher and do what the teacher says; do not disobey the teacher, let alone slander and slander the teacher.
+After taking a teacher, one must respect the teacher and do what the teacher says; do not disobey the teacher, let alone slander and disparage the teacher.
 
-Once a master-disciple relationship is established, if you have doubts about your guru, or have other impure thoughts or words and deeds, it is a very serious evil karma.
+Once a master-disciple relationship is established, if you have doubts about your guru, or have other impure thoughts or words and deeds, it can bring very serious evil karma.
 
-Especially after receiving the tantric empowerment, if you don't respect the guru, you will not only violate the tantric precepts, but also go to hell, and you will not be able to achieve it after countless kalpas.
+Especially after receiving the tantric empowerments, if you don't respect the guru, you will not only violate the tantric precepts, but also go to hell, and you will not be able to achieve liberation even after countless kalpas.
 
 The sin of disrespecting the guru is divided into three aspects: body, speech, and mind.
 
-1. The sins of the body include the sins of disrespecting the guru, including the shadow of disrespecting the guru.
+1. The sins of the body include the sins of disrespecting the guru, including disrespecting the shadow of the guru.
 
 If you step on the guru's shadow with malice, it is equivalent to destroying a stupa.
 
-In other respects, it is also a great sin to sit on the guru's cushion, throne, or to step on the guru's robe and bedding without the master's permission.
+In other respects, it is also a great sin to sit on the guru's cushion, throne, or to step on the guru's robe or bedding without the master's permission.
 
 93
 
-In the past, there were small living Buddhas who were mistakenly identified in the Tibetan area and were placed on the cushions of the large living Buddhas who had passed away. Because the blessings are not enough, it is also very pitiful.
+In the past, there were small living Buddhas who were mistakenly identified in Tibet and were placed on the cushions of the large living Buddhas who had passed away. Because the blessings were not enough, it was also very pitiful.
 
 2. The guilt of speech 
 
-The guilt of speech includes two parts: slandering the teacher and violating the teacher's words.
+The guilt of speech includes two parts: slandering the teacher and disobeying the teacher.
 
-No matter what the reasons are, the consequences of slandering and slandering the master are extremely serious. The result is that even the Buddha cannot bear to elaborate, and the future generations will definitely fall into the endless hell.
+No matter what the reasons are, the consequences of slandering and disparaging the master are extremely serious. The result is that even the Buddha cannot bear to listen, and future generations will definitely fall into the endless hell.
 
-In the Vajrapani Empowerment Sutra, Vajrapani asked the Buddha, "Bhagavan, if there are those who despise Acharya, how familiar should they feel?"
+In the Vajrapani Empowerment Sutra, Vajrapani asked the Buddha, 
 
-The Buddha replied: "Vajra Hand, don't say anything like that, all the gods and the human world are terrifying! The secret master, of course, should say a little:
+"Bhagavan, if there are those who despise Acharya, how familiar should they feel?"
 
-Warriors should listen carefully, I say no time to wait,
+The Buddha replied: 
+
+"Vajrapani, don't speak like that, all the gods in the human world are terrifying! 
+
+The Bhagavan, of course, should say a little:
+
+Warriors should listen carefully, I say there is no time to wait,
 
 The hells of extreme suffering are where they are born,
 
@@ -2699,53 +2797,55 @@ The Buddha considered that if he answered Vajrapani in detail, it would cause gr
 
 Therefore, under no circumstances should one despise or slander the guru.
 
-Not only can you not despise and slander your guru yourself, but it is also not good to contact and talk with those who slander your guru.
+Not only can you not despise and slander your guru yourself, but it is also not good to keep contact and talk with those who slander your guru.
 
-Even those who slander the guru in the dream will be regarded as unlucky.
+Even those who disparage the guru in dreams will be regarded as unlucky.
 
 As the tantra says:
 
 Don't say anything to destroy the teacher, you don't want to see it in your dreams.
 
-He also said: "Those who slander the guru will not only fail to practice tantra, but also their best friends will fail to achieve success."
+It was also said: 
+
+"Those who slander the guru will not only fail to practice tantra, but also their best friends will fail to achieve success."
 
 Therefore, not only can you not make friends with people who detract from your guru, but you will also be affected by their evil spirits even if you approach them.
 
-One must be careful when contacting fellow Vajra brothers. Even if it is a good friend, if he finds out that he has slandered or slandered the guru, he should persuade him with kind words and ask him to go to the guru to repent immediately, or stay away from him if he cannot persuade him.
+One must be careful when contacting fellow Vajra brothers. Even if he is a good friend, if you find out that he has slandered or disrespected the guru, you should persuade him with kind words and ask him to go to the guru to repent immediately, or stay away from him if you cannot persuade him.
 
-Don't make up your mind because everyone has a good relationship, and finally break your own life.
+Above all, don't destroy your own life by failing to make up your mind just because everyone has a good relationship.
 
 (1) The sin of slandering the guru
 
-Slandering the guru is the crime of slandering all the Buddhist scriptures that say:
+Slandering the guru is the crime of disparaging all the Buddhist scriptures that say:
 
 For his savior, if his disciples slander him,
 
-Because of slandering the Buddhas, their people suffer a lot.
+Because of slandering the Buddhas, other people suffer a lot.
 
 95
 
 The guru is the savior who frees sentient beings from the suffering of samsara. To slander the guru is to slander the Buddhas and Tathagatas.
 
-Buddhas and Tathagatas transform into ready-made masters, or integrate into masters to save sentient beings. They are the greatest and most profound fields of blessing for sentient beings.
+Buddhas and Tathagatas transform into ready-made masters, or merge with masters to save sentient beings. They are the greatest and most profound fields of blessing for sentient beings.
 
 To make offerings to one master is to make offerings to all Buddhas, and to slander one master is to slander all Buddhas. This kind of bad karma will lead to all kinds of misfortunes, diseases, and disasters.
 
-Slandering the guru, cultivating secret methods cannot be accomplished. Some people worship the guru and participate in the empowerment, and scolding the guru on the way back. This is a very, very sinful act!
+Slandering the guru, training in tantric methods cannot be done. Some people worship the guru and participate in the empowerment, and then find fault with the guru on the way back home. This is a very, very sinful act!
 
-Once you are a teacher, you cannot scold or slander.
+Once you have a teacher, you cannot scold or slander him.
 
 If you want to scold or slander your guru, don't take refuge in that guru in the first place.
 
-Slandering the guru, for example, the guru has a big temper, gets angry every day, and says that the guru is greedy, looks dignified, does things unfairly, etc. This is a great sin!
+Slandering the guru, for example, if the guru has a hot temper, gets angry every day, and you say that the guru is greedy, looks undignified, does things unfairly, etc. This is a great sin!
 
-Those who have committed the five unrelenting sins have very heavy karma, and they will not be able to achieve the practice the Hinayana method, and it will be difficult to practice the method of the Mahayana sect.
+Those who have committed the five unrelenting sins have very heavy karma, and they will not be able to achieve the practice the Hinayana method, and it will be even more difficult to practice the method of the Mahayana.
 
 If you practice tantra and have enough devotion to your guru, you can eliminate these sins and even achieve enlightenment in a lifetime.
 
 96
 
-However, those who slander, beat and scold the guru will not be able to achieve anything by cultivating! The Dense Vajra Root Tantra says:
+However, those who slander, criticise and scold the guru will not be able to achieve anything by cultivating! The "Dense Vajra Root Tantra" says:
 
 Although the world has committed all kinds of sins that are inexhaustible and degenerate,
 
@@ -2759,22 +2859,21 @@ However, those who deliberately slander the guru will not succeed in cultivation
 
 In "Vajra Heart To Be Solemn" it says:
 
-If one slanders the guru, although diligence is the best,
+If one slanders the guru, 
+
+although diligence is the best,
 
 Let go of sleep disorder, and diligently cultivate in a thousand kalpas,
 
 Also repair hell.
 
-That is to say, if someone slanders his master, even if he did not sleep or wander for a thousand kalpas, and diligently practiced the most excellent methods of the four tantras, he would only be in the dark. That's why the evil of going to hell has been repaired.
+That is to say, if someone slanders his master, even if he did not sleep or wanders for a thousand kalpas, and diligently practiced the most excellent methods of the four tantras, he would still only be in the dark. He is just building the evil karma of going to hell.
 
-Slandering the guru is not good for the present and future generations. The "Fifty Verses of the Guru's Dharma" says:
-Those who slander the guru are prone to illnesses and disasters,
+Slandering the guru is not good for the present and future generations. The "Fifty Verses of the Guru Devotion" says:
 
-Haunted by poison, the Dharmans will die,
+If you are so foolish as to despise you Guru, you will contract contagious diseases and those caused by harmful spirits. You will die (a horrible death) caused by demons, plagues or poison.
 
-Official fire and poisonous snakes, water thieves and natural disasters,
-
-Demons and ghosts, chasing their lives to hell.
+You will be killed by (wicked) kings or fire, by poisonous snakes, water, witches or bandits, by harmful spirits or savages, and then be reborn in a hell.
 
 This is the result of slandering the guru.
 
@@ -2787,17 +2886,17 @@ The vajra master mentioned here mainly refers to the master of tantric empowerme
 
 Just as the roots of a tree die, so will the branches and leaves of the tree.
 
-The foundation of all merits and virtues is the power of faith in the guru. If you lose your faith in the guru and slander the guru, you will not only fail.
+The foundation of all merits and virtues is the power of faith in the guru. If you lose your faith in the guru and slander the guru, you will not only fail. When achievement occurs, even the original merit will be lost.
 
-When achievement occurs, even the original merit will be lost.
+(2) Sins of Disobeying the Master's Words 
 
-(2) Sins of Violating the Master's Words 
+The guru taught the disciples how to study. If the disciples don't do it, they can't follow the teachings, which means that they have disobeyed the master's words.
 
-The guru taught the disciples how to study. If the disciples don't do it, they can't follow the teachings, which means that they have violated the master's words.
+What is the sin of disobeying the teacher's words?
 
-What is the sin of violating the teacher's words?
+Going against the teacher's words, there are many disasters in this life, and you will go to hell in the next life.
 
-Contrary to the teacher's words, there are many disasters in this life, and you will go to hell in the next life. "Vajra Account Tantra" is a Tantra of the Supreme Yoga Department of Tantra. The "Vajra Account Tantra" says:
+"Indestructible Tent Tantra" is a Tantra of the Supreme Yoga class of Tantra. The "Indestructible Tent Tantra" says:
 
 Disciples who have received empowerment, 
 
@@ -2807,9 +2906,9 @@ there will be many disasters in this life,
 
 and they will fall into hell in the next life.
 
-After receiving empowerment, if you disobey the teacher's words, you will suffer many disasters in this life, and you will go to hell in the next life.
+After receiving tantric empowerment, if you disobey the teacher's words, you will suffer many disasters in this life, and you will go to hell in the next life.
 
-The teacher's words mentioned here are not ordinary teacher's words, such as the tantric precepts. After the master has empowered the disciples, the disciples have received and upheld the fourteen tantric fundamental precepts.
+The teacher's words mentioned here are not ordinary teacher's words, such as the tantric precepts. After the master has empowered the disciples, the disciples receive and uphold the fourteen tantric fundamental vows.
 
 The master requires the disciples not to violate these precepts. If the precepts are violated, it is a violation of the master's words, and there will be sins of violating the master's words.
 
@@ -2821,13 +2920,13 @@ Therefore, when we cannot do what Master said, we must explain the reasons to Ma
 
 For example, if the master asks the disciple to recite the one-hundred-syllable mantra one million times, the disciple has to think about whether it can be accomplished or not, and if not, he must explain the reason to the master, for example, he does not have that much time, etc., even if he admits that he is lazy, Saying "I'm lazy" works too.
 
-If the disciple ignores it, he is also guilty.
+If the disciple simply ignores it, he is also guilty.
 
-If you don't listen to your guru, you won't get accomplished. Master Tilopa said:
+If you don't listen to your guru, you won't get any benefit from your practice. Master Tilopa said:
 
 If you don't listen to your teacher,
 
- you won't achieve success.
+you won't achieve success.
 
 This sentence is very easy to understand. If you don’t listen to the teacher’s words and follow the teachings, you will naturally not achieve anything!
 
@@ -2835,7 +2934,7 @@ This sentence is very easy to understand. If you don’t listen to the teacher�
 
 People who are just beginning to learn Buddhism, or those who have a very low level of diligence, have not yet firmed their confidence in the Three Jewels of the Guru, and they cannot control their thoughts, and their troubles will become heavier.
 
-At this time, it is easy to have retreat or create karma.
+At this time, it is easy to give up or create negative karma.
 
 However, if you also randomly guess and speculate about your teacher's words and deeds, and have all kinds of thoughts, or even get angry with the teacher and make him unhappy, the bad karma will increase.
 
@@ -2849,9 +2948,7 @@ The moment he was angry with the teacher, his good deeds were destroyed for a ka
 
 That is to say, if you are angry with your guru for a split second, the blessings of one kalpa will be eliminated, and you will go to hell after death, and you will have to stay in hell for several kalpas.
 
-According to Theravada 
-
-Theravada, a flick of the finger takes sixty-five "moments". Therefore, if one flicks a finger of anger toward a teacher or student, one will spend sixty-five kalpas in hell in the next life.
+According to Hinayana, a snap of the fingers takes sixty-five "moments". Therefore, if one snaps a finger of anger toward a teacher or student, one will spend sixty-five kalpas in hell in the next life.
 
 This is still the time calculated according to the Hinayana theory, and the time according to the Mahayana theory is even longer than this, we have to think about how terrible it is!
 
@@ -2865,33 +2962,35 @@ However, if you accidentally get angry with your guru, you should immediately re
 
 101
 
-One month before Dharma King Yongzeng passed away, and two months before Master Gazang Qusong Vajra passed away, he informed all his disciples as much as possible of the news that he was going to pass away.
+One month before Dharma Master Yongzeng passed away, and two months before Vajra Master Gazang Qusong passed away, he informed all his disciples as much as possible of the news that he was going to pass away.
 
 The two masters were very merciful, and they did this so that the disciples could have time to eliminate their karma and repent in time, or to deal with other unsatisfactory things.
 
 If the guru passes away, it will be more troublesome. Only by visualizing that the guru and Vajrasattva are indistinguishable, and reciting the hundred-syllable mantra one hundred thousand times at the same time, can the karma of being angry with the guru be eliminated.
 
-(2) The sin of looking for the guru's faults and defects is always looking for and paying attention to the guru's shortcomings or defects, which will reduce the strength of faith in the guru, and gradually lose confidence in the guru. In the end, a lot of merit will be lost. Lost, can not be achieved.
+(2) The sin of looking for the guru's faults and defects 
+
+Always to be looking for and paying attention to the guru's shortcomings or defects, will reduce the strength of faith in the guru, and gradually lose confidence in the guru. In the end, a lot of merit will be lost. Once lost, it can not be recovered.
 
 When the Buddha was alive, some people were taught by the Buddha himself to be tamed, but because they were always looking for the Buddha's shortcomings, they were not able to achieve it.
 
-Shanxing Bhikkhu is one of the disciples of Buddha Shakyamuni. He doesn't look at the Buddha's merits, he only looks for the Buddha's faults, but he can't find any no matter how he looks.
+Shanxing Bhikkhu was one of the disciples of Buddha Shakyamuni. He doesn't look at the Buddha's merits, he only looks for the Buddha's faults, but he can't find any no matter how he looks.
 
-He has been searching for twelve years, and finally found it: once, he saw Devadatta hitting Shakyamuni Buddha with a stone, and the Buddha's thumb was injured; another time, there was a thorn that hurt the sole of the Buddha's foot.
+He has been searching for twelve years, and finally found something: once, he saw Devadatta hitting Shakyamuni Buddha with a stone, and the Buddha's thumb was injured; another time, there was a thorn that hurt the sole of the Buddha's foot.
 
 
-The Xing Bhikkhu did not understand that these things are all due to causation, but he just thought that if the Buddha's ability is the greatest and his merit is the most perfect, the Buddha should not be harmed.
+Shanxing Bhikkhu did not understand that these things are all due to causation, but he just thought that if the Buddha's ability is the greatest and his merit is the most perfect, the Buddha should not be harmed.
 
-In this way, because the monks of good stars often searched for the defects of the Buddha, they failed to achieve it in the end, and went to hell after death.
+In this way, because Shanxing Bhikkhu often looked for the defects of the Buddha, he failed to achieve liberation in the end, and went to hell after death.
 
-Later, the Buddha went to hell to save him. After seeing the Buddha, he developed confidence and the Buddha saved him from hell.
+Later, the Buddha went to hell to save him. After seeing the Buddha, he developed faith and the Buddha saved him from hell.
 
-Why do I see the flaws and defects of the guru? Everyone feels different about the guru when they look at their guru. Some people look at the guru very frightened, some think the guru is not solemn, and some people think the guru is very solemn. ,mercy.
-This is determined by the degree of purification of one's own karma, as well as the angle and prejudice of looking at the problem.
+Why do I see the flaws and defects of the guru? Everyone feels different about the guru when they look at their guru. Some people see the guru as very intimidating, some think the guru is not dignified, and some people think the guru is very dignified and kind.
+This is determined by the degree of purification of one's own karma, as well as the viewpoint and prejudice of looking at the problem.
 
 (1) Causes of Karma 
 
-Sometimes, some people may think: "Since the guru is the incarnation of the Buddha, why is the guru still flawed? Since there are flaws, how can it be a perfect Buddha?"
+Sometimes, some people may think: "Since the guru is the incarnation of the Buddha, why is the guru still flawed? Since there are flaws, how can he be a perfect Buddha?"
 
 In fact, what sentient beings see is unreal.
 
@@ -2901,21 +3000,21 @@ For example, although the Buddha is perfect, all living beings can only see Budd
 
 The flaws we see in our guru are also the cause of our own karma.
 
-Everything in the eyes is the projection of karma, what kind of karma there is, what kind of appearance will be seen.
+Everything in the eyes is the projection of karma, depending on what kind of karma there is, that kind of appearance will be seen.
 
-Since the minds of sentient beings are polluted by karma, everything they see is a polluted appearance.
+Since the minds of sentient beings are polluted by karma, everything they see has a polluted appearance.
 
 Just as the image of the moon in clear and turbid water is different, it is the water, not the moon, that makes the difference.
 
-In order to see the Compassionate Venerable, the Bodhisattva Asanga was Maitreya Bodhisattva, who meditated on the Compassionate Venerable for twelve years.
+In order to see the Compassionate Venerable, Maitreya Bodhisattva, the Bodhisattva Asanga meditated on the Compassionate Venerable for twelve years.
 
-When the karma is not pure, he can only see Maitreya Bodhisattva as a rotten mangy dog.
+When the karma was not pure, he could only see Maitreya Bodhisattva as a rotten mangy dog.
 
-Twelve years later, when the karma was eliminated, I saw Maitreya Bodhisattva.
+Twelve years later, when the karma was eliminated, he saw Maitreya Bodhisattva.
 
-After seeing the Bodhisattva, he complained, saying that he had cultivated for so long and worked so hard before he saw Maitreya Bodhisattva. Maitreya Bodhisattva said, "I've been by your side all the time, and it's because of your karma that you can't see it."
+After seeing the Bodhisattva, he complained, saying that he had meditated for so long and worked so hard before he saw Maitreya Bodhisattva. Maitreya Bodhisattva said, "I've been by your side all the time, it's because of your karma that you couldn't see me."
 
-Seeing that Bodhisattva Asanga did not believe, Maitreya Bodhisattva said, "I'm sitting on your shoulder now. Go and ask other people what they have seen."
+Seeing that Bodhisattva Asanga did not believe him, Maitreya Bodhisattva said, "I'm sitting on your shoulder now. Go and ask other people what they see."
 
 Then Maitreya Bodhisattva sat on the shoulders of Asanga Bodhisattva, and Asanga Bodhisattva asked people on the roadside to worship Maitreya Bodhisattva. As a result, everyone thought he was crazy and said that there was nothing on Asanga Bodhisattva's shoulders.
 
@@ -2925,101 +3024,107 @@ Only then did Asanga Bodhisattva believe the words of Maitreya Bodhisattva.
 
 104
 
-When Naropa was looking for his teacher Tilopa, the leprosy woman, the rotten bitch, etc. he saw along the way were actually the manifestation of his teacher Tilopa, but he didn't recognize him. Afterwards he was desperate because Tilopa finally appeared when he could not see his master and was ready to commit suicide.
+When Naropa was looking for his teacher Tilopa, a woman with leprosy, a mangy dog, etc. that he saw along the way were actually the manifestation of his teacher Tilopa, but he didn't recognize him. Afterwards he was desperate because Tilopa finally appeared when he could not see his master and was ready to commit suicide.
 
 Naropa said:
 
-"Master, I searched so hard, why did you appear?"
+"Master, I searched so hard, why did you not appear?"
 
 Master Tilopa said, "I have always been by your side, and it is because of your bad karma that you do not recognize me."
 
-The biographies of these patriarchs and great virtues are all living examples.
+The biographies of these patriarchs and great virtues are all real examples.
 
-Therefore, it is the karma of sentient beings that obstructs themselves.
+Therefore, it is the karma of sentient beings that obstructs them.
 
 Although the guru possesses all the qualities of a Buddha, because the minds of sentient beings are blinded by ignorance, they cannot see that the guru is a Buddha. Instead, they will see that the guru has various flaws.
 
 (2) Influence of perspective and prejudice 
 
-On the other hand, when people look at problems, they are also affected by the angle from which they look at the problem and the prejudice produced by their own experiences.
+On the other hand, when people look at problems, they are also affected by the perspective from which they look at the problem and the prejudice produced by their own experiences.
 
-For example, when looking at one's own children, shortcomings will be regarded as advantages. Even if the child has shortcomings or Dharmaults, they will not care. This is a matter of perspective.
+For example, when looking at one's own children, shortcomings will be regarded as advantages. Even if the child has shortcomings or faults, they will not care. This is a matter of perspective.
 
 When a lively person sees a silent person, he will have a prejudice that the other party is difficult to communicate with. In fact, the other party may just like to be quiet; people who like to drink will generally ignore people who do not drink because of their own habits.
 
 105
 
-The same is true when disciples look at their masters, and they will unconsciously be affected by their own habits.
+The same is true when disciples look at their masters, and they will unconsciously be affected by their own prejudices.
 
-But because of the existence of ego, you will think that your thoughts are always correct, and you will not realize that what you see is only superficial.
+But because of the existence of ego, you think that you are always correct, and you will not realize that what you see is only superficial.
 
 Therefore, one cannot judge that a guru has some kind of flaw or defect based on what he sees on the surface.
 
-The flaws of the guru are actually merits. On the other hand, the flaws and flaws shown by the guru are actually the embodiment of merits.
-The Dharma body of a Buddha can only be seen by a Buddha and a Buddha, not even a Bodhisattva of the highest rank.
+The flaws of the guru are actually merits. On the other hand, the flaws and defects shown by the guru are actually the embodiment of merits.
+The Dharma body of a Buddha can only be seen by a Buddha and only a Buddha, not even a Bodhisattva of the highest rank can see this.
 
-Even the dignified and dignified incarnation of the Buddha, that is, the body of the Buddha, can only be seen by ordinary people who are clean of karmic obstacles.
+Even the dignified and solemn incarnation of the Buddha, that is, the body of the Buddha, can only be seen by ordinary people who are clean of karmic obstacles.
 
 In Daojidi Ganluzang, it says:
 
-Even before the hurdles of evil karma are removed, even though countless Buddhas come in person, apart from the appearances that you see now, there is no reason to get the good body of seeing appearances.
+Even before the hurdles of evil karma are removed, 
 
-That is to say, for ordinary beings whose bad karma has not yet been purified, even if countless Buddhas come in person, they can only see the appearance presented by their own karma, and they cannot see the good and solemn appearance of the Buddha. so.
+even though countless Buddhas come in person, 
+
+apart from the appearances that you see now, 
+
+there is no reason to get the good body of seeing appearances.
+
+That is to say, for ordinary beings whose bad karma has not yet been purified, even if countless Buddhas come in person, they can only see the appearance presented by their own karma, and they cannot see the good and solemn appearance of the Buddha.
 
 106
 
 Not only that, even a teacher who seems to be an ordinary person cannot meet him if he does not have certain blessings, let alone hear his sermons.
 
-Therefore, we must understand that the shortcomings and defects shown by the guru are for the benefit of sentient beings, not because they are really flawed, but only for the sake of matching the karma of sentient beings.
+Therefore, we must understand that the shortcomings and defects shown by the guru are for the benefit of sentient beings, not because they are really flawed, but only for the sake of clearing the karma of sentient beings.
 
 Master Yeshi Jianshen said: 
 
-The guru was originally a Buddha and Bodhisattva, and he was able to heal his flaws. In fact, it was because of the guru's merits and virtues that he could not heal his flaws without the corresponding merits.
+The guru was originally a Buddha and Bodhisattva, and he was able to heal his flaws. In fact, it was because of the guru's merits and virtues that he could heal his flaws without the corresponding merits.
 
 For example, in order to save sentient beings in a certain place, it is necessary to show signs of disability in order to attract everyone's attention.
 
-Ordinary people may need to actually hurt their own bodies if they want to show their disability, such as breaking their arms, etc. But Buddhas and Bodhisattvas want to show their disability, and they can show it at any time without breaking their arms. This is the inherent merit of Buddhas and Bodhisattvas. ability.
+Ordinary people may need to actually hurt their own bodies if they want to show their disability, such as breaking their arms, etc. But Buddhas and Bodhisattvas want to show their disability, and they can show it at any time without breaking their arms. This is the inherent merit of Buddhas and Bodhisattvas ability.
 
-Zhangjia Living Buddha, the national teacher of Emperor Qianlong, was a highly accomplished master of the Gelug Sect. He practiced at a very high level and acquired many magical abilities.
+Zhangjia Living Buddha, the national teacher of Emperor Qianlong, was a highly accomplished master of the Gelug School. He practiced at a very high level and acquired many magical abilities.
 
 However, such a virtuous master has very few disciples.
 
-In his later years, Zhangjia Rinpoche had problems with his eyes. When he showed such defects, it corresponded to the blessings of all beings. Since then, countless disciples in Han, Tibet and Mongolia have converted to Zhangjia Rinpoche.
+In his later years, Zhangjia Rinpoche had problems with his eyes. When he showed such defects, it corresponded to the blessings of all beings. Since then, countless disciples in Han, Tibet and Mongolia have followed to Zhangjia Rinpoche.
 
 107
 
 All of these show that when the disciple's blessings are not enough, the master must show some flawed appearances to create opportunities for the disciple. Otherwise, the disciple may not have the chance to listen to the master's sermons or even meet the master.
 
-Blessings are really important. I have taught San Shi Dao all these years, such a precious and rare method, but very few people have the chance to hear it. Only those disciples who have practiced for a long time and accumulated blessings for a long time can have it. opportunity to hear.
+Blessings are really important. I have taught San Shi Dao all these years, such a precious and rare method, but very few people have the chance to hear it. Only those disciples who have practiced for a long time and accumulated blessings for a long time can have the opportunity to hear.
 
-Those who are just starting out or those who have not enough good fortune will not hear about Sanshidao.
+Those who are just starting out or those who have not enough good fortune will not hear about San Shi Dao.
 
-Focusing on the sinful karma of finding the flaws of the guru, we now understand that the flaws manifested by the guru are for the benefit of all sentient beings;
+Focusing on the sinful karma of finding the flaws of the guru, we now understand that the flaws manifested by the guru are for the benefit of all sentient beings.
 Therefore, one cannot look for or focus on the flaws of the guru.
 
 At the same time, the sin of paying attention to or seeking out the flaws of the guru is very serious.
 
 The Sequel says:
 
-Seeing the good results in success, seeing the Dharmault destroys the achievement.
+Seeing the good results in success, seeing the fault destroys the achievement.
 
 108
 
 It means that if you pay attention to the merits of the guru and develop respect, you will also be successful in the future.
 
-Conversely, focusing only on the guru's faults and Dharmaults hinders achievement and destroys the original merits.
+Conversely, focusing only on the guru's faults and defects hinders achievement and destroys the original merits.
 
-Master Bodova once said: "Only focusing on the Dharmaults and Dharmaults of the guru will not only lead to the Dharmailure of the guru's blessings, but will inspire generations to come when the evil consequences of Dharmailing to meet the guru will lead to vomiting, heartache, and numbness in this life. Madness and other illnesses, or disasters and unlucky things.”
+Master Bodowa once said: "Focusing only on the faults and defects of the guru will not only lead to the failure of the guru's blessings, but will inspire generations to come when the evil consequences of failing to meet the guru will lead to vomiting, heartache, and numbness in this life. Madness and other illnesses, or disasters and misfortune.”
 
 These are all things that need to be paid close attention to and must be kept in check at all times.
 
-(3) Seeing the guru as an ordinary person's sinful karma 
+(3) Seeing the guru as an ordinary person 
 
 People who are just beginning to learn Buddhism do not understand many aspects.
 
-faith and confidence have not yet been established, and I have no concept of many things. It is easy to regard the guru as an ordinary person like myself. This is understandable, and it can be gradually changed through study and practice.
+Faith and confidence have not yet been established, and they have no concept of many things. It is easy to regard the guru as an ordinary person like themselves. This is understandable, and it can be gradually changed through study and practice.
 
-However, for those who have practiced for many years and even received tantric empowerment, no matter what the reason is, if they still treat their masters as ordinary people, this is actually a serious breach of precepts, and it is also a serious breach of precepts. Without blessings, there will be no progress and no achievement.
+However, for those who have practiced for many years and even received tantric empowerment, no matter what the reason is, if they still treat their masters as ordinary people, this is actually a serious breach of precepts. Without blessings, there will be no progress and no achievement.
 
 When Venerable Atisha first arrived in Tibet, Master Dhondunpa asked the Venerable: 
 
@@ -3037,15 +3142,15 @@ The Kadampa predecessors said:
 
 Those who do not respect the guru are useless even if they are proficient in the Three Treasures.
 
-There used to be a yogi in India, his guru was just a commoner, but he himself was a Brahmin nobleman, and he was highly accomplished, able to fly in the air.
+There was a yogi in India, his guru was just a commoner, but he himself was a Brahmin nobleman, and he was highly accomplished, able to fly in the air.
 
-Once, when he was flying in the air, he saw the master teaching the Dharma below. According to the etiquette, he should stop and pay respects to the master. However, he felt that his identity and achievements had surpassed the master, so he was arrogant and deliberately. Flying through the air above the master's head, he fell to the ground on the spot and lost the ability to fly.
+Once, when he was flying in the air, he saw the master teaching the Dharma below. According to the etiquette, he should stop and pay respects to the master. However, he felt that his status and achievements had surpassed the master, so he was arrogant and deliberately flew through the air over the master's head. He fell to the ground on the spot and lost the ability to fly.
 
-At any time, disciples should not be arrogant and despise their masters because of their background, appearance, knowledge, etc.
+Disciples should never be arrogant and despise their masters because of their background, appearance, knowledge, etc.
 
-Lay disciples should pay more attention not to treat their masters slowly because of their social status, status, wealth and other factors.
+Lay disciples should pay more attention not to look down on their masters because of their social status, position, wealth or other factors.
 
-Otherwise, not only will you Dharmail to achieve success in this life, but it will also hinder the future life, and there will be endless troubles.
+Otherwise, not only will you fail to achieve success in this life, but it will also hinder many future lives, and there will be endless troubles.
 
 110
 
@@ -3057,31 +3162,33 @@ A master with great compassion and virtue is generally not angry or unhappy abou
 
 And a teacher with insufficient moral ability may get angry and lose his temper when he sees his disciple's bad behavior.
 
-If the master is really angry, the disciple will have a great sin, and the retribution will be heavy.
+If the master is really angry, the disciple will have committed a great sin, and the retribution will be heavy.
 
-In the Fifty Verses of the Guru's Dharma, it says:
+In the Fifty Verses of Guru Devotion, it says:
 
-At any time, without disturbing the mind, if ignorance is violated, you will suffer from purgatory.
+Never disturb you Guru's mind. Should you be foolish and happen to do this, you will surely boil in hell.
 
-That is to say, as a disciple, at no time should the guru be upset or unhappy.
+That is to say, as a disciple, at no time should you cause the guru to be upset or unhappy.
 
-Otherwise, you will suffer in purgatory!
+Otherwise, you will suffer in hell!
 
 However, a master with virtue will not get angry easily, and has a strong ability to endure humiliation. When a disciple's behavior is inappropriate, such a master will not care, and will seize this opportunity to practice forbearance.
 
-Even if some disciples scold their masters, the masters will not be angry. Therefore, after taking refuge in a master with virtue, the disciples will generally not have this karma.
+Even if some disciples criticise their masters, the masters will not get angry. Therefore, after taking refuge in a master with virtue, the disciples will generally not run into this problem.
 
-(6) The sin of misunderstanding the teacher’s words and deeds 111
+(6) The sin of misunderstanding the teacher’s words and deeds 
+
+111
 
 A guru is a Buddha, so every word and deed of a guru is for the benefit of all sentient beings. If you don’t understand the practice and behavior of your guru for the time being, don’t have bad misunderstandings.
 
 Misunderstanding the teacher's meaning can also lead to sin.
 
-If you are beaten by your guru, you should think that the guru is exorcising evil spirits for us; if you are scolded by your guru, you should think that your guru is reciting the mantra of a wrathful deity and bless us; Thinking of this, it must be that the guru pays more attention to us.
+If you are beaten by your guru, you should think that the guru is exorcising evil spirits for you; if you are scolded by your guru, you should think that your guru is reciting the mantra of a wrathful deity and blessing us; Think like this, "It must be that the guru is looking out for us."
 
 If the guru acts like he hates us, think that it is the guru who is removing karma and obstacles for us.
 
-The Mahasiddha Tsangpa Gyare said:
+The Mahasiddha Tsangpa Gyarepa said:
 
 Whipping is empowerment, from which blessings are obtained, scolding is a fierce curse, removes all demonic obstacles, hates and alienates, loves soothe me, loves me for growth, hates me for encouragement, everything is convenient.
 
@@ -3089,43 +3196,43 @@ Treat being beaten by a guru as an empowerment, and you will definitely receive 
 
 Being scolded by the master is regarded as a fierce curse, which will definitely exorcise the demons.
 
-It is okay to think that everything the guru does is for our good.
+It is okay to think that everything the guru does is for our own good.
 
-Some actions of the master, such as beating and scolding the disciple, usually have deep meanings.
+Some actions of the master, such as beating and scolding the disciple, usually have deeper meaning.
 
 Moreover, a master with virtue will not easily get angry, beat and scold his disciples.
 
 112
 
-The abbot of Labrang Monastery, Master Jiangyang Xieba, is a great siddhi, a very special kind teacher, who is very compassionate to every disciple.
+The abbot of Labrang Monastery, Master Jiangyang Xieba, is a great siddhi, a very special kind of teacher, who is very compassionate towards every disciple.
 
-There is only one disciple. As soon as this disciple comes, he will scold the disciple and even beat him with things. This disciple is always like this every time he sees him, so that everyone agrees that Master treats this disciple too badly. , this behavior continued for several years.
+There is one disciple, however. As soon as this disciple shows up, he will scold the disciple and even beat him with things. This happens every time he sees him, so that everyone agreed that Master treated this disciple too badly. This behavior continued for several years.
 
 A few years later, Jiangyang Xieba said to this disciple: "I used to beat you and scold you to help you eliminate karma. Now, when a great disaster comes, someone needs to preserve the lineage of the Dharma. I beat and scold you every day. If you can bear it, it shows that you are capable of taking on heavy responsibilities, so I did not choose anyone else, only you, and you will keep the scriptures."
 
 Two hundred years ago, Qinghai was in chaos, many monasteries were destroyed, and almost all Buddhist texts were burned.
 
-Muslims arrest monks when they see monks, but when those Muslims saw this disciple of Jiangyang Xieba, they felt very close and treated him very well, so many scriptures were preserved.
+Muslims arrested monks when they see monks, but when those Muslims saw this disciple of Jiangyang Xieba, they felt very close and treated him very well, so many scriptures were preserved.
 
 In the past, there was a master at Ta'er Monastery, and a disciple had been ill for several years. This disciple often came to ask Master for blessings.
 
-Once, when this disciple came to ask Master for blessings again, Master beat him with a stick and scolded him while beating: "Every day you say blessing, it is useless to bless you every day."
+Once, when this disciple came to ask his Master for blessings again, Master beat him with a stick and scolded him while beating: "Every day you ask for blessing, it is useless to bless you every day."
 
 113
 
 The master was very angry and hit him.
 
-Since then, the disciple's illness has been cured, and the master has removed the demonic obstacles for him in this way.
+Right away, the disciple's illness was cured, and the master had removed many demonic obstacles for him in this way.
 
-Once, I saw Master Gazang Qusong beat his attendant. The waiter was a Mongolian. Master Gazang Qusong scolded him and beat him angrily. He cried and left. Then the master returned to the room and secretly smiling.
+Once, I saw Master Gazang Qusong beat his attendant. The waiter was a Mongolian. Master Gazang Qusong scolded him and beat him angrily. He cried and left. Then the master returned to the room and secretly smiled.
 
 Therefore, Master Gazang Qusong was not really angry, but pretended to be angry, in order to exorcise this disciple and eliminate his ego.
 
-A master with virtue will not mess around, and everything he does has a certain meaning or a great secret meaning, so we can't distort or misunderstand it at will.
+A master with virtue will not mess around, and everything he does has a certain meaning or a great secret meaning, so we can't distort it or misunderstand it at will.
 
-Before Venerable Milareba entered Buddhism, in order to take revenge, he went to Bonbo in Tibetan area to teach the method of cursing.
+Before Venerable Milarepa entered Buddhism, in order to take revenge, he went to a Bonbo master in Tibet to learn the methods of cursing and black magic.
 
-Curses the relatives who took his property and persecuted his mother and sister after his Dharmather died.
+Cursing the relatives who took his property and persecuted his mother and sister after his father died.
 
 Because of this, many people were killed, and the sin was very heavy.
 
@@ -3135,25 +3242,25 @@ Master Marpa said, "Very well, from today onwards, your body belongs to me, and 
 
 114
 
-For the next nine years, Master Marpa beat and scolded Milareba every day, ordered him to work every day, and asked him to do the work that was unnecessary. Even Master Marpa's wife couldn't stand it anymore. , Seeing Milareba suffer every day, she was about to cry.
+For the next nine years, Master Marpa beat and scolded Milarepa every day, ordered him to work every day, and even asked him to do work that was unnecessary. Even Master Marpa's wife couldn't stand it anymore. Seeing Milareba suffer every day, she was about to cry.
 
-When lecturing the sutras, Milareba came to listen to the sutras. As soon as Milareba came, Master Marpa reprimanded him: "What are you doing here? What qualifications do you have to listen to the sutras? You are a traitor!" scolded in front of many people.
+When Marpa was lecturing on the sutras, Milarepa came to listen to the teachings. As soon as Milarepa came, Master Marpa reprimanded him: "What are you doing here? What qualifications do you have to listen to the sutras? You are a traitor!" He scolded Milarepa in front of many people.
 
-The same is true when empowering empowerment. Because the method of empowering empowerment is very precious, sometimes, some people use the wealth they have accumulated for a lifetime to ask for empowerment.
+The same is true when receiving empowerment. Because the method of receiving empowerment is very precious, sometimes, some people use the wealth they have accumulated for a lifetime to ask for empowerment.
 
-At this time, Master Marpa scolded Milareba: "You are just a poor ghost, what can you use to participate in the empowerment?"
+At this time, Master Marpa scolded Milarepa: "You are just a poor ghost, what can you use to participate in the empowerment?"
 
-In the end, everyone couldn't stand it anymore, and even Milareba himself had doubts about himself, thinking how good it would be if his life was over, and he had this idea.
+In the end, no one could stand it anymore, and even Milarepa had doubts about himself, thinking how good it would be if his life was over.
 
-Nine years later, one day, Master Marpa held a grand and solemn empowerment ceremony, and many big disciples came. Master Marpa was at the front of the disciples, offering a throne with his own hands, and then said , I'm going to invite Milarepa to sit here today.
+Nine years later, one day, Master Marpa held a grand and solemn empowerment ceremony, and many great disciples came. Master Marpa was in front of the disciples, offering a throne with his own hands, and then said, I'm going to invite Milarepa to sit here today.
 
-Milarepa was very frightened after hearing this, thinking that Master Marpa was playing tricks on him again. When he sat on the throne tremblingly, Master Marpa said solemnly: "Before, I was here to give you Eliminate karma, starting today, you are my real noble person, and I will not scold you again."
+Milarepa was very frightened on hearing this, thinking that Master Marpa was playing tricks on him again. When he sat on the throne tremblingly, Master Marpa said solemnly: "Before, I was here to help you Eliminate karma, starting from today, you are my real noble disciple, and I will not scold you again."
 
 Master Marpa often beat and scolded Milarepa in order to eliminate Milarepa's sins.
 
-He said regretfully that if Milarepa can endure ten years of asceticism, he can achieve success in a lifetime without practicing.
+He said regretfully that if Milarepa could endure ten years of asceticism, he could achieve enlightenment in one lifetime without practicing.
 
-But everyone interceded for him, so he only practiced asceticism for nine years. Since his sins were not finished, he would have to go through a long period of ascetic practice before he could achieve it.
+But everyone interceded for him, so he only practiced asceticism for nine years. Since his sins were not yet expiated in full, he would have to go through a long period of ascetic practice before he could achieve liberation.
 
 Master Yanggongba said:
 
@@ -3161,23 +3268,23 @@ What you show is all merit, what you say is all teaching, and what you do is all
 
 What the guru does is merit, and what the guru says is teaching.
 
-For the disciple, all the actions of the guru are beneficial to oneself, so there will be no misunderstanding when looking at the actions of the guru.
+For the disciple, all the actions of the guru are beneficial, so there will be no misunderstanding when looking at the actions of the guru.
 
-this is very important!
+This is very important!
 
 (7) Treating the Guru's Sins Unequally
 
- After attending a teacher, the disciple must treat the master as a master with virtue, otherwise, there will be great sins.
+After attending a teacher, the disciple must treat the master as a master with virtue, otherwise, there will be great sins.
 
-Some people have worshipped many gurus successively as their masters, and they have consulted these masters for teachings and received empowerments.
+Some people have followed many gurus successively as their masters, and they have consulted these masters for teachings and received empowerments.
 
 116
 
-But in the end, I just want to get close to those famous and prestigious teachers, or the teachers I like.
+But in the end, they just want to get close to those famous and prestigious teachers, or the teachers they like.
 
-In fact, this is the self-generated mind of discrimination and greed. There may be differences in some aspects of the masters themselves. However, from the perspective of disciples, they should all be regarded as Buddhas and Bodhisattvas who came to educate themselves, and should be treated the same. The same respect, the same offering.
+In fact, this is the selfish mind of discrimination and greed. There may be differences in some aspects of the masters themselves. However, from the perspective of disciples, they should all be regarded as Buddhas and Bodhisattvas who came to educate them, and should be treated the same. The same respect, the same blessing.
 
-If there is discrimination, you should realize your mistake in time.
+If there is discrimination, you should realize your mistake quickly.
 
 The scriptures say:
 
@@ -3185,23 +3292,25 @@ Teach one or four verses, if you don't look at it as a teacher, you will be born
 
 If you don't do this, not only will your wishes in this life be unsatisfactory, but you will also become a dog in the next life. After you have been reincarnated as a dog a hundred times at least, you may become a more difficult person.
 
-Therefore, if you worship a master, the disciple must treat the master equally, and treat the master who has worshipped as a master with all the virtues.
+Therefore, if you worship a master, the disciple must treat the master equally, and treat the master who he has followed as a master with all the virtues.
 
 117
 
-The fourth section of the mentality of being close to the guru The mentality of being close to the guru is to treat the guru as a Buddha.
+4. The attitude of being close to the guru 
 
-In order to see the teacher as a Buddha, the disciple should always think about the teacher's own merits and the teacher's kindness to him, build confidence and inspire respect.
+The attitude of being close to the guru is to see the guru as a Buddha.
+
+In order to see the teacher as a Buddha, the disciple should always think about the teacher's own merits and the teacher's kindness to him, build confidence and generate respect.
 
 1. The merits and virtues of reciting the guru and building confidence. 
 
-Although the blessing of the guru can grow the merits of the five realms and ten places, it still depends on whether the disciple's confidence in the guru is deep and firm enough.
+Although the blessing of the guru can grow the merits of the five realms and ten places, it still depends on whether the disciple's trust in the guru is deep and firm enough.
 
-If the disciples can believe in the guru the way they view the Buddha, it can greatly increase the depth and breadth of their belief in the guru, and it can also avoid other wrong ideas.
+If the disciples can believe in the guru the way they view the Buddha, it can greatly increase the depth and breadth of their belief in the guru, and it can also avoid other wrong views.
 
-Therefore, it is very important for the disciple to be able to see the teacher as a Buddha and thus to develop confidence in the teacher.
+Therefore, it is very important for the disciple to be able to see the teacher as a Buddha and thus to develop trust in the teacher.
 
-Although the guru is a Buddha, when the disciples first began to learn Buddhism, the blessings were not enough, and they could not see it.
+Although the guru is a Buddha, when the disciples first began to learn Buddhism, the blessings are not enough, and they could not see it.
 
 Therefore, it is necessary to understand the infinite transforming power of Buddhas and Bodhisattvas, as well as the uninterrupted vast power of vows to transform sentient beings.
 
@@ -3209,7 +3318,7 @@ Therefore, it is necessary to understand the infinite transforming power of Budd
 
 (1) The incarnation of Buddhas and Bodhisattvas 
 
-The incarnations of inconceivable Buddhas and Bodhisattvas pervade all times, all places, all the time, and everywhere.
+The incarnations of inconceivable Buddhas and Bodhisattvas pervade all times, and all places.
 
 This is because the Dharma bodies of Buddhas and Bodhisattvas are inconceivable, so the wisdom of Buddhas and Bodhisattvas is everywhere, and the wisdom of Buddhas and Bodhisattvas can be transformed into Buddha bodies at will.
 
@@ -3217,42 +3326,42 @@ The womb and birth of our ordinary people must follow the laws of the world, and
 
 Now, because of heavy karma and insufficient blessings, we cannot see the incarnations of Buddhas and Bodhisattvas for the time being.
 
-When you get the golden bodhicitta, you can see the Buddha's extraordinary incarnation, which is the Buddha's physical body, and you can also hear the sutras preached by the extraordinary incarnation.
+When you reach the golden bodhicitta, you can see the Buddha's extraordinary incarnation, which is the Buddha's physical body, and you can also hear the sutras preached by the extraordinary incarnation.
 
-After cultivating to see the Bodhisattva in one place, you will begin to see the Buddha's Sambhogakaya and hear the Mahayana of the Sambhogakaya.
+After cultivating to see the Bodhisattva of the first bhumi, you will begin to see the Buddha's Sambhogakaya and hear the Mahayana of the Sambhogakaya.
 
-When Buddhas and Bodhisattvas save sentient beings, they generally have three kinds of manifestations: responsive conditions, responsive tools, and responsive benefits. In this way, they can attract sentient beings with different external circumstances, internal Dharmaculties, and different interests and needs.
+When Buddhas and Bodhisattvas save sentient beings, they generally have three kinds of manifestations: responsive conditions, responsive tools, and responsive benefits. In this way, they can attract sentient beings with different external circumstances, internal faculties, and different interests and needs.
 
 The inconceivable and inconceivable salvation of karma is the manifestation of the karma that Buddhas and Bodhisattvas should save sentient beings.
-That is, when saving sentient beings, Buddhas and Bodhisattvas want to appear with the same race, the same kind, and the same causal conditions as the sentient beings to save.
+That is, when saving sentient beings, Buddhas and Bodhisattvas want to appear with the same race, the same kind, and the same causal conditions as the sentient beings to be saved.
 
 119
 
 Only in this way can all beings be psychologically identified and willing to accept the subduing and transformation of Buddhas and Bodhisattvas.
 
-The founder of Kadampa, Master Chung Dunpa, is an incarnation of Avalokitesvara Bodhisattva, but he looks like a very ordinary person.
+The founder of Kadampa, Master Zhongdunba, is an incarnation of Avalokitesvara Bodhisattva, but he looks like a very ordinary person.
 
-Venerable Atisha taught scriptures in Tibet for seventeen years. When he was in Ali, the Venerable said, "I want to go back to India. The weather in Tibet is too cold. There are many disciples in India waiting for me to teach the Dharma."
+Venerable Atisha taught scriptures in Tibet for seventeen years. When he was in Ali, the he said, "I want to go back to India. The weather in Tibet is too cold. There are many disciples in India waiting for me to teach the Dharma."
 
 Master Zhongdunba said: "There are many more sentient beings in Tibet that you need to save than in India. You can go to Lhasa. There is a place called Nie Tang nearby. It is very warm and you can see flowers in winter."
 
-After hearing this, Venerable Atisha said: "If this is the case, go to Lhasa and live in the place you said blooming in winter."
+After hearing this, Venerable Atisha said: "If this is the case, I will go to Lhasa and live in the place you said with flowers blooming in winter."
 
 When winter came, Venerable Atisha went to Lhasa.
 
-After arriving in Lhasa, the Venerable asked Master Zhongdunpa: "Where is the place you said blooming in winter? Let's go there."
+After arriving in Lhasa, the Venerable asked Master Zhongdunpa: "Where is the place you said with flowers blooming in winter? Let's go there."
 
-When they arrived at Nie Tang, they found a very small flower by a small stream. Master Zhong Dunba pointed to the flower and said, "This kind of flower blooms in winter."
+When they arrived at Nie Tang, they found a very small flower by a small stream. Master Zhongdunpa pointed to the flower and said, "This kind of flower blooms in winter."
 
 Venerable Atisha said: "Alas! It can be said that you are not lying. However, what I want to see is not such a small flower, but a very large flower."
 
-Master Zhongdunba thought for a while, and then said: "Master, you can see the flowers you want to see, you can see them."
+Master Zhongdunpa thought for a while, and then said: "Master, you can see as many flowers as you want to see, you can see them."
 
-Master Chung Dunpa stuck out his tongue, which looked as big as the whole of Tibet, with various thousand-petal lotus blossoms open on it.
+Master Zhongdunpa stuck out his tongue, which looked as big as the whole of Tibet, with various thousand-petal lotus blossoms open on it.
 
 120
 
-A master like Chung Dunpa looks like a very ordinary old man. When he was old, he often had a runny nose, but he was really the incarnation of Avalokitesvara Bodhisattva.
+A master like Zhongdunpa looks like a very ordinary old man. When he was old, he often had a runny nose, but he was really the incarnation of Avalokitesvara Bodhisattva.
 
 When Buddhas and Bodhisattvas save sentient beings, they will transform into animals.
 
@@ -3260,7 +3369,7 @@ In the past, in order to save birds, Buddha Shakyamuni transformed into a bird.
 
 In the Biography of Zhenwen Dawa, it is recorded that the Buddha turned into a bird in order to save birds, a monkey in order to save a monkey, and a king of hungry ghosts in order to save the living beings from the hungry ghosts.
 
-When Buddhas and Bodhisattvas transform into different sentient beings, they must transform into the same race and the same kind of appearance as sentient beings.
+When Buddhas and Bodhisattvas transform into different kinds of sentient being, they must transform into the same race with the same  appearance as sentient beings.
 
 "Baoji Jing·Father and Son Meeting" says:
 
@@ -3280,21 +3389,21 @@ Subduing all beings.
 
 Father and son here means master and apprentice.
 
-In Tibetan Buddhism, Dharmather and son are often used to refer to Mahasiddha and his disciples, or teachers and apprentices who have a good relationship of dependence, such as Atisha and his son, which refer to Atisha and Zhongdunpa masters and disciples.
+In Tibetan Buddhism, father and son are often used to refer to Mahasiddha and his disciples, or teachers and apprentices who have a good relationship, such as Atisha and his son, which refer to Atisha and Zhongdunpa - master and disciple.
 
 121
 
 This sutra says that Buddhas and Bodhisattvas often show signs that sentient beings can accept to save sentient beings.
 
-The sentence-by-sentence translation is: In order to save sentient beings, Buddhas and Bodhisattvas sometimes appear in the form of Brahma Kings and Dishatians; when saving sentient beings in the demonic way, they will appear as Demon Kings; when Buddhas and Bodhisattvas benefit sentient beings in the world, it is difficult for us ordinary people to measure their words and deeds. .
+The sentence-by-sentence translation is: In order to save sentient beings, Buddhas and Bodhisattvas sometimes appear in the form of Brahma Kings and Dishatians; when saving sentient beings in the demonic way, they will appear as Demon Kings; when Buddhas and Bodhisattvas benefit sentient beings in the world, it is difficult for us ordinary people to measure their words and deeds.
 
 When they appear female, they behave the same as women; sometimes they also appear in the animal realm; Buddhas and Bodhisattvas have already cut off greed, hatred, and delusion, but in order to let all beings accept them, they will show greed without greed; If there is no ignorance, there will be the appearance of ignorance; if there is no madness, there will be the appearance of madness; if the eye of the Dharma is like a torch, there will be the appearance of blindness, and so on.
 
 The purpose of showing various faults is to correspond to the faculties of sentient beings, so as to help sentient beings to believe and accept them, and to accept and subdue them.
 
-Ordinary people can only accept mortal appearance, that is to say, only the karma of mortal appearance.
+Ordinary people can only accept mortal appearance, that is to say, only the delusion of mortal appearance.
 
-Therefore, Buddhas and Bodhisattvas transform into ordinary people, and teachers are Buddhas and Bodhisattvas who transform into ordinary people to save sentient beings.
+Therefore, Buddhas and Bodhisattvas transform into ordinary people, and teachers are Buddhas and Bodhisattvas who transform into ordinary people to benefit sentient beings.
 
 The degree of responsiveness is incredible. Among the sentient beings of the same race and the same kind, because of different conditions such as ability, wisdom, and blessings, different psychological cognitions will be generated, and finally different root tools will be formed.
 
@@ -3304,11 +3413,11 @@ Responsive transformation means that Buddhas and Bodhisattvas transform all sent
 
 All living beings have different faculties and different understandings. They will accept different teachings and choose different religions and sects.
 
-Buddhas and Bodhisattvas manifest according to the foundation of sentient beings, and whatever kind of foundation the sentient beings have, Buddhas and Bodhisattvas turn into what kind of masters.
+Buddhas and Bodhisattvas manifest according to the foundation of sentient beings, and whatever kind of foundation the sentient beings have, Buddhas and Bodhisattvas turn into that kind of master.
 
 Buddhas and Bodhisattvas have transformed themselves into gods of outsiders in order to save sentient beings from outsiders.
 
-Among the precepts of tantra, there is a precept that one should not slander the gods and hierarchs who are heretical.
+Among the precepts of tantra, there is a precept that one should not slander the gods and patriarchs who are heretical.
 
 There are many kinds of heretics, and it can be said that most of the leaders and gods of heretics are incarnations of Buddhas and Bodhisattvas.
 
@@ -3326,36 +3435,52 @@ Now, there are very few people with the blessing of liberation, and there are ma
 
 We have chosen the most excellent and ultimate Buddhism, and we have converted to the Mahayana in Buddhism, and it is also the most excellent Vajrayana in the Mahayana, and we have learned to practice Tsongkhapa, the most complete and most difficult to meet in the Vajrayana. The teachings of the master.
 
-What is even more rare is that I also meet a master who has mastered this teaching method. While feeling joy and happiness, I must clearly understand that the master is the Buddha and Bodhisattva who respond to our kind of people and come to save us.
+What is even more rare is that I also met a master who has mastered this teaching method. While feeling joy and happiness, I must clearly understand that the master is the Buddha and Bodhisattva who respond to our kind of people and come to save us.
 
 The inconceivable benefit of conversion refers to the transformation of Buddhas and Bodhisattvas in response to the interests and needs of all beings, manifesting the corresponding signs to save all beings.
-For example, the often-mentioned "Avalokitesvara Bodhisattva, who is compassionate and compassionate, and who saves suffering and calamities," will appear immediately when sentient beings encounter disasters, and the allusions of Green Tara, etc., are all good examples.
+For example, the often-mentioned "Avalokitesvara Bodhisattva, who is loving and compassionate, and who saves from suffering and calamities," will appear immediately when sentient beings encounter disasters, and the allusions of Green Tara, etc., are all good examples.
 
 Now, when we want to learn the Dharma and have the idea of ​​liberating from samsara, we meet the corresponding guru.
 
 Therefore, we must understand that a guru is a Buddha or Bodhisattva who comes to meet our needs and to teach the Dharma.
 
-After understanding this, it is even more necessary to establish confidence in the guru and truly treat the guru as a Buddha or Bodhisattva.
+After understanding this, it is even more necessary to establish faith in the guru and truly treat the guru as a Buddha or Bodhisattva.
 
 124
 
-(2) The vows of Buddhas and Bodhisattvas are inconceivable. Before each Buddha attains Buddhahood, he will generate Bodhicitta, and he will make a vow. After attaining Buddhahood, he will save sentient beings.
+(2) The vows of Buddhas and Bodhisattvas are inconceivable. 
+
+Before each Buddha attains Buddhahood, he will generate Bodhicitta, and he will make a vow. After attaining Buddhahood, he will work to save sentient beings.
 
 Therefore, after becoming a Buddha, the power of vows will also mature, and the Buddha will definitely return to take advantage of the vows to save sentient beings.
 
-However, due to the heavy karma of sentient beings in the age of the end of the Dharma, the Buddha will not be able to see the manifestation of the Buddha, and the Buddha will take the form of a teacher.
+However, due to the heavy karma of sentient beings in the age of the end of the Dharma, people will not be able to see the manifestation of the Buddha, and the Buddha will take the form of a teacher.
 
-In the "Vajra Account", King Kong Zongzhi said:
+In the "Indestructible Tent Tantra", Vajra Master Zongzhi said:
 
-Originally a diamond heart, it appears as a teacher, for the benefit of all sentient beings, and turns into an ordinary person.
+Originally a diamond heart, 
+
+it appears as a teacher, 
+
+for the benefit of all sentient beings, 
+
+and turns into an ordinary person.
 
 That is to say, in the future, in the evil world of five turbidities, in order to save all sentient beings, the Vajra Master will incarnate as a teacher, and the above-mentioned teachers will save all sentient beings.
 
 There are many such classics, and the "Second Thoughts Continuation" also says:
 
-In the five hundred years of the end of the Dharma era, I will manifest the teacher's body, recognize it as my body in my heart, and have a heart of admiration for him.
+In the five hundred years of the end of the Dharma era, 
 
-Buddha Shakyamuni once said the same thing. The sutras said: When the Buddha was about to pass away, he saw Yi Bodhisattva and asked Shakyamuni Buddha, after the Buddha passed away, who would guide the monks and how the sentient beings in the Saha world should be saved? Buddha Shakyamuni replied:
+I will manifest the teacher's body,
+
+Recognize it as my body and my heart,
+
+and have a heart of admiration for him.
+
+Buddha Shakyamuni once said the same thing. The sutras said: 
+
+When the Buddha was about to pass away, he saw Yi Bodhisattva and asked Shakyamuni Buddha, after the Buddha passed away, who would guide the monks and how the sentient beings in the Saha world should be saved? Buddha Shakyamuni replied:
 
 125
 
@@ -3365,19 +3490,21 @@ This is what Shakyamuni Buddha himself promised.
 
 Therefore, we can conclude that the guru is the Buddha.
 
-Praying and visualizing the guru with this belief is the foundation of eliminating karmic obstacles, accumulating blessings, and becoming a Buddha after liberation.
+Praying and visualizing the guru with this belief is the foundation for eliminating karmic obstacles, accumulating blessings, and becoming a Buddha after liberation.
 
-Vajrapani Bodhisattva and other four deities, in order to save sentient beings, often take the form of ready-made masters. These masters seem to be ordinary people, ordinary people.
+Vajrapani Bodhisattva and the four deities, in order to save sentient beings, often take the form of ready-made masters. These masters seem to be ordinary people, simple ordinary people.
 
 Therefore, some people have many teachers, and one of them must be the incarnation of Buddhas and Bodhisattvas; some people have only one teacher, so this teacher must be the incarnation of Buddhas and Bodhisattvas.
 
-When our karma is very heavy, when we look at the guru, we will feel that he is very ordinary, and even see that the guru has many shortcomings and faults; when half of the karma has been eliminated, we can see the guru's many merits; when most of the karma has been eliminated, we have truly entered the path. Or when you attain bodhicitta, you see your guru as a bodhisattva; when you reach the level of a bodhisattva of the eighth ground, you see your guru as the incarnation of a Buddha or deity; when you reach a tenth-level bodhisattva, you see your guru as the Buddha’s Sambhogakaya.
+When our karma is very heavy, when we look at the guru, we will feel that he is very ordinary, and even see that the guru has many shortcomings and faults; when half of the karma has been eliminated, we can see the guru's many merits; when most of the karma has been eliminated, we have truly entered the path. When you attain bodhicitta, you see your guru as a bodhisattva; when you reach the level of a bodhisattva of the eighth ground, you see your guru as the incarnation of a Buddha or deity; when you reach a tenth-level bodhisattva, you see your guru as the Buddha’s Sambhogakaya.
 
 Therefore, we should now consider our root guru, as well as all lineage masters, to be all Buddhas and Bodhisattvas.
 
-(3) The virtues of reciting teachers build confidence 126
+(3) The virtues of reciting the lineage teachers build confidence 
 
-Now that we have understood that the guru is the incarnation of Buddhas and Bodhisattvas, let’s think about the merits and virtues of the guru from all aspects: The guru is proficient in the five great treatises, the four tantras, and the ten great dharmas. Being a monk, etc., these are the merits of the guru, all for the purpose of educating and benefiting sentient beings.
+126
+
+Now that we have understood that the guru is the incarnation of Buddhas and Bodhisattvas, let’s think about the merits and virtues of the guru from all aspects: The guru is proficient in the five great treatises, the four classes of tantras, and the ten great dharmas. Being a monk, etc., these are the merits of the guru, all for the purpose of educating and benefiting sentient beings.
 
 This makes it easy to build up confidence in the guru.
 
@@ -3387,28 +3514,34 @@ Confidence in the guru is cultivated to the highest level. Seeing the guru and t
 
 At this time, great energy will naturally be accumulated and many karmic obstacles will be eliminated.
 
-2. Reciting the kindness of the master inspires respect For ordinary disciples, the belief that the guru is a Buddha is not strong enough, and many people do not have a deep understanding of the kindness of the guru.
+2. Reciting the kindness of the master inspires respect 
+
+For ordinary disciples, the belief that the guru is a Buddha is not strong enough, and many people do not have a deep understanding of the kindness of the guru.
 
 Therefore, you should always think about the kindness of your guru, which will help you to increase your faith and respect for your guru.
 
-(1) Master En wins Buddha 127
+(1) The Master's Compassion surpasses Buddha's
+
+127
 
 Teacher's kindness always surpasses all Buddhas. A teacher is a Buddha, a teacher is the same as a Buddha, but in terms of kindness, the kindness of a teacher is greater than that of all the Buddhas.
 In the past innumerable kalpas, countless Buddhas were born, but none of us deserved to meet them.
 
-According to the classic records, in the sage kalpa we are now in, there will be a thousand Buddhas born. Buddha Shakyamuni is the fourth Buddha. Buddha Muni and Buddha Kasyapa) were born to guide and educate sentient beings, but none of us encountered them.
+According to the classic records, in the Saha kalpa we are now in, there will be a thousand Buddhas born. Buddha Shakyamuni is the fourth Buddha. Buddha Shakyamuni and Buddha Kasyapa were born to guide and educate sentient beings, but none of us encountered them.
 
 Now, we have met the guru, and the guru also taught us the full circle teaching of liberation and enlightenment, and guided us.
 
-Therefore, although the merits of the master are equal to those of the Buddhas, the kindness of our teachings is greater than that of all the Buddhas.
+Therefore, although the merits of the master are equal to those of the Buddhas, the kindness of our teacher is greater than that of all the Buddhas.
 
-Master Potoba once said, to the effect that: For ordinary practitioners, the appearance of the Buddha is the icing on the cake, but the appearance of the guru is a blessing in disguise, and the kindness of the guru is even greater.
+Master Potoba once said, to the effect that: 
+
+For ordinary practitioners, the appearance of the Buddha is the icing on the cake, but the appearance of the guru is a blessing in disguise, and the kindness of the guru is even greater.
 
 Because in the early stage of learning, you will generally not see the Buddha, let alone accept the teachings of the Buddha.
 
 Only after one has cultivated to a certain level and reached a certain level, can one see the Buddha, and even hear the Buddha speak sutras.
 
-However, at this time, the cultivators have reached a very high level, and even if they cannot see the Buddha, the achievement may be a matter of one day to the next.
+However, once the cultivators have reached a very high level, and even if they cannot see the Buddha, the achievement may be a matter of one day to the next.
 
 But the guru is different. The guru usually pulls the disciples back from the brink of the three evil realms when the disciples are just learning Buddhism, or even before they learn Buddhism, saves their Dharmakaya's wisdom and life, and leads them to liberation.
 
@@ -3416,21 +3549,25 @@ Therefore, for ordinary practitioners, the kindness of the guru is immense.
 
 128
 
-Master Kedrup Je said in "Ode to the Three Realms of Auspiciousness":
+Master Kedrup Je said in "Ode to the Three Auspicious Realms":
 
-All sentient beings in the three realms have only one eye, the supreme master of all seeking liberation,
+All sentient beings in the three realms have only one eye, 
 
-Great compassion surpasses all buddhas, and the unparalleled master invites you.
+the supreme master of all seeking liberation,
 
-When we can't meet or see other Buddhas and Bodhisattvas, only the guru can teach us the Dharma, teach us the Dharma, and guide us. Therefore, the guru's kindness to us surpasses that of the Buddha.
+Great compassion surpasses all buddhas, 
 
-Shi en is even better than Sakyamuni Buddha's 
+and the unparalleled master invites you.
+
+When we can't meet or see other Buddhas and Bodhisattvas, only the guru can teach us the Dharma, teach us the practices, and guide us. Therefore, the guru's kindness to us surpasses that of the Buddha.
+
+The master's compassion is even better than Sakyamuni Buddha's 
 
 Buddhist scriptures say that during the calamity period of the sage kalpa, in the Saha world, there was a wheel-turning holy king who ruled the four continents. The minister is called Hai Chen.
 
 When they aroused bodhicitta before the Treasure Treasure Tathagata, the Treasure Treasure Tathagata prophesied that they would become Buddhas in virtuous kalpas, and after they became Buddhas, they would receive their respective realms.
 
-At this time, everyone chooses the period that is easy to control or the pure land. In the end, there are two periods of life spanning 100 years and 80,000 years old. No one dares to choose these two periods, because they have observed that the life span is 100 years old. When I was in a period of conflict, it was difficult for all sentient beings to subdue them, so they were afraid and gave up.
+At this time, everyone chooses the period that is easy to control or the pure land. In the end, there are two periods of life spanning 100 years and 80,000 years old. No one dares to choose these two periods, because they have observed that the life span is 100 years old. When I was in a period of conflict, it was difficult to subdue all the sentient beings, so they were afraid and gave up.
 
 129
 
@@ -3438,13 +3575,19 @@ Finally, Minister Hai Chen decided to subdue all sentient beings during the cent
 
 The wheel-turning holy king Fu Wang was the later Amitabha Buddha, his thousand sons were the later Xian Kalpa Thousand Buddhas, and the minister Hai Chen was Shakyamuni Buddha.
 
-Therefore, to us living beings in the age of one hundred years of life, Shakyamuni is more gracious than other Buddhas.
+Therefore, to us living beings in the age of one hundred year life-span, Shakyamuni is more gracious than other Buddhas.
 
-However, even so, we still have no good fortune to meet the Buddha, and we can only rely on the teacher to subdue us, so the teacher's kindness is even more important.
+However, even so, we still do not have the good fortune to meet the Buddha, and we can only rely on the teacher to purify us, so the teacher's kindness is even more important.
 
 It is also stated in "A Guide to the Bodhisattva's Way of Life":
 
-To benefit all sentient beings, countless Buddhas have passed away, but because of my own faults, I have not been taught by them.
+To benefit all sentient beings, 
+
+countless Buddhas have passed away,
+
+but because of my own faults, 
+
+I have not been taught by them.
 
 After the Buddha passed away, many masters and great siddhas appeared in India and Tibet.
 
@@ -3458,17 +3601,17 @@ Therefore, for us, the teacher's kindness is especially important.
 
 130
 
-(2) The grace of the teaching Guru's kindness is Dharmar more than the above.
+(2) The grace of the teaching Guru's kindness is far more than the above.
 
-Venerable Atisha, in order to hear the teaching of the order of the Tao, disregarded the danger of storms and other dangers, and drifted in the sea for thirteen months before he saw Master Jinzhou; Master Marpa, Venerable Milareba and other patriarchs, He went through hardships to seek the law.
+Venerable Atisha, in order to hear the teaching of the order of the Path, disregarded the danger of storms and other dangers, and drifted in the sea for thirteen months before he found Master Serlingpa; Master Marpa, Venerable Milarepa and other patriarchs, He went through hardships to seek the Dharma.
 
 The road to India used to be very difficult, but the translators still went to India desperately to seek the Dharma.
 
 According to the biography, later, when they recalled the hardships and dangers of the road, they often trembled with fear.
 
-Now, we do not need to suffer a little bit to seek the Dharma, and the master has taught us the complete Dharma.
+Now, we do not need to suffer even a little bit to seek the Dharma, and the master has taught us the complete Dharma.
 
-In "Ganlu Zang" it says:
+In "The Essential Nectar of the Holy Doctrine" it says:
 
 Even after the same verse for several kalpas, it will be difficult to make offerings to repay the teacher's kindness.
 
@@ -3480,88 +3623,96 @@ For such a great kindness, we should always think about it and feel grateful. Wh
 
 131
 
-(3) The grace of continuous blessing All the progress of our practice comes from the blessing of the guru.
+(3) The grace of continuous blessing 
+
+All the progress of our practice comes from the blessing of the guru.
 
 When we practice guru yoga, we want to achieve rapid achievement through the blessing of the guru.
 
-Now, we have the opportunity to receive the empowerment, and the one who gave the empowerment and planted the seeds of liberation for us is the vajra master.
+Now, we have the opportunity to receive the empowerment, and the one who gave the empowerment and planted the seeds of liberation for us is the vajra guru.
 
-If you don't get the tantra empowerment, you won't even be able to read books on tantra. It's the guru who let us see the dawn of liberation in the samsara of our lives.
+If you don't get the tantra empowerment, you won't even be able to read books on tantra. It's the guru who lets us see the dawn of liberation in the samsara of our lives.
 
 (4) The kindness of reciting the master inspires devotion to Venerable Atisha and said, "All my merits belong to the master."
 
 The meaning of this sentence is: all merits are born only by the grace of the guru.
 
-The human body, happiness, happiness, wealth, etc. that we have gained in this life, although it seems that all these are the blessings of our previous life to uphold the ten good precepts and practice generosity, in fact, getting such blessings is also the grace of the teacher's teaching.
+The human body, happiness, good health, wealth, etc. that we have gained in this life, although it seems that all these are the blessings of our previous life to uphold the ten good precepts and practice generosity, in fact, getting such blessings is also the grace of the teacher's teaching.
 
 Therefore, all our happiness comes from the guru.
 
 132
 
-In all aspects, big and small, we often think about the kindness of the guru: I didn’t know how to learn Buddhism and do good deeds before, but the guru taught us to enter the Buddhist gate.
+In all aspects, big and small, we should often think about the kindness of the guru: we didn’t know how to learn Buddhism and do good deeds before, but the guru taught us to enter the Buddhist gate.
 
-I didn't know taking refuge before, but the guru led us to take refuge in the Three Jewels and saved us from falling into the evil realm. This is the kindness of the guru.
+We didn't know taking refuge before, but the guru led us to take refuge in the Three Jewels and saved us from falling into the evil realms. This is the kindness of the guru.
 
-I didn't know what was bad karma and what was good karma before; which is good fortune and which is karma, but now I can distinguish it clearly. This is the kindness of the guru.
+We didn't know what was bad karma and what was good karma before; which is good fortune and which is karma, but now we can distinguish it clearly. This is the kindness of the guru.
 
-I didn't understand Buddhism before, but now I have made progress every day and opened up wisdom. This is the kindness of the guru.
+We didn't understand Buddhism before, but now we are making progress every day and opened up wisdom. This is the kindness of the guru.
 
 We couldn't recite "Om Mani Pami Hum" before, but the master taught us to recite it. This is the kindness of the master.
 
-In the past, I couldn't be a human being, and I lost my temper every day. After listening to the teacher's teaching, I don't lose my temper now. This is the kindness of the teacher.
+In the past, we couldn't obtain a precious human life, and we lost our temper every day. After listening to the teacher's teaching, we don't lose our temper now. This is the kindness of the teacher.
 
-I used to be very greedy, but now I'm less greedy. This is the kindness of the guru.
+We used to be very greedy, but now we're less greedy. This is the kindness of the guru.
 
-I didn't even know how to bow before, but the guru taught us. This is the kindness of the guru.
+We didn't even know how to bow before, but the guru taught us. This is the kindness of the guru.
 
 Guru's kindness and parents' kindness are the greatest kindness.
 
 The kindness of parents is the kindness of nurturing, and the kindness of the guru is the kindness of teaching Dharma, the kindness of opening up wisdom, the kindness of nourishing blessings, and the kindness of breaking samsara.
 
-Think about all aspects, how much progress you have made than before, all from the kindness of your guru.
+Think about all these aspects, how much progress you have made than before, all from the kindness of your guru.
 
 133
 
 134
 
-Section 5 How to learn to be close to the guru We now understand why we are talking about being close to the guru. We also understand the merits of being close to the guru, as well as the various disadvantages of being disrespectful to the guru. Next, we need to learn how to meditate. Get close to the guru.
+#### Section 5 How to learn to be close to the guru 
 
-1. How to practice during the right practice. The part of the right practice is divided into the front line, the right line, and the end line.
+We now understand why we are talking about being close to the guru. We also understand the merits of being close to the guru, as well as the various disadvantages of being disrespectful to the guru. Next, we need to learn how to meditate. Get close to the guru.
 
-Preliminary practice, also known as additional practice, is the preparatory work before the right practice begins, and it is the reason why the experience of right practice can arise smoothly in the mind.
+1. How to practice during the right practice. 
 
-(1) Moving forward is divided into five steps.
+The part of the right practice is divided into the preliminary stage, the main stage, and the dedication.
 
-Sweeping the Dojo and setting up Buddha statues (1) Sweeping and cleaning the Dojo is the practice of Venerable Atisha’s guru, Master Jinzhou. The purpose is to invite our master to the Dojo through visualization later , Buddha and Bodhisattva to express respect, there is great merit.
+Preliminary practice, also known as additional practice, is the preparatory work before the main practice begins, and it is the reason why the experience of right practice can arise smoothly in the mind.
+
+(1) Preliminaries are divided into five steps.
+
+Sweeping the practice area and setting up Buddha statues (1) Sweeping and cleaning the practice area is the practice of Venerable Atisha’s guru, Master Serlingpa. The purpose is to invite our master to the practice area through visualization later, to express respect for Buddha and Bodhisattvas, there is great merit.
 135
 
-According to the "Louge Sutra", there are five kinds of merits in cleaning the dojo:
+According to the "Pavilion Sutra", there are five kinds of merits in cleaning the practice area:
 
 1) Clean your mind. Get rid of the defilements in your heart, and you will be happy.
 
-2) His heart is pure. Remove the defilements in the hearts of all sentient beings who come to this dojo, and make them happy.
+2) Purify the heart. Remove the defilements in the hearts of all sentient beings who come to this practice area, and make them happy.
 
 3) The Dharma protectors are often protected. Heavenly dragon protectors like to be clean, and they like to protect them even more.
 
 4) Delightful. The body of the sweeper will be healthy and beautiful, and the discipline will be pure.
 
-5) Born in the land of Buddha. After death, you will be reborn in the Pure Land.
+5) Born in the land of Buddha.
 
-When cleaning the dojo, if the intention is to become a Buddha and save sentient beings, in order to make the guru Three Jewels happy, there will be greater merit, and the intention is very important.
+After death, you will be reborn in the Pure Land.
+
+When cleaning the practice area, if the intention is to become a Buddha and save sentient beings, in order to make the guru Three Jewels happy, there will be greater merit, and the intention is very important.
 
 Among the disciples of the Buddha, Zhou Lipan Tuojia attained the fruit of Arahantship from the Yisasao Taoist Temple.
 
-When Venerable Ananda first became a monk, he was greedy for a small Dharmamily and could not practice peacefully. The Buddha also asked him to clean the jungle and gradually get rid of the obstacles of greed.
+When Venerable Ananda first became a monk, he yearned for a small family and could not practice peacefully. The Buddha also asked him to clean the jungle and gradually get rid of the obstacles of greed.
 
 136
 
-(2) Before the Buddha statues were displayed, the teachers of the Kadam School often wore the Buddha statue of Sakyamuni Buddha with them. belief.
+(2) Before the Buddha statues were displayed, the teachers of the Kadam School often carried the Buddha statue of Sakyamuni Buddha with them. belief.
 
-Now, temples and Buddhist halls have generally installed Buddha statues, so there is no need to rearrange them.
+Now, temples and Buddhist halls generally have installed Buddha statues, so there is no need to carry them around them.
 
-For Buddha statues, many people may always think: "I am very Dharmamiliar with those Buddha statues, and there is nothing to see."
+For Buddha statues, many people may always think: "I am very familiar with those Buddha statues, and there is nothing to see."
 
-In fact, if every time you look at a Buddha statue, if you look at the Buddha statue as the real body of a Buddha and Bodhisattva with respect, you will continue to produce extraordinary and other fruits in your heart, and you will gradually see the image as real. Buddha and Bodhisattva.
+In fact, every time you look at a Buddha statue, if you look at the Buddha statue as the real body of a Buddha and Bodhisattva with respect, you will continue to produce extraordinary merit and other fruits in your heart, and you will gradually see the image as real Buddhas and Bodhisattvas.
 
 In addition, the clay statues and bronze statues that we see now, when we cultivate to the Dharma Flow Samadhi of the Mahayana Accumulation Path, we will see that these are like the truly extraordinary incarnations of the Buddha.
 
