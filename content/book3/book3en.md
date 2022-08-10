@@ -330,7 +330,7 @@ Session 2 - Getting Closer to the Guru……………… 58
 
 (2) Self-awareness …………. 75
 
-(3) Accelerate achievements …………. 78
+(3) Accelerated achievement …………. 78
 
 4. The merits and virtues of visualising the image of the guru …….. 79
 
@@ -2351,9 +2351,9 @@ That is, the body achieves the vajra practice,
 
 The ultimate way is the way of the gurus,
 
-The highest faith in the gurur.
+The highest faith in the guru.
 
-By honoring the guru with the highest faith, the achievement will continue to improve.
+By honouring the guru with the highest faith, the achievement will continue to improve.
 
 ---
 
@@ -2385,9 +2385,9 @@ A master is a living Buddha!
 
 It is very, very important to cultivate and consolidate this belief!
 
-4. The merits of shaping the image of the guru 
+**4. The merits of shaping the image of the guru** 
 
-In "Atisha Form Continuity", it says:
+In Atisha's Continuity of Form ", it says:
 
 To build an image of a guru, the merit is far better than,
 
@@ -2423,7 +2423,7 @@ The origin of the statue of the guru is very good, and the statue of the guru is
 
 Therefore, in the Great Sutra Hall of Tuole Temple, there are statues of Dharma King Yongzeng, Jiayang Xieba, and many teachers.
 
-5. The merits of thinking about and praying to the guru
+**5. The merits of thinking about and praying to the guru**
 
 (1) Remembering the merits of the guru
 
@@ -2512,7 +2512,7 @@ Because only through the guru can the blessings of the Buddhas and Tathagatas be
 
 84
 
-(2) Praying for the guru's merits
+#### (2) Praying for the guru's merits
 
 Often praying to the guru, such as reciting the guru's prayer, the merit is also very, very great.
 
@@ -2543,7 +2543,7 @@ Frequently reciting the prayer of Master Tsongkhapa will have the merits of reci
 
 85
 
-6. The merits of reverence for the Buddha 
+**6. The merits of reverence for the Buddha** 
 
 (1) The guru is Buddha according to the scriptures, and all masters with virtue are the manifestations of all Buddhas and Bodhisattvas.
 
@@ -2761,11 +2761,11 @@ The sin of disrespecting the guru is divided into three aspects: body, speech, a
 
 If you step on the guru's shadow with malice, it is equivalent to destroying a stupa.
 
-In other respects, it is also a great sin to sit on the guru's cushion, throne, or to step on the guru's robe or bedding without the master's permission.
+In other respects, it is also a great sin to sit on the guru's cushion, throne, or to step on the guru's robe or bedding without permission.
 
 93
 
-In the past, there were small living Buddhas who were mistakenly identified in Tibet and were placed on the cushions of the large living Buddhas who had passed away. Because the blessings were not enough, it was also very pitiful.
+In the past, there were minor living Buddhas who were mistakenly identified in Tibet and were placed on the cushions of the large living Buddhas who had passed away. Because the blessings were not enough, it was also very pitiful.
 
 2. The guilt of speech 
 
