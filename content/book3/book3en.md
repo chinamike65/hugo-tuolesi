@@ -5308,11 +5308,13 @@ In the Saha world, although the people of the Northern continent have great fort
 
 In addition, the bodhicitta aim necessary for becoming a Buddha is also most powerful in our precious human body. Therefore, Nagarjuna Bodhisattva said in the Book of Disciples:
 
-If you want to become a Buddha and save sentient beings, 
-
-only human beings have this great mental power.
-
-The Tianlong Shura golden-winged python is not as good as the immortals.
+>
+>If you want to become a Buddha and save sentient beings, 
+>
+>only human beings have this great mind power.
+>
+>Nagas, Asuras, Golden-winged serpents are not as good as these.
+>
 
 199
 
@@ -5322,25 +5324,28 @@ Therefore, in order to achieve Buddhahood and liberation, it is most suitable to
 
 After understanding this, we should be able to realize that making use of the human body to practice liberation will be faster.
 
-Therefore, after you have obtained a precious human body full of freedom and time, you cannot waste it. Ashvaghosha Bodhisattva (Ma Ming) said in the Treatise on the Treasure Box of Good Talk:
+Therefore, after you have obtained a precious human body full of freedom and time, you cannot waste it. Ashvaghosha Bodhisattva (Ma Ming) said in the Book of Glory:
 
-Those who have obtained a human life rich in virtues 
+>
+>Those who have obtained a human life rich in virtues 
+>
+>Through accumulation of merit over innumerable eons, 
+>
+>And who then, due to confusion in this life, 
+>
+>Fails to accumulate even the slightest treasury of merit 
+>
+>Will in future lifetimes 
 
-Through accumulation of merit over innumerable eons, 
+>Enter the house of unbearable sorrow.
+>
+>Like the traders who go to a land of
+jewels 
+>
+>And return home empty-handed,
+>
 
-And who then, due to confusion in this life, 
-
-Fails to accumulate even the slightest treasury of merit 
-
-Will in future lifetimes 
-
-Enter the house of unbearable sorrow.
-
-Like the traders who go to a land of
-
-jewels And return home empty-handed,
-
-It means that there is nothing more stupid in the world than a businessman who, without regard for life or death, goes to a treasure land full of treasures in the sea, and then comes home empty-handed without finding anything.
+It means that there is nothing more stupid in the world than a merchant who, without regard for life or death, goes to a treasure land full of treasures in the sea, and then comes home empty-handed without finding anything.
 
 We should also think this way: just like when you arrive at the treasure island, you cannot go back empty-handed; if you get a wish-fulfilling treasure, you cannot just throw it away.
 
@@ -5382,7 +5387,7 @@ The foundation of the path of the Upper scope is the path of the Middle scope, t
 
 To become a Buddha, one must cultivate these three paths.
 
-1. The goal of the path of the Three Scopes 
+##### 1. The goal of the path of the Three Scopes 
 
 The goal pursued by the Lower scope is not to fall into the evil realms of rebirth.
 
@@ -5404,7 +5409,7 @@ After attaining the Upper level, then practicing the second stage of Tantra, the
 
 It is a real and thorough awakening. A great awakening!
 
-2. Common and Uncommon Paths 
+##### 2. Common and Uncommon Paths 
 
 The Path of the Three Scopes are divided into common and uncommon Paths.
 
@@ -5434,7 +5439,7 @@ If the goal pursued by cultivating the sage path is to obtain the status of Arha
 
 The Path of the Upper scope is not a common way, it is the only way to attain liberation and become a Buddha, and there is no common method.
 
-3. The order of practice of Three Principle Aspects of the Path 
+##### 3. The order of practice of Three Principle Aspects of the Path 
 
 Some people have misunderstandings about the Three Principle Aspects of the Path.
 
@@ -5511,45 +5516,49 @@ Now, even if others encourage us to practice, we can't get progress quickly, bec
 
 ![三士道](/images/sanshidaored.png)
 
-Section 3 "Treasures of the Dharma Ocean" Three Principal Aspects of the Path
+#### Section 3 "Treasures of the Dharma Ocean" Three Principal Aspects of the Path
 
 ...
 
-Although there is no certainty that after death
-
-You will not be reborn in the bad migrations,
-
-The Three Jewels will definitely protect you from this fear,
-
-Therefore, steadfastly take refuge in them
-
-And never degenerate their precepts.
-
+>
+>Although there is no certainty that after death
+>
+>You will not be reborn in the bad migrations,
+>
+>The Three Jewels will definitely protect you from this fear,
+>
+>Therefore, steadfastly take refuge in them
+>
+>And never degenerate their precepts.
+>
 In addition, think well about the results of black and white actions,
-
-And depend on the correct practice of that to be adopted and that to be rejected.
-
-I, a yogi, practiced like this.
-
-You who desire liberation, should do likewise. 
+>
+>And depend on the correct practice of that to be adopted and that to be rejected.
+>
+>I, a yogi, practiced like this.
+>
+>You who desire liberation, should do likewise. 
+>
 
 ---
 
-Until you attain a body with pure characteristics,
-
-You will not make progress in your practice of the supreme path;
-
-Train in the causes for becoming free from those impurities.
-
-Since your three doors are defiled by negative actions, downfalls, and stains,
-
-It is particularly important to purify karmic obscurations;
-
-Therefore, continuously cherish reliance on purification with the four forces.
-
-I, a yogi, practiced like this.
-
-You who desire liberation, should do likewise.
+>
+>Until you attain a body with pure characteristics,
+>
+>You will not make progress in your practice of the supreme path;
+>
+>Train in the causes for becoming free from those impurities.
+>
+>Since your three doors are defiled by negative actions, downfalls, and stains,
+>
+>It is particularly important to purify karmic obscurations;
+>
+>Therefore, continuously cherish reliance on purification with the four forces.
+>
+>I, a yogi, practiced like this.
+>
+>You who desire liberation, should do likewise.
+>
 ...
 
 ——"A Hymn of Experience (Lam rim nyam gur)"
@@ -5558,7 +5567,7 @@ You who desire liberation, should do likewise.
 
 ### Chapter 1 The Three Principal Aspects of the Path 
 
-#### Section 1 
+#### Section 1 Impermanence of Life
 
 Life is impermanent, and you can't slack off, because life is impermanent, and it is constantly changing due to the working of karma.
 
@@ -5611,13 +5620,13 @@ If you are less attached, there will be no more troubles, no more bad karma, and
 
 Not only is it beneficial to practice in this way, but it is also easier to obtain happiness in the world.
 
-1. How to think about the impermanence of life 
+##### 1. How to think about the impermanence of life 
 
 So, how to think about the impermanence of life? First of all, we must understand the three roots, nine causes, and three conditions for the impermanence of life.
 
 The three roots of impermanence in life are: people are bound to die; not only will they die but the time of death is unknown; when they die, nothing can help them except the Dharma.
 
-(1) Man is bound to die 
+##### (1) Man is bound to die 
 
 The first root of impermanence is that man is bound to die.
 
@@ -5630,7 +5639,8 @@ The three reasons are: death is bound to come, and nothing can change it; life e
 One condition is: the Dharma must be practiced.
 
 Death must come, and nothing can change the four causes of why death must come.
-(1) Born anywhere, death is inevitable. People must die.
+
+##### (1) No matter where you born, death is inevitable. People must die.
 
 There are four continents where people were born: Jambudvipa, Eastern Holy Isle, West Land, and the Northern continent.
 
@@ -5638,25 +5648,27 @@ Among them, the people in the Norther Continent will live a little longer and ca
 
 People are bound to die in whatever continent they are born in, and death cannot be avoided no matter they are born.
 
-Therefore, it is said in Jifa Jujing:
+Therefore, it is said in Collection of Sayings:
 
-There is no place where death can be avoided,
+>
+>There is no place where death can be avoided,
+>
+>There is nowhere in the sky, nowhere in the sea, and nowhere in the forest.
+>
 
-There is nothing in the sky, nothing in the sea, and nothing in the forest.
+If you are born in the sea, you will surely die, if you are born in the sky, you will surely die. There is no way to avoid death no matter where you are born, and there is no place where you can escape death.
 
-If you are born in the sea, you will surely die, if you are born in the sky, you will surely die. There is no way to avoid death no matter you are born, and there is no place where you can escape death.
-
-(2) There is no era where death can be avoided. Being born in any age will lead to death.
+##### (2) There is no era where death can be avoided. Being born in any age will lead to death.
 
 Do not kill, do not steal, do not commit adultery, do not tell lies, these are called the four fundamental precepts.
 
-The era when the four fundamental precepts are violated is called the age of consummation.
+The era when the four fundamental precepts are violated is called the age of degeneration.
 
-Since ancient times, the Age of Consummation has lasted for a long, long time. With the growth of human greed, hatred, and delusion, some people have become greedy for food and drink, and there is a phenomenon of stealing. When they violate the precept of "not stealing", human beings enter The three-point era has entered; human beings have continued to develop, and adultery has appeared again, breaking the precept of "not committing adultery", and entering the era of two-pointing; then there is the phenomenon of murder, and the precept of "not killing living beings" has been violated.
+Since ancient times, the Age of Degeneration has lasted for a long, long time. With the growth of human greed, hatred, and delusion, some people have become greedy for food and drink, and there is a phenomenon of stealing. When they violate the precept of "not stealing", human beings enter The three-point era has entered; human beings have continued to develop, and adultery has appeared again, breaking the precept of "not committing adultery", and entering the era of two-pointing; then there is the phenomenon of murder, and the precept of "not killing living beings" has been violated.
 
 Now, the four fundamental precepts have all been broken, which is called the era of conflict in Buddhism.
 
-Life will end in the Age of Consummation, but lifespan will be a little longer.
+Life will end in the Age of Degeneration, but lifespan will be a little longer.
 
 If you are born in a three-point era or a two-point era, you will die.
 
@@ -5666,17 +5678,17 @@ We can all see that now, it is very rare for a person to live to be 80 years old
 
 While everyone would like to live to be eighty years old, this idea really doesn't necessarily come true.
 
-(3) No life can avoid death. All living beings will die.
+##### (3) No life can avoid death. All living beings will die.
 
 People will die, and animals will die; ordinary people will die, and powerful people will die; people in the Saha world will die, and so will gods and demi-gods.
 
 All life will die, this is an inviolable law of nature.
 
-(4) There is no way of immortality except liberation, and there is no way to make a person immortal.
+##### (4) There is no way to immortality except liberation, and there is no way to make a person immortal.
 
 Under normal circumstances, we cannot escape death by reciting mantras and sutras.
 
-However, if you rely on the practice of the Three Aspects, you are truly liberated, and you can break through the obstacles of birth, aging, sickness and death, but you still have to give up your current physical body.
+However, if you rely on the practice of the Three Aspects, you can truly be liberated, and you can break through the obstacles of birth, aging, sickness and death, but you still have to give up your current physical body.
 
 Therefore, you cannot be attached to your own flesh.
 
@@ -5698,19 +5710,25 @@ Nagarjuna Bodhisattva lived for 600 years and was free to come and go. After 600
 
 The Buddhist scriptures say:
 
-The Omniscient Buddha and the Enlightened Buddha, and the sage-hearers of the disciples of the Buddha,
+The Omniscient Buddha and the Enlightened Buddha, 
 
-also cast aside the physical body, not to mention other mortals,
+and the sage-hearers of the disciples of the Buddha,
 
-Now, let's think about it, the Buddha, who has obtained the immortal vajra body, will also abandon the physical body according to the karma, and show the appearance of Nirvana. There were so many great siddhis in India and Tibet who achieved freedom from birth and death, including Nagarjuna, Venerable Atisha, and Master Tsongkhapa, who have also passed away, and only their teachings remain. This is especially true for all of us. We will all die in a hundred years, and it is estimated that there will be no one left, no exception.
+also cast aside the physical body, 
 
-When death comes, no force can prevent it. In the past, the city of Kapila, where the Buddha was located, was invaded by the King of Glass. The Buddha knew that this was the result of the common karma of the Sakyamuni family in the past.
+not to mention other mortals,
 
-The Buddha dissuaded him three times with great compassion, and the King of Glazed Glass went back and forth, but the third time he was unable to stop him.
+Now, let's think about it, the Buddha, who has obtained the immortal vajra body, will also abandon the physical body according to the karma, and show the appearance of Nirvana. There were so many great siddhis in India and Tibet who achieved freedom from birth and death, including Nagarjuna, Venerable Atisha, and Master Tsongkhapa, who have also passed away, and only their teachings remain. This is especially true for all of us. We will all die within a hundred years, without exception.
 
-When the Liuli King attacked the city, Mugallian wanted to use his miraculous power to bring the Liuli King's army outside the Tiewei Mountain, but the Buddha said it was useless.
+When death comes, no force can prevent it. 
 
-So, Mugallian hid some young men and women of the Shakya tribe in the Buddha's bowl. However, after the massacre, when the Shakya people died, this group of people also died.
+In the past, the city of Kapilavastu, where the Buddha was located, was invaded by the King of Glass. The Buddha knew that this was the result of the common karma of the Sakyamuni family in the past.
+
+The Buddha dissuaded him three times with great compassion, and the King of Glass went back and forth, but the third time he was unable to stop him.
+
+When the Liuli King attacked the city, Maudgalyāyana wanted to use his miraculous power to bring the Liuli King's army outside the Tiewei Mountain, but the Buddha said it was useless.
+
+So, Maudgalyāyana hid some young men and women of the Shakya tribe in the Buddha's bowl. However, after the massacre, when the Shakya people died, this group of people also died.
 
 It shows that Buddha power cannot stop karma.
 
@@ -5718,21 +5736,25 @@ It shows that Buddha power cannot stop karma.
 
 Therefore, it is said in the "Abandoned Rock Mountain Sutra": 
 
-"The incomparable wisdom and supernatural powers of the Buddhas are not as powerful as the power of death, and the power of all Buddhas and Bodhisattvas combined is powerless against the laws of rebirth and of death."
+"The incomparable wisdom and supernatural powers of the Buddhas are not as powerful as the power of death,
+
+and the power of all Buddhas and Bodhisattvas combined is powerless against the laws of rebirth and of death."
 
 Then, can you save yourself by obtaining supernatural powers? In the Anthology of Impermanence, it says:
 
-"An immortal possessing the five powers, 
-
-although he can travel thousands of miles in the air,
-
-Somewhere to live that is unharmed by death— 
-
-Such a place does not exist. 
-
-It does not exist in space, it does not exist in the sea, 
-
-Nor if you stay in the midst of mountains."
+>
+>An immortal possessing the five powers, 
+>
+>although he can travel thousands of miles in the air,
+>
+>Somewhere to live that is unharmed by death— 
+>
+>Such a place does not exist. 
+>
+>It does not exist in space, it does not exist in the sea, 
+>
+>Nor if you stay in the midst of mountains.
+>
 
 That is to say, those immortals who have supernatural powers and obtain the five supernatural powers, no matter how they change, how fast they run with supernatural powers, they will not be able to run away from karma, and they will not be able to run away from death.
 
@@ -5740,7 +5762,7 @@ Power and wealth are useless.
 
 When the wheel-turning king's blessings are exhausted, he will also fall into the evil realm. The power and wealth of these worldly gods have no ability to stop death, let alone us ordinary people.
 
-There is no way for doctors to cure impermanence, and there is no panacea for impermanence. This is known and seen by everyone.
+There is no way for doctors to cure impermanence, and there is no panacea for impermanence. This is known and understood by everyone.
 
 In a word, there is no way to keep a person from dying.
 
@@ -5748,28 +5770,30 @@ Our life expectancy is decreasing all the time, without any increase. Our lifesp
 
 In the Bodhisattva-caryāvatāra, it says:
 
-Day and night without pause, 
-
-this longevity is constantly diminished,
-
-There is nothing left to add, 
-
-how can I not die?
+>
+>Day and night without pause, 
+>
+>this longevity is constantly diminished,
+>
+>There is nothing left to add, 
+>
+>how can I not die?
+>
 
 From the moment we emerge from the womb, our lives are diminished, every minute and second that passes.
 
 If you can live to eighty years old, your life expectancy will be reduced by one year at the age of one year, and you will only be seventy-nine years old.
 
-Life is decreasing all the time, there is no possibility of increasing it, and in the end it must die.
+Life is decreasing all the time, there is no possibility of increasing it, and in the end we all must die.
 
 There is not much time in one's lifetime to practice the Dharma. If a person can live to be 80 years old, before the age of 20, he must learn and grow according to the customs of the world, and he will not think of practicing Buddhism. There are only sixty years left.
 In sixty years, the time spent sleeping and eating three meals a day will never be less than twelve hours, so if you remove half of the time for eating and sleeping, there will be no time for thirty years.
 
 In the remaining thirty years, work will take up fifteen years.
 
-In the remaining fifteen years, if you don’t work hard, you have more fun, and you waste your time on pleasure, it’s hard to say whether you have five years of real practice, but five years is already very good.
+In the remaining fifteen years, if you don’t work hard, you have more fun, and you waste your time on pleasure. It’s hard to say whether you have five years of real practice, but five years is already very good.
 
-Therefore, some people say that they have studied Buddhism for 20 years, but have they actually studied for 20 years? Maybe it was only 20 years ago that I started learning, and I spent ten years eating and sleeping, at least seven or eight years working, and maybe only one or two years of cultivation time.
+Therefore, some people say that they have studied Buddhism for 20 years, but have they actually studied for 20 years? Maybe it was only 20 years ago that they started learning, and they spent ten years eating and sleeping, at least seven or eight years working, and maybe only one or two years of cultivation.
 
 He also said that after 20 years of cultivation, he has not achieved anything, so how could he have achieved success.
 
@@ -5779,11 +5803,12 @@ Cruel and merciless death, before it comes,
 
 Prepare all the good resources, don't regret it later,
 
-The first condition: you must study the Dharma
 
-By thinking about the first root of impermanence in life: people must die, and the three reasons why people must die, we have to make a decision: we must practice the Dharma.
+The first decision: you must study the Dharma
 
-Everyone must think very clearly: in our life, we will surely die wherever we are born; we will surely die at any age; in this life, no matter what our fate is, we will surely die; our lifespan will decrease every day, no extension.
+By thinking about the first root of impermanence in life: people must die, and the three reasons why people must die, we have to make a choice: we must practice the Dharma.
+
+Everyone must think very clearly: in our life, we will surely die no matter where we are born; we will surely die at any age; in this life, no matter what our fate is, we will surely die; our lifespan will decrease every day, no extension.
 
 If you don't practice the Dharma very much in your lifetime, you can't be sure where you will go in future rebirths. It's really scary!
 
@@ -5795,7 +5820,7 @@ Therefore, you must practice the Dharma, you must practice the Dharma!
 
 The second root of impermanence in life is that you will not only die but the time of death is uncertain.
 
-The three reasons for the uncertainty of the time ofdeath are: life is uncertain; there are many causes of death; and the body is extremely fragile.
+The three reasons for the uncertainty of the time of death are: life is uncertain; there are many causes of death; and the body is extremely fragile.
 
 The life expectancy of people in Jambudvipa is indeterminate, and it is said in the "Kushi Lun": The north is a thousand years old, and the remaining two and a half are reduced.
 That is to say, in the four continents, the life expectancy of people on the other three continents is fixed.
@@ -5804,7 +5829,7 @@ People in the North can live to a thousand years, and there is a regular period;
 
 Only the people in Jambudvipa are different, "the last ten years are immeasurable", the initial lifespan is immeasurable years, and at the end of the Five Turbid Ages, ten years old is the longest lifespan, and the lifespan is very, very short.
 
-Not only is the lifespanvery short, the time of death is unknown.
+Not only is the lifespan very short, the time of death is unknown.
 
 Some people die as soon as they are born, some die when they are children, or die in middle age or old age, and the time of death is uncertain.
 
@@ -5829,9 +5854,15 @@ Diet is also the cause of life, and it can also become the cause of death. Many 
 
 Therefore, Nagarjuna Bodhisattva said in the "Precious Garland":
 
-There are many ties to death, but only a few ties to living.
-
-Such things also become death, so one should always practice the Dharma.
+>
+>There are many ties to death, 
+>
+>but only a few ties to living.
+>
+>Such things also become death, 
+>
+>so one should always practice the Dharma.
+>
 
 ...
 
@@ -5840,13 +5871,13 @@ Resting in death is like a candle in the wind.
 It means that our life is like an oil lamp in a gust of wind. There are many deaths around us, but we are small and powerless, and may be extinguished at any time.
 
 The body of a very fragile person is very weak, so there is no regularity in death.
-Although there are many causes of death and very few causes of life, if our bodies are indestructible, no matter how many causes of death, we are not afraid of them.
+Although there are many causes of death and very few causes of life, if our bodies were indestructible, no matter how many causes of death, we would not be afraid of them.
 
 However, in reality, our physical body is very fragile.
 
 For example, many people's bodies have fragile parts, which are the lifeblood, and a touch is fatal.
 
-Some people died after being slapped in the face. Everyone's lifeblood is different, and they don't know where they are.
+Some people die after being slapped in the face. Everyone's lifeblood is different, and they don't know where they are.
 
 Examples of people being easily hurt, everyone knows of many stories.
 
@@ -5854,9 +5885,15 @@ There are several metaphors for the fragility of life in Buddhist scriptures: li
 
 Nagarjuna Bodhisattva also said in the Book of Relatives and Friends:
 
-Life is more harmful than impermanent. Bubbles on the water burst easily.
-
-There is life and death between one breath and the next, and it is a miracle to wake up after sleeping.
+>
+>Life is more harmful than impermanent.
+>
+>Bubbles on the water burst easily.
+>
+>There is life and death between one breath and the next, 
+>
+>and it is a miracle to wake up after sleeping.
+>
 
 It means that the impermanence of life is easier than the bursting of water bubbles, and there is life and death between breaths.
 
@@ -5868,9 +5905,11 @@ Life is fragile, and even waking up after falling asleep is a miracle, and it’
 
 So the scripture says:
 
-Tomorrow or future rebirth, I don't know which will come first,
-
-Abandoning tomorrow's affairs should be for future rebirths.
+>
+>Tomorrow or afuture rebirth, I don't know which will come first,
+>
+>Abandoning tomorrow's affairs should be for future rebirths.
+>
 
 Tomorrow or the afterlife, which comes first is unknown, and it is difficult to say where the afterlife will take us.
 
@@ -5880,21 +5919,23 @@ Everyone wants to live a long life, to live to ninety or one hundred years old, 
 
 224
 
-The second decision: amend the law immediately
+The second decision: follow the Dharma immediately
 
 By thinking about the second root of impermanence in life: people not only die but time of death is uncertain, and the three reasons for uncertainty of death, we have to make a decision: immediately practice the Dharma.
 
 Gongtang Rinpoche said in the "Anthology of Impermanence":
 
-Before the dawn of tomorrow's practice of the Dharma, today's death is approaching,
+Before the dawn of tomorrow's practice of the Dharma, 
 
-Don't deceive yourself now and follow the law from now on.
+today's death is approaching,
 
-Not only do people die, they die indefinitely.
+Don't deceive yourself now and follow the Dharma from now on.
 
-Whether we die today or tomorrow, no one can be sure. Before death comes, we must decide to practice the Dharma today. This is very important!
+Not only do people die, the time of death is uncertain.
 
-In the "Guide to Enlightenment", it is said that the most important of the three fundamentals is to think about death without a fixed period. Thinking about the uncertainty of the time of death can really change our concept and encourage us to diligently practice the Dharma.
+Whether we will die today or tomorrow, no one can be sure. Before death comes, we must decide to practice the Dharma today. This is very important!
+
+In the "Guide to Enlightenment", it is said that the most important of the three fundamentals is to think about the time of death being uncertain. Thinking about the uncertainty of the time of death can really change our attitude and encourage us to diligently practice the Dharma.
 
 If you procrastinate and do not practice the Dharma, you will regret it very much before you die.
 
@@ -5908,24 +5949,26 @@ Therefore, while learning you must pay equal attention to listening, thinking, a
 
 The Kadampa Patriarch said:
 
-The law can pacify sinners, 
-
-but it is difficult to pacify oilseeds.
-
-Oil can tan rough skins, 
-
-but it is difficult to tan oily skins.
+>
+>The Dharma can pacify sinners, 
+>
+>but it is difficult to pacify oilseeds.
+>
+>Oil can tan rough skins, 
+>
+>but it is difficult to tan oily skins.
+>
 
 If you become Dharma oil seed because of other Dharma, you can also be taught by studying the Three Ways and contemplating the impermanence of life.
 
 But if you also become slick with the steps, there is no cure, so be careful!
 
-(3) At the time of death, nothing can help except the Buddhadharma.
+##### (3) At the time of death, nothing can help except the Buddhadharma.
 
-The third fundamental also includes three reasons: when you die, money can't help; relatives and friends can't help; body can't help.
+The third fundamental also includes three reasons: when you die, money can't help; relatives and friends can't help; your body can't help.
 
-When you die, money can't help, how much money you have is useless, it can't help you, and you can't save people.
-There are such examples around everyone. Some rich people died, put down hundreds of millions of assets, and left on their own.
+When you die, money can't help, no matter how much money you have it is useless, it can't help you, and it can't save you.
+There are such examples around everyone. Some rich people died, left behind hundreds of millions of assets, and left on their own.
 
 So much money can't be exchanged for immortality in the face of death.
 
@@ -5933,21 +5976,25 @@ So, money can't help us when we die.
 
 The third Kungtang Rinpoche also said:
 
-Although there is gold and silver piled up in the valley,
-
-when you die, you can't take a penny with you.
+>
+>Although there is gold and silver piled up in the valley,
+>
+>when you die, you can't take a penny with you.
+>
 
 When we die, our relatives and friends can't help us. How many relatives and friends can't save us.
 
 The Fourth Panchen Lama said in "Dangers and Difficulties in Liberation":
 
-Those who save money and silk are all abandoned, 
+>
+>Those who save money and silk are all abandoned, 
+>
+>and all the loving family members leave forever.
+>
 
-and all the loving family members leave forever.
+Sometimes, relatives and friends will be too attached to the person who is about to die. For example, at the end of life, if relatives and friends are crying non-stop, it will make the person who is about to die feel uneasy and worry. There may also be thoughts of attachment to relatives, friends, and children, and even if you want to leave, you can’t leave.
 
-Sometimes, relatives and friends will be implicated in the person who is about to die. For example, at the end of life, if relatives and friends are crying non-stop, it will make the person who is about to die feel uneasy and worry. There may also be thoughts of attachment to relatives, friends, and children, and even if you want to leave, you can’t leave.
-
-That's why it says in the Treatise on Entering the Bodhisattva's Actions:
+That's why it says in the Treatise on Entering the Bodhisattva's Way:
 
 Come alone in life, go alone in death,
 
@@ -5955,10 +6002,10 @@ No one to share the pain,
 
 what's the use of hindering relatives and friends.
 
-When you die, your body can't help. Now, we already know that wealth can't help when you're dying. You can't buy the medicine for immortality, and money can't redeem your life. Friends and family can't help, let alone other people.
+When you die, your body can't help. We already know that wealth can't help when you're dying. You can't buy medicine for immortality, and money can't redeem your life. Friends and family can't help, let alone other people.
 So, can you rely on your own body?
 
-Everyone protects their own body every day like a wish-fulfilling treasure. I hope that this body will always be young and beautiful and accompany you.
+Everyone protects their own body every day like a wish-fulfilling treasure. We hope that this body will always be young and beautiful and accompany us.
 
 But, in fact, the body is like a hotel, the essence is like a tourist, and a tourist cannot stay in a hotel all the time.
 
@@ -5966,37 +6013,39 @@ When fate runs out, the soul needs to change to a body, just like a tourist need
 
 So, when you die, your body can't help either.
 
-Decision 3: Only Amend the Law
+Decision 3: Only follow the Dharma
 
 By thinking about the third root of impermanence in life: when a person dies, property can’t help, relatives and friends can’t help, and even our own body can’t help, so we shouldn’t be attached to anything in the world.
 
-The Impermanence says:
+The "Impermanence" says:
 
-In the past and in the future, 
-
-we must give up this body and leave,
-
-The wise realize that everything is destroyed, 
-
-and in the Dharma one must do the Dharma.
+>
+>In the past and in the future, 
+>
+>we must give up this body and leave,
+>
+>The wise realize that everything is destroyed, 
+>
+>and in the Dharma one must do the Dharma.
+>
 
 Now, we understand what can help us before we die, the Dharma that we have learned and practiced, and the "Om Mani Padme Hum" that we have recited.
 
 228
 
-Therefore, we decided: in the face of approaching death, we must put everything aside and only correct the law.
+Therefore, we decide: in the face of approaching death, we must set everything else aside and only follow the Dharma.
 
-2. Appearances and Differences at the End of Life 
+##### 2. Appearances and Differences at the End of Life 
 
 Since it is said that a person will surely die, then what happens when a person dies? What is the difference between those who study Buddhism and those who do not study Buddhism when they face death?
 
 This is divided into two parts.
 
-(1) Appearance of Dying 
+##### (1) Appearance of Dying 
 
 To put it simply, when a person is dying, the energies of the four elements of earth, water, fire, and wind will all be received into the central channel, the soul will be in the centre, and then the energy of qi in the whole person will be merged into the soul. The soul will enter emptiness.
 
-Those who practice at a high level will understand emptiness at this time, and will enter into concentration in emptiness, which is equivalent to liberation.
+Those who practiced at a high level will understand emptiness at this time, and will enter into meditation on emptiness, which is equivalent to liberation.
 
 Those who practice well, some have been in meditation for more than 20 days, and before Tibet there were three months of meditation.
 
@@ -6004,7 +6053,7 @@ After entering meditation, from the outside, the person is meditating, the breat
 
 229
 
-Such people are relatively high in cultivation, and for them, death is neither painful nor scary.
+Such people have a relatively high level in cultivation, and for them, death is neither painful nor scary.
 
 People with relatively good levels of practice can see Amitabha Buddha, Buddhas and Bodhisattvas before they die, and can be reborn in the Pure Land directly without going through the bardo body.
 
@@ -6012,13 +6061,13 @@ A person with an average level of practice will enter the bardo body after death
 
 For ordinary people who have poor practice or have not studied Buddhism, death is the heaviest and most painful suffering, because at this time there is no certainty or support.
 
-However, if you can think of the Three Jewels of the Guru at this time, you will not be afraid and will not fall into the evil realm.
+However, if you can think of the Three Jewels of the Guru at this time, you will not be afraid and will not fall into the evil realms.
 
-(2) The difference between those who study Buddhism and do not study Buddhism at the end of life 
+##### (2) The difference between those who study Buddhism and do not study Buddhism at the end of life 
 
 Although people are bound to die, the time of death is different.
 
-Comparing those who study Buddhism and those who do not study Buddhism, at the time of death, there is the same difference between heaven and earth, and the difference is very large.
+Comparing those who study Buddhism and those who do not study Buddhism, at the time of death, the difference is like night and day, and the difference is very large.
 
 230
 
@@ -6026,83 +6075,85 @@ People who have no concept of Buddhism, because they do not understand the six r
 
 And because there is no strength to rely on, they don't know what to do, and they get very scared.
 
-Those who study Buddhism have realized that after the soul leaves, it will enter the cycle of rebirth. In addition to rebirth as a human, it can also be liberated and reborn in the Pure Land, and liberation from samsara is better than having the a human rebirth.
+Those who study Buddhism have realized that after the "soul" leaves the body, it will enter the cycle of rebirth. In addition to rebirth as a human, it can also be liberated and reborn in the Pure Land, and liberation from samsara is better than having a human rebirth.
 
 Because there are teachers and Buddhas and Bodhisattvas as backers, you will still think: I have studied Buddhism in this life, after death Amitabha will come to pick me up, and Dakinis will come to save me.
 
 Even if my karmic obstacles are not eliminated, and I may suffer during death, during the bardo period, or in the next life, but there will be Buddhas and Bodhisattvas who will protect me.
 
-Thinking about my life, I have recited many scriptures and mantras, and practiced many methods. I will not fall into the evil realm, I will not be afraid in my heart, and I will leave this world peacefully.
+Thinking about my life, I have recited many scriptures and mantras, and practiced many methods. I will not fall into the evil realms, I will not be afraid in my heart, and I will leave this world peacefully.
 
-There is no ordinary person who is not afraid of death, unless it is a person with demonic, ghost, or non-human obstacles who is driven by these external forces and is not afraid of death.
+There is no ordinary person who is not afraid of death, unless it is a person with demonic, ghostly, or non-human obstacles who is driven by these external forces and is not afraid of death.
 
 Normal people will definitely be afraid of death, and people who have not studied Buddhism well will be even more afraid of death.
 
-Those who earnestly study Buddhism will not be afraid. Those who study Buddhism well will have already eliminated all major karma before death.
+Those who earnestly study Buddhism will not be afraid. Those who study Buddhism well will have already eliminated all major karmic debts before death.
 
 231
 
 At the time of death, Amitabha Buddha or other Buddhas and Bodhisattvas will appear, or the Pure Lands of Buddhas and Bodhisattvas will appear, such as the Land of Ultimate Bliss, the Pure Land of Dakinis, and so on.
 
-When they were dying, their state was even better than usual. Some even sang happily and left, while others recited "Om Mani Padme Hum" and passed away.
+When these people were dying, their state was even better than usual. Some even sang happily and left, while others recited "Om Mani Padme Hum" and passed away.
 
-In Tibetan areas, there are many elderly people who passed away in meditation when they were visualising Dakinis.
+In Tibetan areas, there are many elderly people who passed away in meditation while visualising Dakinis.
 
 Their complexion looks much better than before death, with a smile on their face, and they are not afraid at all! Therefore, when a person who is a good Buddhist learner is about to die, he has no sense of fear.
 
-A person who has achieved a higher level of Buddhist achievement will be greeted by Buddhas and Bodhisattvas when he dies. Dakinis, Dakinis, warriors, and brave mothers will come to meet him. The sound of drums and bells will sound in the sky, or other auspicious signs will appear.
+A person who has attained a higher level of Buddhist achievement will be greeted by Buddhas and Bodhisattvas when he dies. Dakins, Dakinis, warrior gods and godesses will come to meet him. The sound of drums and bells will sound in the sky, or other auspicious signs will appear.
 
 For example, if you die in winter, the weather may get warmer, the plants will bloom, etc.
 
 There is a great siddha in Tibet called Kalu Phuntsok, who passed away in the eleventh month of the lunar calendar, which is the coldest season in Tibet.
 
-When he passed away, the dakini Buddha came to greet him on his way to the dakini pure land. Many people heard the sound of bells and drums in the sky, and the climate became as warm as summer.
+When he passed away, the dakini Buddha Tara came to greet him on his way to the Dakini Pure Land. Many people heard the sound of bells and drums in the sky, and the climate became as warm as summer.
 
 232
 
-**3. How to achieve the concept of impermanence in life** 
+#### 3. How to achieve the view of impermanence in life** 
 
-Now, only by accumulating blessings, making good vows, and practicing the ten viirtues, we have obtained a human body with eight freedoms and ten endowments.
+Now, only by accumulating merit, making good vows, and practicing the ten virtues, we have obtained a precious human body with eight freedoms and ten endowments.
 
-Moreover, we have also met a master with the virtues, and we have the conditions to study Buddhism.
+Moreover, we have also met a virtuous master, and we have the circumstances conducive to studying Buddhism.
 
 At the same time, we also recognize the impermanence of life and recognize that death could come at any time.
 
-Think about the death that happened around you.
+Think about the death that happens around you.
 
-For example, some friends met last year and passed away this year. This is the impermanence of life.
+For example, friends we met last year and passed away this year. This is the impermanence of life.
 
 News that someone has died of illness or accident is very common.
 
-Such impermanence can also happen to us at any time. What if we suddenly die one day, but our practice is not enough, what should we do if we fall into the evil realm?
+Death can also happen to us at any time. What if we suddenly die one day, but our practice is not enough, what should we do if we fall into the evil realms?
 
-Leaving indefinitely!
+All leaving unexpectedly!
 
 So, a decision should be made and the Dharma must be practised immediately!
 
 Think again, some people are very rich, but when death comes, they get a terminal illness, spend a lot of money to buy the best medicine, but they can't save their lives, and they can't take the rest of their money with them. They can only leave on their own.
 
-Money, relatives and friends are useless when death comes, only the Buddha's Dharma is useful and is the only way out.
+Money, relatives, and friends are useless when death comes, only the Buddha's Dharma is useful and is the only way out.
 
-Therefore, for the sake of future rebirths, it should be decided that only the Buddha's Dharma must be practiced.
+Therefore, for the sake of future rebirths, you should decide that only the practice of Buddha's Dharma is worhtwhile.
 
 233
 
-You have to think like this often, you can also think about the situation before your relatives and friends died. If you have the opportunity, you should also look around. If someone dies, think about how they died, and think about what happened before and after death. Remind yourself that life is impermanent.
+You have to think like this often.
 
-After realizing the concept of impermanence in life, the practice will never regress, and a courageous and diligent heart will arise, and the practice will gradually enter a better state.
+You can also think about the situations where your relatives and friends have died. If you have the opportunity, you should also look around. If someone dies, think about how they died, and think about what happened before and after death. Remind yourself that life is impermanent.
 
-At this time, I often think: I don’t know if I can live until tomorrow, so I must seize today and practice the Dharma; people and things in the world can not help at the time of my death and future rebirth, so I should not be attached, I should have time. Just fix the Dharma.
+After realizing the concept of impermanence in life, the practice will never regress, and a courageous and diligent mind will arise, and the practice will gradually enter a better phase.
 
-Master Tsongkhapa's eldest disciple, Master Gyaltsab Je, was still very hard-working in his old age. If someone wanted to see him, they would  ask the attendant to inform him. The attendant would say to Gyaltsab Je: "Master, someone wants to see you very much."
+I often think: I don’t know if I can live until tomorrow, so I must seize today and practice the Dharma; people and things in the world can not help at the time of my death and future rebirth, so I should not be attached, I should use my time well. Just study the Dharma.
 
-Gyaltsab Je refused and said, "Look at my hair turning white, I'm getting old, and you want me to see these people, why waste my time?"
+Master Tsongkhapa's eldest disciple, Master Gyaltsab Je, was still very hard-working in his old age. If someone wanted to see him, they would  ask the attendant to inform him. The attendant would say to Gyaltsab Je: "Master, someone wants very much to see you."
+
+Gyaltsab Je declined and said, "Look at my hair turning white, I'm getting old, and you want me to see these people. Why waste my time?"
 
 But looking at ourselves, we are old, our hair is gray, and we are moving towards death step by step without realizing it.
 
 There is still hope in our heart, and we want to live to the age of eighty or ninety. This is because we have not realised the truth of impermanence.
 
-If you have realised the concept of impermanence of life, even if you have truly entered the Path.
+If you have realised the concept of impermanence of life, then you can say that you have truly entered the Path of the Dharma.
 
 After entering the path, the idea of ​​liberation naturally arises from the depths of the heart.
 
@@ -6110,21 +6161,21 @@ At the beginning, many great achievers mainly meditated on the concept of imperm
 
 234
 
-Among the disciples of Master Bodova, there were more than 3,000 people who have realised the concept of impermanence in life.
+Among the disciples of Master Bodova, there were more than 3,000 people who realised the concept of impermanence in life.
 
-One of the disciples was retreating in a cave. There was a tree with thorns at the entrance of the cave. He was scratched whenevr when he went out of the cave, and he was scratched again when he went back into the cave. He thought: Tomorrow this tree will be cut down.
+One of the disciples was retreating in a cave. There was a tree with thorns at the entrance of the cave. He was scratched whenevr when he went out of the cave, and he was scratched again when he went back into the cave. He thought: Tomorrow  I will cut down this tree.
 
 Then he thought again: I don't know if I can live until tomorrow, where will I have time to cut down trees.
 
 In this way, until he finally realised the concept of the impermanence of life, he lived in that cave from his twenties until he was eighty-nine years old, when he passed away.
 
-The third Kungtang Rinpoche opened his eyes every morning and thought of the impermanence of life: Ah! I am not dead today, I am still breathing, this is the grace of the Three Treasures.
+The third Kungtang Rinpoche opened his eyes every morning and thought of the impermanence of life: Ah! I am not dead today, I am still breathing, this is the power of the Three Jewels.
 
-I must be liberated and become a Buddha! It's hard to say whether you can live until tomorrow, so be sure to practice diligently today!
+We must liberate ourselves and become a Buddha! It's hard to say whether you can live until tomorrow, so be sure to practice diligently today!
 
 We slowly think about the reasons for the impermanence of life one by one. We should think about it every day, and think about it all the time. This will greatly help our practice.
 
-When you wake up in the morning, just think about the impermanence of life, and great greed and troubles will naturally diminish.
+When you wake up in the morning, just think about the impermanence of life, and great greed and problems will naturally diminish.
 
 Then continue to think: life is impermanent, and liberation is the only reliable way out.
 
@@ -6132,27 +6183,27 @@ So, we vow to be liberated, recite scriptures for liberation, and practice in or
 
 235
 
-When we don’t realize that life is impermanent, even chanting scriptures for the benefit of the world, in order to obtain the fruits of gods and demi-gods. it will be of no use.
+When we don’t realize that life is impermanent, even chanting scriptures for the benefit of the world, in order to obtain the rewards of gods and demi-gods. it will be of no use.
 
 236
 
 #### Section 2: The Three Evil Realms of Suffering 
 
-We have already understood that life is impermanent, so have you ever considered, if you really die, where will the next rebirth be?
+We have already understood that life is impermanent, but have you ever considered, if you really die, where will the next rebirth be?
 
-Can you be reborn in a pure land? To be reborn in a good realm or to fall into a bad realm?
+Can you be reborn in a pure land? Will you be reborn in a good realm or to fall into a bad realm?
 
 Always think about this yourself.
 
-1. Causes of falling into the Three Evil Realms 
+##### 1. Causes of falling into the Three Evil Realms 
 
 Today's sentient beings have relatively heavy afflictions and often do evil things.
 
 After death, most of them, 99% of them, will fall into the evil realms.
 
-Among the ten evil karmas, the big ones will go to hell, the moderate ones will go to the realm of hungry ghosts, and the small ones will go to the realm of animals.
+Among the ten evil deeds, the big ones will go to hell, the moderate ones will go to the realm of hungry ghosts, and the small ones will go to the realm of animals.
 
-The ten evil karmas, large and small, have the result of going to the three evil realms.
+The ten evil deeds, large and small, all result in going to the three evil realms.
 
 What is great evil? Great evil karma refers to the karma caused by great greed, hatred, and delusion, such as murder.
 
@@ -6164,51 +6215,71 @@ Among the great ten evil deeds, such as killing, have you ever had an abortion?
 
 237
 
-Have you ever killed someone? If you have, there is a reason for going to hell.
+Have you ever killed someone? If you have, there is a reason for going to hell right there.
 
 In other killing deeds, have you killed small animals for a long time and in large numbers?
 
 If you have, there is a reason for going to hell.
 
-Have you ever killed a wild animal or a large animal among the moderate killings? If there is, it is medium killing, and one will fall into the realm of hungry ghosts.
+Have you ever killed a wild animal or a large animal among the moderate killings? If you have, it is medium killing, and one will fall into the realm of hungry ghosts.
 
-Small killings are relatively light killing karma. Killing one or two animals, or killing small animals, is the cause of falling into the animal realm.
+Small killings are relatively light in terms of negative karma. Killing one or two animals, or killing small animals, is the cause of falling into the animal realm.
 
-Why does the size of the animal killed make a difference in the severity of karma? Because in killing a small animal you can kill it all at once, it is not so painful, such as killing an ant.
+Why does the size of the animal killed make a difference in the severity of karma? Because in killing a small animal you can kill it all at once, without causing too much painf, such as killing an ant.
 
 But if you kill a sheep, the pain will be great when the sheep dies, so the karmic accumulation will be heavy.
 
 Think again and again about the possibility of falling into other evil realms.
 
-Think about how likely you are to fall into the realm of hungry ghosts. Stealing will carry you into the realm of hungry ghosts, and miserliness will also carry you into the realm of hungry ghosts.
+Think about how likely you are to fall into the realm of hungry ghosts.
 
-After falling into the realm of hungry ghosts, when reborn as a human being, you will also be a poor person.
+Stealing will carry you into the realm of hungry ghosts, and miserliness will also carry you into the realm of hungry ghosts.
 
-Wonder if you've ever stolen something? Have you ever rejected someone because you were stingy when they needed help?
+After falling into the realm of hungry ghosts, when finally reborn as a human being, you will also be a poor person.
 
-Think again, do you often tell lies? Do you often speak harshly to  people? Are you often jealous of others? If this happens all the time, it will add up to big karma, and this negative karma will drag us into the three evil realms.
+Wonder if you've ever stolen something? 
+
+Have you ever rejected someone because you were stingy when they needed help?
+
+Think again, do you often tell lies?
+
+Do you often speak harshly to  people? Are you often jealous of others? If this happens all the time, it will add up to big karma, and this negative karma will drag us into the three evil realms.
 
 If you think about it like this, you will understand that in fact, we create a lot of bad karma, so it shouldn’t be too far from the three evil realms, and the possibility of falling into the evil realms in the next life is very great. Unless you repent, you will surely fall into the evil path.
 
 238
 
-2. Three Evil Realms 
+#### 2. Three Evil Realms 
 
-Suffering and bad karma will pull us to the lower realms. In order not to fall into the lower realms, we must diligently practice the righteous Dharma.
+Suffering and bad karma will pull us into the lower realms. In order not to fall into the lower realms, we must diligently practice the righteous Dharma.
 
-At the same time, it is necessary to understand the suffering of the three lower realms. If you can visualise the suffering of the lower realms, you can have a strong dread of the lower realms, which will be of great help to your practice.
+At the same time, it is necessary to understand the suffering of the three lower realms. If you can visualise the suffering of the lower realms, you can develop a strong dread of the lower realms, which will be of great help to your practice.
 
-(1) Suffering in the hell realm 
+##### (1) Suffering in the hell realm 
 
-"On Entering the Bodhisattva's Actions" says:
+"On Entering the Bodhisattva's Way" says:
 
-The karma created in an instant, 
+>
+>The karma created in an instant, 
+>
+>will cause you to spend a thousand years in hell.
+>
+>When bad karma cannot be eliminated,
+>
+>rebirth will not cease.
+>
 
-will cause you to spend a thousand years in hell.
+---
 
-When bad karma cannot be eliminated,
+If even by the evil of one instant
 
-rebirth will not cease.
+An aeon may be spent in the deepest hell
+
+Then because of the evil I have gathered since beginingless time,
+
+What need to mention my not going to a happy realm.
+
+---
 
 The karma created in an instant will lead to the retribution of going to hell. After going to hell, you will spend hundreds of kalpas in hell until the karmic retribution is exhausted.
 
@@ -6218,7 +6289,7 @@ Think about the karma we have created in this life, and then think about the kar
 
 239
 
-Being born in this world is just because the blessings are a little bigger, and they are manifested first.
+Being born in this world is just because the accumulated merit is a little bigger, and and the results of this are manifested first.
 
 So, what is the pain of going to hell?
 
@@ -6264,13 +6335,13 @@ That is, you will be tortured in a hot hell for so long before moving to another
 
 Moreover, the Reviving Hell has the shortest lifespan among the hot hells, that is, the hell where one suffers for the shortest period of pain. How long the pain will last!
 
-(1) Reviving Hell 
+##### (1) Reviving Hell 
 
-The resentment of the living beings in the Reviving Hell is very large from birth. The living beings here are just born, and a lot of knives and guns will naturally fall from the air, and then the living beings in the hell will kill each other with these weapons.
+The resentment of the living beings in the Reviving Hell is very large from birth. The living beings here are just born, and a lot of knives and spears will naturally fall from the air, and then the living beings in the hell will kill each other with these weapons.
 
 Even if all limbs are cut off, they will not faint; only if their head is cut off, they will faint for a short time, but they will not die.
 
-At this time, a sound will appear in the air, called the sound of Revival. With this sound, all beings in hell wake up, their bodies are also revived, and they kill each other again.
+Then, a sound will arise in the air, called the sound of Revival. With this sound, all beings in hell wake up, their bodies are also revived, and they kill each other again.
 
 That's why it's called Reviving Hell.
 
@@ -6288,7 +6359,7 @@ Moreover, the Reviving Hell is also the hell with the least suffering among all 
 
 One can imagine how terrifying the suffering of beings in this hell is.
 
-(2) Black Line Hell 
+##### (2) Black Line Hell 
 
 In the Black Line Hell, there are guards such as Ava Bull Head and Yaxia Pig Head. The appearance of the guards follows the karma of all sentient beings.
 
@@ -6308,7 +6379,7 @@ The sentient beings in the hell below the Black Line Hell, no matter what kind o
 
 243
 
-(3) Rounding Up and Crushing Hell
+##### (3) Rounding Up and Crushing Hell
 
 If you kill too many living beings, you will be reborn in the Rounding Up and Crushing Hell.
 
@@ -6316,13 +6387,13 @@ For example, a person who often kills sheep, when he is reborn into hell, will b
 
 If you were a person who often killed and caught fish during his lifetime, after he fell into the Hell, it would be the iron stone in the shape of the fish that would hit him.
 
-(4) Howling hell 
+##### (4) Howling hell 
 
 Howling hell is full of big, red-hot iron plates, and all beings in hell are forced to run and hide everywhere.
 
 When escaping, you will see a square iron house, and run into the house. As soon as you enter, the iron door will automatically close, and the whole iron house will burn and become even hotter. At this time, there is nowhere to run even if you could. You can only howl in pain, this is Howling Hell.
 
-(5) Great Howling Hell 244
+##### (5) Great Howling Hell 244
 
 The difference between the Howling Hell and the Great Howling Hell is that there are two florrs in the iron houses. After beings escaped into an iron house, they find that there is another floor. Once this layer runs in, the doors of the two layers are all closed, and there is self-karma inside. The existing iron dogs and iron birds come to bite and peck at the eyes, and at the same time, the inside is even hotter, and they are also scorched like fire.
 
@@ -6340,21 +6411,23 @@ the drinker is born in the vicinity.
 
 That is to say, not only those who drink alcohol frequently will be reborn in the howling hell, but those who often pour and persuade others to drink will also be reborn in the Neighbouring Hells.
 
-(6) Fiery Hell 
+##### (6) Fiery Hell 
 
 In the fiery hell, there is a huge iron pot. There is red molten iron in the iron pot, which is boiling all the time. All beings are thrown into the iron pot to cook.
 
 Sometimes a red-hot iron poker is inserted from the bottom to the top of the head, burning all over the body, this is the fiery hell.
 
-(7) Blazing Hell 245
+##### (7) Blazing Hell 
 
-All beings are pierced by a three-pronged iron fork from the middle of the body to the top of the head, and two large iron forks on both sides are pierced from the shoulders, just like roast sheep and pigs, and they are grilled on hellfire.
+245
 
-This is fiery hell.
+All beings are impaled on a three-pronged iron fork from the middle of the body to the top of the head, and two large iron forks on both sides are pierced from the shoulders, just like roast sheep and pigs, and they are grilled on hellfire.
 
-(8) Hell of Ultimate Torment  
+This are the hot hells.
 
-The sentient beings in the Hell of Ultimate Torment are burnt red by fire, and they can't tell which is the fire and which are the sentient beings. Only by crying can they tell the difference. This is the Hell of Ultimate Torment, also known as Avici Hell.
+##### (8) Hell of Ultimate Torment  
+
+Sentient beings in the Hell of Ultimate Torment are burnt red by fire, and they can't tell which is the fire and which are the sentient beings. Only by crying can they tell the difference. This is the Hell of Ultimate Torment, also known as Avici Hell.
 
 All the sufferings of the above seven hells added together, none of them is as great as the suffering of the Hell of Ultimate Torment.
 
@@ -6376,10 +6449,15 @@ The karma of sentient beings is incredible! Some sentient beings with heavy karm
 
 There are also sentient beings who have to go through all the eight hot hells all over again, which is really boundless suffering.
 
-After the living beings in the Neighbouring Hells have eliminated the karma of the hot hells, they will go to the Neighbouring Hells to continue to suffer, and some were born in the Neighbouring Hells because of their karma from the beginning.
-Neighbouring Hells have four levels.
+##### 2. Neighbouring Hells
 
-(1) The living beings who have eliminated the karma of the hot hell have to come out of the hot hell and walk through a Pit of Hot Embers, as big as a grassland. The fire of the Pit of Hot Embers will not burn above the knee, but the All of the following will burn to scorch.
+After the living beings in the Hot Hells have eliminated the karma of the hot hells, they will go to the Neighbouring Hells to continue to suffer, and some were born in the Neighbouring Hells because of their karma from the beginning.
+
+The Neighbouring Hells have four levels.
+
+##### (1) Pit of Hot Embers
+
+The living beings who have eliminated the karma of the hot hell have to come out of the hot hell and walk through a Pit of Hot Embers, as big as a grassland. The fire of the Pit of Hot Embers will not burn above the knee, but the All of the following will burn to scorch.
 
 Karma is different, and the fire pool that is inspired by karma to manifest is not the same size.
 
@@ -6389,7 +6467,7 @@ Even if you keep walking, you won't be able to cross it for hundreds or thousand
 
 247
 
-(2) Swamp of Putrefying Corpses
+##### (2) Swamp of Putrefying Corpses
 
 The karma of the Swamp of Putrefying Corpses has been eliminated, and the Swamp of Putrefying Corpses has to be passed.
 
@@ -6399,120 +6477,125 @@ When crossing the mud pond, the corpse mud in the mud pond will drown all the wa
 
 This will take hundreds of years, thousands of years, and the karma is incredible, and it will take tens of thousands of years for those with heavy karma.
 
-(3) After passing through the Swamp of Putrefying Corpses, enter the sharp blade pond.
+##### (3) Plain of Razor Sharp Blades
+
+After passing through the Swamp of Putrefying Corpses, enter the sharp blade pond.
 
 There are three types of sharp blade ponds:
 
-1) Plain of Razor Blades
+##### 1) Plain of Razor Blades
 
-Plain of Razor Blades is a road full of sharp swords.
+Plain of Razor Sharp Blades is a road full of sharp blades.
 
-After passing the stinky corpse pond, I entered a place that looked like a park. It was full of paths full of swords. I had to walk through it. There was no way to retreat.
+After passing the Swamp of Putrefying Corpses, we enter a place that looks like a park. It is full of paths covered with sharp blades. We have to walk through it. There is no way to retreat.
 
 248
 
-2) Forest of Sword Blades 
+##### 2) Forest of Sword Blades 
 
-Forest of Sword Blades is a large forest with many trees and all the leaves are swords.
+The Forest of Sword Blades is a large forest with many trees and all the leaves are swords.
 
-The sentient beings passed through the Forest of Sword Blades. As soon as they got here, a strong wind blew, and the sword fell from the tree and plunged into the body, causing unbearable pain.
+Sentient beings pass through the Forest of Sword Blades. As soon as they get here, a strong wind blows, and swords fall from the trees and plunge into the body, causing unbearable pain.
 
 Likewise, it takes a long time until the karma is exhausted.
 
-3) After passing the Forest of Sword Blades, it enters the Iron Thorn Forest.
+##### 3) Iron Thorn Woods
 
-The iron thorn tree is very beautiful, and all beings will be very happy to see family members, relatives and friends all on the tree.
+After passing the Forest of Sword Blades, it enters the Iron Thorn Forest.
+
+The iron thorn forest is very beautiful, and all beings will be very happy to see family members, relatives and friends all sitting in the trees.
 
 At this time, his family asked him to come up. When he went up, all the leaves turned into sharp swords, and the sword's tip was downward. When he climbed, his body was torn apart, and he reached the top like this.
 
-I finally climbed to the top of the tree. Because of my karma, I saw that my family and friends were all under the tree again. When I came down from the tree, the sharp blade of the sword turned into a sword that pointed upwards, and penetrated when it went down. The internal organs, the pain is unbearable.
+Having finally climbed to the top of the tree, due of their karma, they see that their family and friends were all under the tree again. Climbing down from the tree, the sharp blades of the swords are now pointed upwards, and penetrated when it went down. The internal organs are cut to pieces, the pain is unbearable.
 
-It goes up and down like this, never ending.
+Up and down like this, never ending.
 
-In the process of climbing up and down, there are countless iron-billed eagles flying over, pecking their eyes and digging their brains, and there will be groups of iron dogs and ferocious beasts under the trees, rushing to bite and eat.
+In the process of climbing up and down, there are countless iron-billed eagles flying over, pecking their eyes and digging into their brains, and there will be groups of iron dogs and ferocious beasts under the trees, rushing to bite and eat.
 
 249
 
-(4) The Boundless River Pit of Hot Embers 
+(4) The Boundless River 
 
-entered the Boundless River after passing through the Iron Thorn Forest.
+ After passing through the Iron Thorn Forest, one enters  the Boundless River.
 
-The Pit of Hot Embers is a river of salt water that sees no edge and is very dirty.
+The Boundless River is a river of salt water that has no banks and is very dirty.
 
-After passing through the Sword Pond, the Sword Leaf Forest, and the Iron Thorn Forest, all beings were stabbed and chopped with injuries everywhere. These wounds came into contact with the salt water in the boundless river, and the pain was unbearable.
+After passing through the Sword Pond, the Sword Leaf Forest, and the Iron Thorn Forest, all beings were stabbed and chopped with injuries everywhere. These wounds came into contact with the salt water in the Boundless River, and the pain was unbearable.
 
-It may take thousands of years to walk the boundless river, depending on the amount of karma of all sentient beings.
+It may take thousands of years to cross the Boundless River, depending on the amount of karma of the sentient beings.
 
-After crossing the Boundless River, the karma of going to hell may have disappeared.
+After crossing the Boundless River, the causes of going to hell may have disappeared.
 
-At this time, it depends on the amount of good fortune left by sentient beings. If the good fortune is larger, they may be reborn as a poor person or a disabled person; pain.
+At this time, it depends on the amount of good fortune left by sentient beings. If the good fortune is large enough, they may be reborn as a poor person or a disabled person.
 
-It is different for those who have studied Buddhism during their lifetime. After the death of a Buddhist practitioner, within seven to seventy-nine days, there will usually be masters and Dharma friends who will recite the sutras for transference.
+It is different for those who have studied Buddhism during their lifetime. After the death of a Buddhist practitioner, within seven to forty-nine days, there will usually be masters and Dharma friends who will recite the sutras for transference.
 
 In this way, even if you go to hell, you will be freed quickly.
 
 If our parents pass away, we as children, reciting the scriptures well within forty-nine days will be of great help to our parents, and it is the best way to repay our parents' kindness.
 
-The bardo body that is going to go to hell is black. If the offspring recite more sutras, the bardo body will turn white and will be reborn in the good land.
+The bardo body that is going to go to hell is black. If the offspring recite more sutras, the bardo body will turn white and will be reborn in the pure lands.
 
 250
 
 In addition, the three Bodhisattvas, Guanyin, Manjusri, and Vajrapani often go to hell to save sentient beings.
 
-When the bodhisattvas go to hell, all sentient beings who have studied Buddhism in their lifetime will know which bodhisattva is coming as soon as they hear the voice of the mantra of the bodhisattva, and when they think of the bodhisattva, they can be liberated from the hell immediately.
+When the bodhisattvas go to hell, all sentient beings who have studied Buddhism in their lifetime will know which bodhisattva is coming as soon as they hear the sound of the mantra of the bodhisattva, and when they think of the bodhisattva, they can be liberated from hell immediately.
 
-The beings in hell who have not studied Buddhism are not so lucky. Because of their karma, they cannot see the Bodhisattva at all, or the Bodhisattva they see is a ferocious and terrifying appearance, which will make them even more afraid and terrified.
+The beings in hell who have not studied Buddhism are not so lucky. Because of their defilements, they cannot see the Bodhisattva at all, or the Bodhisattva they see has a ferocious and terrifying appearance, which will make them even more afraid and terrified.
 
 However, it also eliminated a lot of karma.
 
-The cold hells 
+##### 3. The Cold Hells
 
-The cold hell is directly north of the hot hell. It is an overlapping structure. The layers are separated by 2,000 yojanas. Hell of Blisters, Hell of Burst Blisters, Hell of Clenched/Chattering Teeth, Hell of Lamentations, Hell of Groans, Hell of Utpala-like Cracks, Hell of Lotus-like Cracks, Hell of Great Lotus-like Cracks.
+The cold hells are directly north of the hot hells. It is an overlapping structure. The layers are separated by 2,000 yojanas. Hell of Blisters, Hell of Burst Blisters, Hell of Clenched/Chattering Teeth, Hell of Lamentations, Hell of Groans, Hell of Utpala-like Cracks, Hell of Lotus-like Cracks, Hell of Great Lotus-like Cracks.
+
 In the cold hells, there is no light such as sunlight, it is dark, and you can't see your fingers. The ground is covered with ice, and the wind and snow are mixed.
 
 The lifespan of beings in the cold hell is half that of the corresponding hot hell, that is to say, the lifespan of the Hell of Blisters is half that of the Reviving Hell, and the lifespan of the Hell of Great Lotus-like Cracks is half the lifespan of the Hell of Ultimate Torment.
 
 251
 
-(1) Bleeding Body Hell 
+##### (1) Hell of Blisters
 
-Among the cold hells, the one with the least degree of suffering is the Brackishing Body Hell. The living beings here are so cold that many chilblains and rashes appear on their bodies, and they are like this all their lives.
+Among the cold hells, the one with the least degree of suffering is the Hell of Blisters. The living beings here are so cold that many chilblains and rashes appear on their bodies, and they are like this all their lives.
 
 That's why it's called rash body hell.
 
-(2) 
+##### (2) Hell of Burst Blisters
 
-The sore body hell is the hell where the sores on the body are so cold that they are all cracked open.
+The Hell of Burst Blisters is the hell where the sores on the body are so cold that they are all cracked open.
 
-(3) Aqu Hell 
+##### (3) Hell of Clenched/Chattering Teeth
 
-Aqu Hell is even more severe, so cold that it is impossible to speak, and can only make the sound of "Aqu Aqu".
+Hell of Clenched/Chattering Teeth is even more severe, so cold that it is impossible to speak, and can only make the sound of "Aqu Aqu".
 
-(4) Whispering hell 
+##### (4) Hell of Lamentations
 
-Whispering hell, the cold is even more intensified, and even "Aqu" cannot be called out, only a "squeaky" sound can be made from the Adam's apple.
+In the Hell of Lamentations, the cold is even more intense, and even "Aqu" cannot be called out, only a "squeaky" sound can be made from the back of the throat.
 
-That's why it's called wailing hell.
+That's why it's called Hell of Lamentations.
 
-(5) In the gnashing hell 
+##### (5) Hell of Groans
 
-In the gnashing hell, the cold is even worse, no sound can be made, only the sound of the gnashing of teeth can be heard.
+In the Hell of Groans, the cold is even worse, no sound can be made, only the sound of the gnashing of teeth and groaning can be heard.
 
 252
 
-(6)  Hell of Utpala-like Cracks 
+##### (6)  Hell of Utpala-like Cracks 
 
 The body freezes into a blue-blue color and splits like a green lotus, so it is called Qinglian Hell.
 
-(7) Hell of Lotus-like Cracks
+##### (7) Hell of Lotus-like Cracks
 
 The cold of the red lotus hell intensifies, the skin freezes into purple red, the body cracks even more, and it cracks into the shape of a hundred-petaled red lotus, which is the red lotus hell.
 
-(8) The Great Red Lotus Hell 
+##### (8) The Great Red Lotus Hell 
 
 The Great Red Lotus Hell is a hell that freezes until the whole body turns purple, and the body splits like a thousand-petaled red lotus, so it is also called the Thousand Layers of Red Lotus Hell.
 
-Thousand layers of red lotus is the body frozen into more than a thousand pieces, some living beings even cracked tens of thousands of pieces, all the internal organs are cracked, and the head, eyes, hands and feet are all cracked.
+The Great Red Lotus Hell is the body frozen and cracked into more than a thousand pieces, some living beings even cracked into tens of thousands of pieces, all the internal organs are cracked, and the head, eyes, hands and feet are all cracked.
 
 But even so, you can only suffer alive, you cannot die, not even faint, you can only say that the karma is incredible.
 
@@ -6526,7 +6609,7 @@ For example, denying cause and effect and not believing in rebirth are relativel
 
 In addition, taking away the clothes offered to Buddha statues, or robbing other people's clothes, letting others freeze, or even freeze to death; intentionally freezing small animals to death, etc., will also lead to rebirth in the cold hells.
 
-Ephemeral Hells 
+##### 4. Ephemeral Hells 
 
 Ephemeral Hells are distributed around the world.
 
@@ -6548,7 +6631,7 @@ At this time, a strong sense of dread will gradually arise.
 
 Fear of falling into the lower realms is one of the reasons for taking refuge in the Three Jewels. Those who believe in cause and effect will not be afraid.
 
-In winter, if we take off our clothes outside, we won’t be able to stand it for even one night. The sentient beings in the cold hell will be frozen for hundreds of millions or tens of billions of years, and they can’t die even if they want to.
+In winter, if we take off our clothes outside, we won’t be able to stand it for even one night. Sentient beings in the cold hell will be frozen for hundreds of millions or tens of billions of years, and they can’t die even if they want to.
 
 They don't even have the chance to commit suicide.
 
@@ -6556,27 +6639,29 @@ Therefore, when we think of sentient beings in hell, we need to show compassion 
 
 Moreover, it is easier to arouse compassion when thinking like this.
 
-Master Potowa said that liberation from hell into the human realm is millions of times more difficult, than starting from our human realm, and becoming a Buddha is very easy.
+Master Potowa said that liberation from hell into the human realm is millions of times more difficult, than starting from our human realm, and becoming a Buddha.
 
-Master Zhongdunba also said that people today are pulling a big iron ball to the top of a mountain, and it has only been pulled halfway.
+Master Dromtonpa also said that people today are pulling a big iron ball to the top of a mountain, and it has only been pulled halfway.
 
 Because sentient beings will continue to work out their karma in the process of suffering in hell, for example, when their body is burned, hurt by jailers or other sentient beings, they will generate anger.
 
-If you continue to create karma, you will continue to suffer, not to mention liberation from hell to the human realm, and even liberation to the comparatively mild suffering of the animal realm is very, very difficult.
+If you continue to create negative karma, you will continue to suffer, not to mention liberation from hell to the human realm, and even liberation to the comparatively mild suffering of the animal realm is very, very difficult.
 
 255
 
-(2) Five hundred yojanas below the ground of Jambudvipa, Kunan, is the realm of hungry ghosts, there is a city of hungry ghosts called Jepila. There is no grass, no running water, and the ground is like iron heated by the sun.
+##### （二）The Suffering of Hungry Ghosts
+
+Five hundred yojanas below the ground of Jambudvipa, Kunan, is the realm of hungry ghosts, there is a city of hungry ghosts called Jepila. There is no grass, no running water, and the ground is like iron heated by the sun.
 
 This is the place where all beings in the realm of hungry ghosts are reborn.
 
-The common cause of falling into the realm of hungry ghosts is miserliness and lack of generosity.
+The usual cause of falling into the realm of hungry ghosts is miserliness and lack of generosity.
 
 If a person is reluctant to give up anything, he may fall into the realm of hungry ghosts in the next life.
 
 Or stealing the benefits of the Sangha; or deliberately not giving people enough food, they will fall into the realm of hungry ghosts.
 
-These are common causes, and there are others.
+These are the usual causes, and there are others.
 
 All beings in the realm of hungry ghosts are womb-born, and a hungry ghost can have hundreds of children.
 
@@ -6600,6 +6685,8 @@ When the summer is hot, even the moon is hot, and the moonlight burns them to de
 
 Hungry ghosts are further divided into three types: hungry ghosts with external obstacles, hungry ghosts with internal obstacles, and hungry ghosts with internal and external obstacles.
 
+##### 1. Hungry ghosts with external obstacles
+
 Hungry ghosts with external obstacles cannot find or see external things or food due to their karma. Such hungry ghosts are hungry ghosts with external obstacles.
 For example, looking for water to drink, hungry ghost beings with external obstacles, either can't see water, can't find water; or can't see water nearby, and only see water in the far distance, usually a big river thousands of miles away. If they want to drink water, they have to keep walking, but because the limbs are very small, the walking is very slow, and it takes decades to walk.
 
@@ -6615,9 +6702,9 @@ They really can't find anything, and they can only eat themselves in the end.
 
 Eat their own flesh and drink their own blood.
 
-Hungry ghosts with internal obstructions 
+##### 2. Hungry ghosts with internal obstructions 
 
-Hungry ghosts with internal obstructions can see food and get food, but when they eat it, it turns into fire; or when they eat, it turn into feces and other very dirty things.
+Hungry ghosts with internal obstructions can see food and get food, but when they eat it, it turns into fire; or when they eat, it turns into feces and other very dirty things.
 Such a hungry ghost is a hungry ghost with internal obstacle.
 
 The ghost fires we often talk about are not the ghosts setting fires, but generally the food found by the hungry ghosts in the internal obstacles turns into fire.
@@ -6628,7 +6715,7 @@ Often it is a little bit here, a little bit there, and disappears after a while.
 
 We often saw it when we were children, and now we occasionally see it in the countryside or in the wild, and this is generally the case.
 
-Hungry Ghosts of Internal and External Obstacles
+##### 3. Hungry Ghosts with Internal and External Obstacles
 
 258
 
@@ -6657,31 +6744,38 @@ When these five boys grew up, they became five big bosses. As a result, the moth
 
 If these five sons do not fall into hell in the next life, 100% sure they will fall into the realm of hungry ghosts.
 
-(3) The bitter animal path is also known as the side path. 
+##### (3) The bitter animal path is also known as the side path. 
 
-It is stated in the "Yogi's Divinity · Local Points":
+It is stated in the "Discourse on the Stages of Yogic Practice":
 
 "Live with people and heaven, and have no other place to live", which means that animals live together with people and all living beings in the heavenly way, and it is widely distributed.
 
 The animal realm can be divided into the animal realm of the human world and the animal realm of the ocean.
 
-In the "Kusha Theory", it is said that the original dwelling place of animal life is the sea, and there are more sentient beings in the sea than in the human world, and the sentient beings of the animal world flow out from the ocean. They have a short and uncertain lifespan.
+In the "Abhidharma-kośa-śāstra", it is said that the original dwelling place of animal life is the sea, and there are more sentient beings in the sea than in the human world, and the sentient beings of the animal world flow out from the ocean. They have a short and uncertain lifespan.
 
 Animals have common suffering, namely, ignorance, lack of food, fear, helplessness, and the strong prey on the weak.
 
-Ignorance, ignorance, ignorance, and no wisdom.
+##### 1. Ignorance
+
+Ignorance, unknowing, and no wisdom.
+
 For example, other beings want to kill or harm them, but they don't know.
 
-When a candle is lit, many flying insects flew over, and they did not know that they would be burned by the fire.
+When a candle is lit, many flying insects fly into the flame, not knowing that they would be burned by the fire.
 
 There is no such basic discernment and wisdom, let alone one who can learn Buddha's liberation.
 
 260
 
+##### 2. Lack of food
+
 Lack of food is always a lack of something to eat.
 Usually, all living beings starve to death, but especially wild animals.
 
-There are also animals who are not short of food, such as pets, because the karma and blessings are different.
+There are also animals who are not short of food, such as pets, because their good fortune and blessings are different.
+
+##### 3. Constant Fear
 
 Beings in the animal realm are in fear every day.
 Fear of people and other animals.
@@ -6692,36 +6786,40 @@ Even if it is sleeping, it will notice and run away.
 
 This is how all living beings in the animal realm have a sense of fear at all times, and live in constant fear.
 
+##### 4. No Protection
+
 When sentient beings in the animal realm are killed, there is often no one to help and protect them, and they are always helpless.
 
 261
 
+##### 5. The strong eat the weak
+
 The weak and the strong kill each other, the strong devour the weak, and the weak bite the strong.
 
 
-The above briefly talked about the suffering of all beings in the animal way.
+The above briefly talked about the suffering of sentient beings in the animal realm.
 
 Falling into the realm of animals is easy.
 
-If you disrespect the Dharma and the Dharma master, you will fall into the animal realm; if you use animal names to scold your friends, you will fall into the animal realm; if you are disgusted and make fun of the monks, for example, a monk is as agile as a monkey, and he thinks nothing of it, in the next life you will become Monkey; make fun of monks as loyal as dogs, and you will become a dog in the next life.
+If you disrespect the Dharma and the Dharma master, you will fall into the animal realm; if you use animal names to scold your friends, you will fall into the animal realm; if you insult and make fun of the Sangha, for example, saying that a monk is as agile as a monkey, and he thinks nothing of it, in the next life you will become a monkey; joking that monks are as loyal as dogs, and you will become a dog in the next life.
 
-Moreover, after falling into the animal realm, you will be reborn continuously, and after death they will be reborn in the animal realm, usually hundreds of times in a row.
+Moreover, after falling into the animal realm, you will be reborn continuously, and after death you will be reborn in the animal realm, usually hundreds of times in a row.
 
-We think about ourselves, have we ever insulted monks? scolded our parents? Cursed our benefactor? If you think about it, you will find that there will definitely be some examples. These are all causes of falling into the evil realm and the animal realm, and you must repent.
+Think about ourselves, have we ever insulted monks? Scolded our parents? Cursed our benefactor? If you think about it, you will find that there will definitely be some examples. These are all causes of falling into the animal realm, and you must repent.
 
 Right now, we don’t have that kind of immersive feeling in our hearts. If we really become a dog or a pig, what will we feel, so we are not so afraid in our hearts.
 
-When Translator Geruo was alive, there were many inhumans in Tibet. There was a kind of inhuman called Chaman. Chaman looked human on the outside, but in fact he was a kind of inhuman.
+When Translator Geruo was alive, there were many non-humans in Tibet. There was a kind of non-human called Chaman. A Chaman looked human on the outside, but in fact he was a kind of non-human.
 
 262
 
-Once, a female Chaman was knitting yarn on the roof. At that time, there was a small stone hanging under the tools for knitting the yarn. The stone fell. She picked it up.
+Once, a female Chaman was knitting yarn on the roof. There was a small stone hanging under the tools for knitting the yarn. The stone fell. She picked it up.
 
-This scene was seen by her son, and he was surprised, and he secretly paid attention to his mother.
+This scene was seen by her son, and he was surprised, and he secretly kept watch on his mother.
 
 In the middle of the night, he saw his mother fly away on a big box, and fly back when it was almost dawn.
 
-The next night, he hid in the box ahead of time. When the box flew, Cha Man noticed that there was something wrong with the box, it seemed to be heavy.
+The next night, he hid in the box ahead of time. When the box flew, the Chaman noticed that there was something wrong with the box, it seemed to be heavy.
 
 The box flew somewhere, and there were many Chamans there, and everyone made offerings from the corpses in the tombs.
 
@@ -6731,29 +6829,33 @@ After she had turned her son was into a dog, he was in great pain and ran around
 
 Once, he ran in front of Master Langri Tangba. The master had supernatural powers, and saw it, and said to him: "Tomorrow, a group of people will go to see the translator Geruo. You can follow them, and the translator Geruo can save you."
 
-The next day he followed, and when he arrived at Interpreter Geruo, Translator Geruo knew about the child's situation, prepared torma, removed his spell, and turned him back into a human.
+The next day he followed, and when he arrived at Translator Geruo's place, Translator Geruo knew about the child's situation, prepared torma, removed his spell, and turned him back into a human.
 
 263
 
-What pain is it to be a dog? He felt that even if he went to hell, he would not have such great pain. He wanted to speak, but he couldn't say anything, and he wanted to eat something that no one would give him.
+How painful it was to be a dog. He felt that even if he went to hell, he would not have such great pain. He wanted to speak, but he couldn't say anything, and he wanted to eat something that no one would give him.
 
 264
 
-#### Section 3 Refuge 
+#### Section 3 - Refuge 
 
 This part is about taking refuge.
 
-There are two kinds of refuges. In Southern Buddhism and Chinese Buddhism are three refuges, and Tibetan Buddhism is a double practice of exoteric and tantric practice. Therefore, we are talking about four refuges.
+There are two kinds of refuges. In Southern Buddhism and Chinese Buddhism there are three refuges, and Tibetan Buddhism is a combined practice of exoteric and tantric practice. Therefore, we are talking about four refuges.
 
-1. Those who take refuge in the Three Jewels of the Three Evil Paths, no matter which path one falls into, one will suffer a lot of pain. If one thinks deeply about these sufferings, dread will arise.
+##### 1. Reasons for taking refuge in the Three Jewels
 
-Think again: in the face of the fear of falling into the lower realms, who can save us? Only the Guru's Three Jewels! If we go to hell, the Buddha can save us, this is the Buddha's treasure; the Dharma friend can recite the sutras to save us, it is the Dharma treasure; the Bodhisattva can save us, it is the Sangha's treasure.
+Of the Three Evil Realms, no matter which realm one falls into, one will suffer a lot of pain. 
 
-Therefore, to take refuge in the Three Jewels, from this moment onwards, the heart of taking refuge in the Three Jewels arises.
+If one thinks deeply about these sufferings, deep dread will arise.
 
-There are two basic reasons for taking refuge in the Three Jewels: one is the fear of the three evil realms; the other is confidence in the Three Jewels.
+Think again: in the face of the fear of falling into the lower realms, who can save us? Only the Guruand the  Three Jewels! If we go to hell, the Buddha can save us, this is the Buddha's treasure; Dharma friends can recite the sutras to save us, it is the Dharma treasure; the Bodhisattvas can save us, it is the Sangha's treasure.
 
-These two reasons are the reasons for the conversion of the lower clergy, and they are also the fundamental reasons for conversion.
+Therefore, from this moment onwards, the heart of taking refuge in the Three Jewels arises.
+
+There are two basic reasons for taking refuge in the Three Jewels: one is the dread of the three evil realms; the other is confidence in the Three Jewels.
+
+These two reasons are the reasons for the conversion of the practitioners of lower abilities, and they are also the fundamental reasons for conversion.
 
 Only when these two causes are possessed can one truly take refuge and truly enter into Buddhism.
 
@@ -6763,25 +6865,27 @@ These two reasons are the minimum conditions for entering Buddhism.
 
 Some people take refuge in the Three Jewels because of illness, while others take refuge because they are broke, and others take refuge in order to live a long life.
 
-Being able to take refuge in the Three Jewels is a good thing, and you can get the blessings of Buddhas and Bodhisattvas, but these are not the real motivation for taking refuge.
+Being able to take refuge in the Three Jewels is a good thing, and you can accumulate the merit of Buddhas and Bodhisattvas, but these are not the real motivation for taking refuge.
 
-Many people who study Buddhism, after studying Buddhism for a long time, feel that they still have many obstacles and problems. Why? It is because the mind has not yet truly taken refuge, only verbally taking refuge, that is, following the guru to recite the Four Refuge texts, thinking that this is the way to take refuge, but there is no real fear of the evil realms or confidence in the Three Jewels.
+Many people who study Buddhism, after studying Buddhism for a long time, feel that they still have many obstacles and problems. Why is this? 
 
-If you have the intention of taking refuge in the mortal way, and truly take refuge in the Three Jewels of the Guru, you will definitely receive more powerful and fast blessings from the Three Jewels! Negative karma and troubles will also decrease rapidly.
+It is because the mind has not yet truly taken refuge, only verbally taking refuge, that is, following the guru to recite the Four Refuge texts, thinking that this is the way to take refuge, but there is no real dread of the evil realms or confidence in the Three Jewels.
+
+If you have the intention of taking refuge in the way of the lower aspect, and truly take refuge in the Three Jewels of the Guru, you will definitely receive more powerful and quicker merit from the Three Jewels! Negative karma and troubles will also decrease rapidly.
 
 The reason for the conversion of the people of middle scope is the fear of the six realms of rebirth.
 
-Not only is there a fear of falling into the evil realm, but there is also a fear of the suffering of the human realm and the realm of gods.
+Not only is there a dread of falling into the evil realms, but there is also a fear of the suffering of the human realm and the realm of gods.
 
 Then think about it again: in the suffering of the six realms of rebirth, only the guru, the Three Jewels, can save us.
 
 Believing in the Three Jewels of the Guru is the second reason for the people of middle scope to take refuge.
 
-The reason for taking refuge in people of upper scope is that they cannot bear the suffering of all beings in the six realms of reincarnation.
+The reason for taking refuge in people of upper scope is that they cannot bear the suffering of all beings in the six realms of rebirth.
 
 The six realms of samsara have gross suffering and subtle suffering.
 
-At the time of the people of middle scope, there was only a fear of gross pains, and in the people of upper scope, there was also a fear of the most subtle pains.
+In people of middle scope, there is only a fear of gross pains, and in people of upper scope, there is an additional fear of the most subtle pains.
 
 266
 
@@ -6789,41 +6893,41 @@ When the sages are on the way, they are afraid of the pain caused by the obstacl
 
 This is the reason for the refuge of the people of upper scope.
 
-The real refuge is to learn, through learning, to understand the cause of refuge, the object of refuge, the amount of refuge, the virtues and benefits of refuge after refuge.
+The real refuge is to learn, and through learning, to understand the cause of refuge, the object of refuge, the quality of refuge, the virtues and benefits that will be gained by taking refuge.
 
-After understanding these six aspects, we can understand what refuge is.
+Once we have an understanding of these six aspects, we can understand what taking refuge really means.
 
-The most basic real conversion we are talking about now refers to the conversion of the lpeople of lower scope.
+The most basic real conversion we are talking about now refers to the taking refuge of the people of lower scope.
 
-There are two reasons for taking refuge, one is to take refuge because of the fear of falling into the lower realms; the other is to take refuge because of the faith in the guru and the Three Jewels.
+There are two reasons for taking refuge, one is to take refuge because of the dread of falling into the lower realms; the other is to take refuge because of faith in the guru and the Three Jewels.
 
 The object of taking refuge is the guru and the Three Jewels. Let's look at other aspects.
 
-2. Refuge Amount of Refuge 
+##### 2. Scale of the Benefits of Refuge 
 
-There are four kinds of Refuge Quantity: taking refuge after knowing the merits and virtues of the Three Jewels, taking refuge when knowing the difference between the Three Jewels, taking refuge in the Three Jewels and keeping oaths different, and not taking refuge in any object other than the Three Jewels.
+There are extents of Refuge: taking refuge after knowing the merits and virtues of the Three Jewels, taking refuge when knowing the difference between the Three Jewels, knowing the difference between taking refuge in the Three Jewels and keeping the precepts, and not taking refuge in any object other than the Three Jewels.
 
-(1) Knowing the merits of the Three Jewels and taking refuge 
+##### (1) Knowing the merits of the Three Jewels and taking refuge 
 
 After understanding the merits of the Three Jewels, taking refuge in the Three Jewels means knowing the merits of the Three Jewels and taking refuge.
 
 First of all, we must understand why we take refuge in the guru, why we take refuge in the Three Jewels.
 
-Why do we take refuge in the guru? What are the virtues of a guru? What are the virtues of the Three Jewels? We have already talked about the merits of the guru. The guru is the representative of the Three Jewels, and we want to obtain the blessings of the Buddhas and Tathagatas, the blessings of the Three Jewels.
+Why do we take refuge in the guru? What are the virtues of a guru? What are the virtues of the Three Jewels? We have already talked about the merits of the guru. The guru is the representative of the Three Jewels, and we want to obtain the merit of the Buddhas and Tathagatas, the blessings of the Three Jewels.
 
-However, all the Buddhas and Tathagatas are first integrated into the guru. Only through the guru can they bless us. This is a contingent origin between the master and the apprentice. Even many masters are the incarnations of the Buddhas and Bodhisattvas, so they must take refuge in the guru.
+However, all the Buddhas and Tathagatas are first integrated into the guru. Only through the guru can they bless us. This is a contingent origin between the master and the apprentice. Even many masters who are the incarnations of the Buddhas and Bodhisattvas must take refuge in the guru.
 
 Then, let's look at the merits of the Three Jewels.
 
-Buddha's merits 
+##### 1. Buddha's merits 
 
 Buddhas have inconceivable merits of body, speech and mind.
 
-(1) Buddha's body merits 
+##### (1) Buddha's body merits 
 
 The Buddha's dharma form, simply speaking, is the Buddha's body.
 
-The appearance of the Buddha is very solemn. When the Buddha is teaching the sutras, some people look at it without blinking. After he has finished teaching the sutras, they still go on staring, and even a hundred years of reading is not enough. The Buddha has such physical merit.
+The appearance of the Buddha is very dignified. When the Buddha is teaching the sutras, some people look at him without blinking. After he has finished teaching the sutras, they still go on staring, and even a hundred years of listening is not enough. The Buddha has such physical merit.
 
 The Buddha has thirty-two principal marks and eighty sublime marks.
 
@@ -6833,13 +6937,17 @@ The Buddha has thirty-two principal marks and eighty sublime marks.
 
 If you can constantly think about the good qualities of the Buddha's appearance and the causes of the good qualities of the Buddha's appearance, the practice will be more blessed.
 
-Nagarjuna Bodhisattva said in the "Middle View of Jewelry" when he talked about the good qualities of the Buddha:
+Nagarjuna Bodhisattva said in the "The Madhyamika Theory" "Precious Garland" when he talked about the good qualities of the Buddha:
+
+---
 
 If you add up the merits of the Solitary Arhats, the Shravakas, and the endless merits of the world, and then multiply by ten times, you can only achieve one "pore shape" of the Buddha's body; One hundred times, one kind of "good" can be achieved; one hundred times of all the eighty kinds of good merits can be achieved; one kind of "sign" can be achieved; one thousand times of all the thirty-two kinds of blessings can be achieved of the Buddha's "Bai Hao appearance"; only one hundred thousand times the blessing of the white hair appearance can achieve the "top bun appearance" of the Buddha; only one thousand times the blessing of the top bun appearance can achieve the blessing of "Buddha language and Sanskrit sound".
 
-In addition, the various parts of the Buddha's appearance and goodness have the function of preaching the Dharma.
+---
 
-The top bun and pores have the function of mind, which can clearly see deep and wide all dharmas.
+In addition, the various parts of the Buddha's appearance and goodness have the function of spreading the Dharma.
+
+The top bun and pores have the function of mind, which can clearly see deep and vast all dharmas.
 
 Therefore, the body of the Buddha pervades all knowledge, and the words of the Buddha and the mind of the Buddha pervade all at the same time.
 
@@ -6867,7 +6975,7 @@ Such as lamps in gold.
 
 Every kind of light emitted by the Buddha's body can mature and liberate countless sentient beings; in front of every living being, the Buddha can transform into a body that he can accept, and speak in a language he can understand.
 
-In addition, when people see the Buddha body, they will have the wish of ​​wanting to obtain the Buddha body, and they will pursue and accumulate the merits of becoming the Buddha body, which is also a kind of career merit of the Buddha body.
+In addition, when people see the Buddha body, they will have the wish of ​​wanting to obtain the Buddha body, and they will pursue and accumulate the merits of becoming the Buddha body, which is also a kind of aspirational merit of the Buddha body.
 
 The Buddha's clothes are always separated from the body by four fingers, but people who come to worship the Buddha can clearly see the outline of the Buddha's body; the Buddha's feet do not touch the ground, but can clearly leave a pattern with the Dharma wheel on the ground in the footprint.
 
@@ -6905,7 +7013,7 @@ When Nengren marches, his feet are like wonderful lotuses,
 
 How can the lotus garden be beautiful on this land?
 
-(2) The merits of Buddha's speech 
+##### (2) The merits of Buddha's speech 
 
 271
 
@@ -6913,9 +7021,13 @@ A Buddha has sixty-four qualities of speech.
 
 Master Tsongkhapa said on the basis of the Ocean of Clouds of Praise: The Essence of Truth:
 
+---
+
 All sentient beings in the world ask doubts in one moment,
 
 A Buddha’s speech resounds to the entire circle of those around him. Whether the listener is close or far, everyone hears his voice with equal volume the same as if he or she were sitting right up front.
+
+---
 
 When Buddha Shakyamuni preached the sutras, if you listened to it in the front of the crowd, the sound would not be loud; if you listened to it from far away, the sound would not be too soft, and it sounded the same.
 
@@ -6928,6 +7040,8 @@ Buddhas can answer different questions asked by people of different roots at the
 Buddha Shakyamuni has such inconceivable qualities of speech.
 
 In "Hymn of 150 Verses", when praising the merits of the Buddha's speech, it says:
+
+---
 
 Guan Zun's face is lovely, from what he heard,
 
@@ -6957,7 +7071,7 @@ Those who can produce wisdom rejoice, those who can increase wisdom,
 
 Those who can destroy the shadows, these words benefit all living beings.
 
-(3) The Buddha's Intentional Merit
+##### (3) The Merit of the Buddha's Mind
 
 Buddha has great compassion, great wisdom, and perfect ability.
 
@@ -6967,9 +7081,13 @@ The Buddha sees that all living beings in the six realms are equal, and loves ev
 
 "One Hundred and Fifty Praises" says:
 
+---
+
 All these beings, there is no difference between delusion and bondage,
 
 In order to solve the confusion of sentient beings, respect for a long time as the bondage of sorrow.
+
+---
 
 273
 
@@ -6977,7 +7095,7 @@ We ordinary people generally have compassion when we see suffering beings, somet
 
 And because the Buddha has always seen that all living beings are suffering, his great compassion never stops, and he constantly saves all living beings.
 
-2) The wisdom, merit, and virtue of the Buddha 
+##### 2) The wisdom, merit, and virtue of the Buddha 
 
 The great wisdom is the wisdom, merit and virtue of the Buddha.
 
@@ -6986,6 +7104,8 @@ All the principles of Dharma, all the principles of dependent arising, all realm
 The wisdom of the Buddha can arise at anytime, anywhere, without hindrance.
 
 In "Zan Ying Zan" says:
+
+---
 
 The World-Honored Dharma of the fallen age, 
 
@@ -7002,6 +7122,8 @@ if one or all,
 Like the wind in the sky, 
 
 there is no hindrance in respect.
+
+---
 
 In the first four sentences, the Buddha sees the causes of dependent origination of all dharmas very clearly, just like looking at the ummara fruit in his hand (a kind of almost transparent fruit found in India at that time), which is the realm of Buddha's intention.
 
@@ -7031,18 +7153,20 @@ For example, after an arhat enters samadhi, he will not know the suffering of al
 
 If we are in danger and ask for help from ordinary gods in the world, even if he knows, he may not be able to save us.
 
-Even if they have power, we may not be able to save us.
+Even if they have power, they may not be able to save us.
 
 Because ordinary gods do not have great compassion and compassion, only the Buddha who has great compassion, has the ability, and will definitely save us! It is because the Buddha has the most perfect and supreme mind and merit.
 
 275
 
 The Dharma's merits and virtues are the magic weapon that guides us out of the sea of ​​samsara.
-It includes the truth of extinction, the five paths and ten places, etc., of seeing the way, the way of cultivation, and so on.
+It includes the truth of extinction, the five paths and ten bhumis, etc., of seeing the way, the way of meditation, and so on.
 
 If we think about where the inconceivable merits of Buddhas come from, we can understand that the Dharma has the merits of producing inconceivable merits like Buddhas.
 
 Just as it is said in the "Zhengshe Dharma Sutra": 
+
+---
 
 "All Buddhas, World-honored Ones, 
 
@@ -7054,13 +7178,15 @@ and are manifested by the Dharma.
 
 According to the right law, the law is done.”
 
+---
+
 What methods do Buddhas generally use to save sentient beings? 
 
-They mainly use the method of preaching scriptures and teaching the Dharma.
+They mainly use the method of teaching scriptures and spreading the Dharma.
 
 Therefore, in order to deal with the 84,000 afflictions of sentient beings, Buddha Shakyamuni taught 84,000 dharma-doors. 
 
-Each dharma-door is a method of dealing with afflictions. As long as you study the Buddha hard, your wisdom will become higher and higher. Troubles will be less and less.
+Each dharma-door is a method for dealing with afflictions. As long as you study the Buddha hard, your wisdom will become higher and higher. Troubles will be fewer and fewer.
 
 Some people say that after studying Buddhism for a period of time, they had no worries when they weren't studying Buddhism, but after studying Buddhism they have more and more troubles.
 
@@ -7076,11 +7202,11 @@ The Buddhadharma talks about the methods of getting rid of suffering and attaini
 
 For things in the world, for example, if we want to get wealth, the Buddhadharma tells us to practice more generosity, which is the cause for getting wealth; and then work hard, and then we will definitely be rich.
 
-No matter from the perspective of the world or the world, the benefits of Buddhism to all sentient beings are very, very great.
+No matter from the perspective of the world or the gods, the benefits of Buddhism to all sentient beings are very, very great.
 
 Because the merits of the Dharma are so extraordinary, we must take refuge in the Dharma.
 
-Sangha's merits 
+##### 3. Merits of the Sangha
 
 The Sangha are Dharma friend who practise with us or inspire us to practise. High-level monks are Arhats and Bodhisattvas. Sangha has different qualities at different stages and at different stages of fruition.
 For example, the sravaka, who is in the position of entering and practicing the path, can access the Four Nobles and the sixteen signs in a comparable way; in the position of seeing the path, he can realize emptiness; in the position of practicing the path, he can gradually eliminate the eighty-one kinds of afflictions.
@@ -7091,7 +7217,7 @@ A monk who has attained Arhatship has even greater virtues: he can change object
 
 Due to the accumulation of merit over hundreds of kalpas, Yuanjue Arhats have a thousand times more merits and virtues than Shravaka Arhats.
 
-The merits of Bodhisattvas are even more incredible. According to the teachings of Mahayana, to become a Buddha requires the accumulation of merit over three uncountable kalpas.
+The merits of Bodhisattvas are even more incredible. According to the Mahayana teachings, to become a Buddha requires the accumulation of merit over three uncountable kalpas.
 
 A Bodhisattva who has practised the path of accumulation and added the path of "superiority and understanding" can realise emptiness through listening, thinking, and practice, and obtain the sufficiency of the first asamkhya; a bodhisattva who is on the Path of Seeing diligently practises the paramita of giving of the ten paramitas; then, with the continuous deepening of the practice, the bodhisattvas of the second to tenth bhumis of the path can gradually complete the other nine kinds of perfections.
 
@@ -7162,7 +7288,7 @@ The Buddha is the supremely enlightened one, the one who now realizes enlightenm
 
 Dharma is the empirical teaching of the enlightened one.
 
-A monk is a practitioner of the Dharma.
+The Sangha are practitioner of the Dharma.
 
 ##### 2. Differences in role 
 
@@ -7195,6 +7321,8 @@ Often recalls the merits of the Buddha, Dharma, and Sangha, and can cultivate th
 In the "The Noble Sūtra of Recalling the Three Jewels", the difference between reciting the Three Jewels is explained in detail:
 
 280
+
+---
 
 Homage to the omniscient one!
 
@@ -7414,12 +7542,16 @@ Buddha has cut off the obstacles of knowledge and afflictions, and his wisdom an
 
 Venerable Tudun and the Buddha were contemporaries. He used to be a leader of another religion, but later he converted to Buddhism and wrote an article praising the Buddha called "Extraordinary Praise". There is a paragraph in it:
 
+---
+
 I abandon Master Yu,
 and take refuge in the Blessed One,
 
 Why take refuge in the Buddha, 
 
 if there is no excess of virtue.
+
+---
 
 Venerable Tuton, as the leader of another religion, eventually left that religion because he felt that the teachings of that religion did not make sense in many ways.
 
@@ -7428,6 +7560,8 @@ For example, followers of other religions beleive that all things are created by
 Later, they read the Buddhist scriptures, study for a long time, and realize that the Buddha's teachings are the most reasonable, the merits are the most perfect, and the realization is ultimate, so they take refuge in the Buddha and the Three Jewels.
 
 It is also stated in the "Exalted Praise":
+
+---
 
 All foreign paths, think like this,
 
@@ -7449,7 +7583,7 @@ In addition, in the history of other religions, there are many instances of figh
 
 Buddhism talks about great mercy and great compassion. Not only can we not kill living beings, but we must also generate great love to save them. This is also an important difference between Buddhism and other religions.
 
-3. After taking refuge, how to learn, practice, and uphold refuge 
+3. After taking refuge, how to learn, practice, and uphold the vows 
 
 After taking refuge in the Three Jewels, we have entered the Buddhist path and are true disciples of the Buddha.
 
@@ -7476,7 +7610,11 @@ These are called prohibitions, which were detailed in the Great Parinirvana Sutr
  
 (1) Those who have taken refuge in the Buddha, but not in gods and spirits, "The Great Parinirvana Sutra" says:
 
-"If you take refuge in the Three Jewels, it is a matter of right and true, and you should never take refuge in other gods and spirits."
+"If you take refuge in the Three Jewels, 
+
+it is a matter of right and true, 
+
+and you should never take refuge in other gods and spirits."
 
 The difference between other religions and Buddhism has been discussed before, and we understand that only Buddhism has the true Dharma of liberation, which can lead sentient beings to Nirvana.
 
@@ -7608,7 +7746,7 @@ Therefore, no monks can be taken lightly.
 
 Some people casually comment on the monks' appearance and behavior, and say many things without thinking about it, and unintentionally plant evil seeds. This should be noted.
 
-In the past, the Kadampa master Zhongdunpa and the great yogi Shayrawa saw what looked like a broken yellow cloth on a monk's robe on the road. They dared not step on it. These are what we should learn.
+In the past, the Kadampa master Dromtonpa and the great yogi Shayrawa saw what looked like a broken yellow cloth on a monk's robe on the road. They dared not step on it. These are what we should learn.
 
 292
 
@@ -7618,7 +7756,7 @@ In addition, the "King of Samadhi  Sutra" says:
 
 The corresponding result will come to them." 
 
-The Three Jewels are the most profound blessing fields in the world. Therefore, no matter how you respect the Three Jewels, you will feel the respect of all beings for you and gain the respect of others.
+The Three Jewels are the most profound merit fields in the world. Therefore, the more you respect the Three Jewels, the more you will feel the respect of all beings for you and gain the respect of others.
 
 (2) Practice after taking refuge in the Three Jewels
 
@@ -7670,7 +7808,7 @@ Only when a Buddha comes into the world can there be a Buddha image.
 
 Although it is a body image, it is my incarnation.
 
-That is to say, after the Buddha's Nirvana, making offerings to the Buddha's image is no different from the merits of making offerings to the Buddha's body when the Buddha was alive.
+That is to say, following the Buddha's Parinirvana, making offerings to the Buddha's image is no different from the merits of making offerings to the Buddha's body when the Buddha was alive.
 
 ##### (2) The kindness of the Three Jewels
 
@@ -7684,7 +7822,7 @@ Sometimes when everyone eats together. If it is inappropriate to speak aloud wit
 
 In this way, eating is originally a consumption of blessings, but after making offerings, it will increase the blessings.
 
-(3) Make offerings continuously. 
+##### (3) Make offerings continuously. 
 
 You also need to persevere in making offerings, especially when you are not very good at making offerings, or the offerings are relatively poor.
 
@@ -7728,25 +7866,25 @@ The Muni girl knew that the lamp would be extinguished in the middle of the nigh
 
 After dawn, the Buddha asked the Venerable Muggallana to put out the oil lamp.
 
-The Venerable Muggallana went to the lamp of the Muni girl, and tried to put it out three times, but the lamp could not be extinguished. After the extinction, the light still shone into the sky, illuminating the three thousand worlds.
+The Venerable Muggallana went to the lamp of the Muni girl, and tried to put it out three times, but the lamp could not be extinguished. After it was finally snuffed out, the light still shone into the sky, illuminating the three thousand worlds.
 
-After seeing it, the Buddha said:
+After seeing this, the Buddha said:
 
-"This is the light of the future Buddha. The faith of the Muni girl has eliminated countless kalpas of sin and karma. After another thirty kalpas, her merits and virtues will be perfect, and she should be able to become a Buddha. The sun and the moon are needed, the people are full of great light, and the treasures in the palace are illuminated by the light, like the sky.”
+"This is the light of a future Buddha. The faith of the Muni girl has eliminated countless kalpas of sin and karma. After another thirty kalpas, her merits and virtues will be perfect, and she should be able to become a Buddha. The sun and the moon are needed, the people are full of great light, and the treasures in the palace are illuminated by the light, like the sky.”
 
 When the Muni girl heard the Buddha's prophecy, she rejoiced in her heart and bowed to the Buddha.
 
-After hearing this, King Ajatashatru asked the old woman, "I have done a lot of meritorious deeds, and the Muni girl only lit a lamp, but she was foretold by the Buddha. What is the reason?"
+After hearing this, King Ajatashatru asked the old woman, "I have done a lot of meritorious deeds, and the Muni girl only lit a lamp, but she received a prophecy from the Buddha. What is the reason?"
 
 297
 
 The old woman replied: 
 
-"Although the great king has done many things, his heart is different. The Muni girl has devoted herself to the Buddha because of her vows and devotions, and her heart has already corresponded to the boundless dharma.
+"Although the great king has done many things, his heart is different. The Muni girl has devoted herself to the Buddha and because of her vows and devotions, and her heart has already connected to the boundless Dharma.
 
-Because of her sincerity, the poor girl Muni only lit a lamp and received the prophecy of the Buddha, so she should come to become a Buddha.
+Because of her sincerity, the poor girl Muni only lit a lamp and received the prophecy of the Buddha, so she should become a Buddha.
 
-From this, it can be seen that the size of merit does not depend on how much you do, but only on whether your intention is sincere and broad!
+From this, it can be seen that the scale of merit does not depend on how much you do, but only on whether your intention is sincere and broad!
 
 After educating others to take refuge in the Three Jewels, you already know the merits and benefits of taking refuge. In order to benefit other beings, out of compassion, you should educate others to enter Buddhism and take refuge in the Three Jewels.
 Do it as you can, and let it flow.
@@ -7755,7 +7893,7 @@ Before doing anything by relying on the practice of the Three Jewels, you must p
 
 For example, it is easy to succeed by making offerings to the seven branches before doing things, and then praying to the Three Jewels.
 
-Wherever you want to go, you must first worship three times in front of the Buddha statue, and then pray, so that wherever you go, it will be very auspicious.
+Wherever you want to go, you must first bow three times in front of the Buddha statue, and then pray, so that wherever you go, it will be very auspicious.
 
 298
 
@@ -7765,7 +7903,7 @@ In this way, not only will one's wishes come true, but it will also gradually st
 
 The practice method of contemplating the benefits of taking refuge 
 
-In-depth contemplation of the eight merits and benefits of taking refuge are mentioned later, and persisting in practicing the four refuges every day will also greatly increase the confidence in the guru and the Three Jewels.
+In-depth contemplation of the eight merits and benefits of taking refuge are mentioned later, and persisting in practicing the Four Refuges every day will also greatly increase the confidence in the guru and the Three Jewels.
 
 Vows to never give up the practice of taking refuge in the Three Jewels 
 
@@ -7773,7 +7911,7 @@ When we thoroughly understand the causes of taking refuge, the merits and benefi
 
 299
 
-(3) The merits and benefits of taking refuge
+#### (3) The merits and benefits of taking refuge
 
 ##### 1. Truly entering the Dharma door
 
@@ -7786,7 +7924,7 @@ The blessings of Buddhas and Bodhisattvas originally illuminated the earth like 
 
 The root of the precepts is to take refuge, and only after taking refuge can one receive the precepts.
 
-If there is only the thought of ​​taking refuge, but there is no refuge, then even the five relatively basic precepts cannot be upheld, much less the merits of keeping the precepts.
+If there is only the thought of ​​taking refuge, but there is no real refuge, then even the five relatively basic precepts cannot be upheld, much less the merits of keeping the precepts.
 
 The foundation of the precept of non-liberation is also taking refuge. If there is no refuge, the merits and virtues of vows of non-liberation, bodhisattva vows, and tantric vows cannot arise.
 
@@ -7797,13 +7935,12 @@ After taking refuge, negative karma will be reduced every day.
 
 300
 
-After taking refuge, you become a Buddhist practioner. You will continue to receive the blessings of the Three Jewels of the Guru, and the blessings of Buddhas, Bodhisattvas, and Dharma Protectors. You will constantly reduce karmic obstacles. Even if you recite the Buddha’s name of Buddha Shakyamuni once, you can eliminate tens of thousands of kalpas of karmic obstacles.
+After taking refuge, you become a Buddhist practioner. You will continue to receive the blessings of the Three Jewels of the Guru, and the blessings of Buddhas, Bodhisattvas, and Dharma Protectors. You will constantly reduce karmic obstacles. Even if you recite the Buddha’s name of Buddha Shakyamuni once, you can eliminate tens of thousands of kalpas of karmic debt.
 
 
 ##### 4. Produce infinite blessings
 
-
-After taking refuge in the Three Jewels, the merits and virtues of the Three Jewels are immeasurable, and the blessings obtained are also inconceivable, resulting in immeasurable blessings.
+After taking refuge in the Three Jewels, the merits and virtues of the Three Jewels are immeasurable, and the blessings obtained are also inconceivable, resulting in immeasurable merit.
 
 In the The Noble Great Vehicle Sūtra “The Perfection of Generosity” it says:
 
@@ -7842,7 +7979,7 @@ and I say that they will eventually attain Nirvana. "
 
 301
 
-Here the Buddha said to Venerable Ananda that by the roots of goodness planted by the Buddha, Even if you didn't want to attain Nirvana in the first place, you will definitely achieve Nirvana eventually.
+Here the Buddha said to Venerable Ananda that by the seeds of goodness planted by the Buddha, even if you didn't want to attain Nirvana in the first place, you will definitely achieve Nirvana eventually.
 
 Therefore, once you have taken refuge, when making offerings to Buddhas and Bodhisattvas, or after reciting sutras and practicing the Dharma, when devotion is made, the devotion is weak and unfinished, merits and blessings will not circulate freely, and will eventually return to Buddhahood.
 
@@ -7898,7 +8035,13 @@ The Buddha said in the "The Vast Game Sutra":
 
 Venerable Milarepa's reincarnation, Kadampa's great virtue Pabongka Rinpoche also said: 
 
-"If you have an ordinary mind of taking refuge, you will first be rewarded in this life, everything will be accomplished, and then you will receive auspicious signs when you are dying."
+"If you have an ordinary mind of taking refuge, 
+
+you will first be rewarded in this life, 
+
+everything will be accomplished, 
+
+and then you will receive auspicious signs when you are dying."
 
 ##### 8. Accelerated Achievement 
 
@@ -7910,7 +8053,7 @@ For the practice of the Four Refuges, please refer to Treasures of the Dharma Se
 
 305
 
-#### Section 4 Karma 
+#### Section 4 - Karma (Cause and Effect)
 
 Having taken refuge in the Three Jewels of the Guru, although you will no longer fall into the three evil realms, you still need to respect cause and effect.
 
@@ -7922,15 +8065,15 @@ We feel that we haven't done too many  bad things, we seem to be far away from t
 
 In fact, this is just an appearance that arises because you do not understand cause and effect, do not understand the essential characteristics of karma, and are not good at observing and thinking.
 
-Whether or not we can fall into the evil path is not up to us, but is determined by our accumulated karma.
+Whether or not we fall into the evil path is not up to us, but is determined by our accumulated karma.
 
 Our countless past lives have created immeasurable karma, but we don't realize it.
 
-At the time of death, whichever power of good or evil karma is stronger will be triggered by love and grasping among the twelve Twelve links of dependent origination, and then the karmic retribution will flow with.
+At the time of death, whichever power of good or evil karma is stronger will be triggered by love and grasping among the twelve Twelve links of dependent origination, and then the karmic retribution will flow.
 
-We feel that we haven’t done much bad karma in this life, but if the big bad karma we created in the previous life matured in this life, or the small bad karma has grown into a big bad karma, what should we do?
+We feel that we haven’t done many bad deeds in this life, but if the big bad karma we created in the previous life matured in this life, or the small bad karma has grown into a big bad karma, what should we do?
 
-The size of karma, on the one hand, has something to do with the strength of the intention, fabrication, and results of the karma.
+The scale of karma, on the one hand, has something to do with the strength of the intention, conditions, and results of the karma.
 
 Therefore, what we think of as a small evil can actually become a very large evil karma.
 
@@ -7938,11 +8081,11 @@ Therefore, what we think of as a small evil can actually become a very large evi
 
 For example, speaking abusively to another. If you hold it in for a long time before speaking out, you can't hold it anymore, and finally you explode, or for some other reason, you are very angry and lose your temper. After you have finished, you feel very comfortable again, and feel that the scolding was right.
 
-In this case, the motives, pretense, and results of this scolding were all done very "satisfactorily".
+In this case, the motives, intention, and results of this scolding were all done very "satisfactorily".
 
 Even a simple phrase like "Get lost!", produces a lot of negative karma.
 
-As another example, there is a mosquito that keeps you awake. You searched for a long time and couldn’t find it. You get very annoyed. Once you have found it and squashed it, You can sleep."
+As another example, there is a mosquito that keeps you awake. You searched for a long time and couldn’t find it. You get very annoyed. Once you have found it and squashed it, you can sleep."
 
 The karma of killing a living being is likely to send us to hell just because of a tiny mosquito.
 
@@ -7961,6 +8104,8 @@ The first thing that comes to our mind is usually to hope for wealth, peace, etc
 
 The "Secret Continuation" says: 
 
+---
+
 "Don't be greedy for the results of this life. 
 
 If you only pin your hopes on this life, 
@@ -7971,7 +8116,9 @@ but if you hope for the consummation of the next life,
 
 the results of this life will be extensive and abundant."
 
-Master ZhongDunpa asked Venerable Atisha: 
+---
+
+Master Dromtonpa asked Venerable Atisha: 
 
 "If you act for the sake of happiness, benefit, and respect in this life, what is the result of it?"
 
@@ -7991,7 +8138,7 @@ The Venerable Atisha also said, like plants, if the root is poisonous, the branc
 
 Therefore, anything that arises from thoughts such as greed, hatred, and delusion in the heart is evil karma, and it is the cause of evil. This is aspect of the intention.
 
-The same goes for initiation and devotion / dedication of merit.
+The same goes for initiation and dedication of merit.
 
 When we perform good deeds, most of the time we are not very pure.
 
@@ -7999,11 +8146,13 @@ For example, one is lazy when studying, and when chanting sutras, one is either 
 
 At the end of the practice, the dedication of the aspiration is similar to that of the intention, both of which are to fulfill the wishes of this life.
 
-Therefore, we think that we have generated a lot of good karma, but it is not necessarily so.
+Therefore, we think that we have generated a lot of merit, but it is not necessarily so.
 
 In this way, for the sake of future rebirths, it is not enough to just ask the Three Jewels for help. You must also listen to the teachings of the Guru and the Three Jewels and do what they say.
 
 In the Collection of Judgments and Sentences it says:
+
+--- 
 
 The Buddhas do not wash off sins with water, 
 
@@ -8013,7 +8162,9 @@ Unless you transfer the blame to him,
 
 the truth of the Dharma will lead to liberation.
 
-It means that the Buddha's compassion is the greatest. If the Buddha can wash away our sins and obstacles with water, or he can rescue us from samsara with his hands, or if the Buddha can give us his fruits, then The Buddha has done this a long time ago, so we don't have to suffer from samsara.
+---
+
+It means that the Buddha's compassion is the greatest. If the Buddha could wash away our sins and obstacles with water, or he can rescue us from samsara with his hands, or if the Buddha can give us his fruits, then the Buddha would have done this a long time ago, so we don't have to suffer from samsara.
 
 But these are not feasible, the Buddha can only liberate us by teaching the scriptures to us.
 
@@ -8025,7 +8176,7 @@ Everything has a cause and an effect.
 
 For example, being able to have a cup of water to drink is because of the blessing of drinking this cup of water, this is the cause.
 
-When someone is scolded or beaten, it is because of their own bad karma in the past. The person who beats and scolds them is fate, and being beaten and scolded is the result.
+When someone is scolded or beaten, it is because of their own bad karma in the past. The person who beats and scolds them is karma, and being beaten and scolded is the result.
 
 To respect cause and effect, we must recognize cause and effect, and we must recognize karma.
 
@@ -8033,9 +8184,13 @@ It is necessary to recognize the four aspects of karma: the inevitability of kar
 
 Object, intention, action, completion
 
+Cause, intention, action, result
+
 ##### (1) The inevitability of karmic retribution 
 
 Nagarjuna Bodhisattva said in the "Bao Ga Lun":
+
+---
 
 Unwholesome feelings, 
 
@@ -8045,7 +8200,9 @@ Feeling all pleasures,
 
 all living beings are happy.
 
-The general law of cause and effect is that good karma leads to happy fruit, and bad karma leads to bitter fruit.
+---
+
+The general law of cause and effect is that good karma leads to happiness, and bad karma leads to suffering.
 
 310
 
@@ -8075,26 +8232,28 @@ Therefore, we must face it calmly, and not generate hatred and cause greater evi
 
 ##### (2) Strong proliferation of karma 
 
-There are six aspects of strong proliferation of karma: strong proliferation of the essence of karma, strong proliferation of intentional consciousness, strong proliferation of karmic objects, and strong proliferation of karma maker's identity, the strong proliferation of karma time, and the strong proliferation of individual good dharmas.
+There are six aspects of strong proliferation of karma: strong proliferation of the essence of karma, strong proliferation of intentional consciousness, strong proliferation of karmic objects, and strong proliferation of karma maker's identity, the strong proliferation of karma over time, and the strong proliferation of individual good deeds.
 
 The strong proliferative nature of the essence of karma 
 
-The strong proliferative nature of the essence of karma is: even a small bad karma, when the retribution comes out, it will grow to a great size, and can harm a person for life after life; a small good karma Karma, when the good fruits appear, the blessings will be immeasurable and boundless.
+The strong proliferative nature of the essence of karma is: even a small bad deed, when the retribution comes out, it will grow to a great size, and can harm a person for life after life; a small good karma Karma, when the good fruits appear, the blessings will be immeasurable and boundless.
 
 
 This is the general law of the nature of cause and effect, just like a small fire that starts will eventually burn down the entire forest.
 
-For example, King Ashoka, when the Buddha was alive, King Ashoka's previous life was still a child of an ordinary family.
+For example, when the Buddha was alive, King Ashoka's in a previous life was still a child of an ordinary family.
 
 One day, the Buddha and Venerable Ananda met this child on the road. He was very happy when he saw the Buddha, but he had nothing to give, so he grabbed a handful of soil on the ground and offered it to Shakyamuni Buddha as food.
 
 The Buddha said to Venerable Ananda, 
 
-"Put this soil back in a bowl and apply it to the wall of the lonely garden. This child will be a king who will rule the world in the future.
+"Put this soil back in a bowl and apply it to the wall of the lonely garden. 
+
+This child will be a king who will rule the world in the future."
 
 312
 
-"Later, as the Buddha said, more than two hundred years after the Buddha's passing, King Ashoka was born and unified India. In the later period of his rule, he spread Buddhism widely and built 84,000 Buddha stupas.
+Later, as the Buddha said, more than two hundred years after the Buddha's passing, King Ashoka was born and unified India. In the later period of his rule, he spread Buddhism widely and built 84,000 Buddha stupas.
 
 A child just offered a handful of soil to the Buddha, and for such a small act of kindness, the result was that he grew to become a king.
 
@@ -8146,13 +8305,13 @@ The strong proliferative nature of karma is so powerful.
 
 In past lives, Nagarjuna Bodhisattva only killed a few small insects, and because he did not repent of this small karma, it brought about such a tremendous result.
 
-Although he is a bodhisattva of high rank, he passed away because of his previous karma. This is the strong multiplication of the essence of karma.
+Although he is a bodhisattva of high rank, he passed away because of his previous actions. This is the strong multiplication of the essence of karma.
 
-Shows how terrible the growth of bad karma is.
+It shows how terrible the growth of bad karma is.
 
 The strong proliferative nature of the mind-generating consciousness depends on the subjective consciousness. The karma-generating mind or motives are different, and the results are also very different.
 
-If you do a little thing with compassion and bodhicitta, the reward will be very, very large. This is good karma. If you do a little thing with great anger, hatred, greed, hatred, and delusion, the retribution will be very large in the future. Bad karma.
+If you do a little thing with compassion and bodhicitta, the reward will be very, very great. This is good karma. If you do a little thing with great anger, hatred, greed, and delusion, the retribution will be very large in the future. Bad karma.
 
 In terms of motivation, the growth of good and evil karma is the same.
 
@@ -8162,20 +8321,20 @@ For example, killing a small ant with great greed, hatred and delusion will also
 
 On the contrary, if there is no greed, hatred, and delusion, even if you accidentally kill a person, it is not a big karma.
 
-For example, there was a mother and herson, the mother was working outside the yard, and the son was in the yard. The son does not know that the mother is on the other side of the wall, and threw a stone, which happened to hit his mother's head, killing his mother.
+For example, there was a mother and her son. The mother was working outside the yard, and the son was in the yard. The son did not know that his mother was on the other side of the wall, and threw a stone, which happened to hit his mother's head, killing her.
 
 315
 
-This son has no greed, hatred and delusion, no bad motives or thoughts, so he is a very small karma.
+This son had feelings of greed, hatred or delusion, no bad motives or thoughts, so his is a very small karma.
 
 The same is true for the size of the heart.
 
-Giving a dollar to the poor with bodhicitta, the future retribution will be inconceivable, and it may increase to tens of millions or hundreds of millions.
+Giving a dollar to the poor with bodhicitta, the future reward will be inconceivable, and it may increase to tens of millions or hundreds of millions.
 
-The size of the highly proliferative result of the karma object depends on the karma object.
+The size of the highly proliferative result of the object of karma depends on the karma object.
 If the object of karma is one's mentor, parents, or Buddha or Bodhisattva, these are all benefactors.
 
-Parents are the benefactors who nurture us, and teachers, Buddhas and Bodhisattvas are the benefactors who rescue us from samsara, from suffering and attain happiness.
+Parents are the benefactors who nurture us, and teachers, Buddhas and Bodhisattvas are the benefactors who rescue us from samsara, from suffering and attainment of happiness.
 
 If you do good deeds to these objects, the good reward will be great; if you do evil deeds, the evil retribution will be great.
 
@@ -8184,7 +8343,7 @@ This is the strong proliferation of the objects of karma.
 The strong proliferative nature of the identity of the actor 
 
 Sometimes, the identities of the actors are different, and the size of the retribution is also different.
-Those who have not received ordination, such as those who have just taken refuge but have not yet received ordination, are compared with those who have taken the five precepts. Those who take the five precepts create a little bad karma, and the karma will be very large; on the contrary, if they create a little good karma, The good news is also very big.
+Those who have not received ordination, such as those who have just taken refuge but have not yet received ordination, are compared with those who have taken the five precepts. Those who take the five precepts create a little bad karma, and the karma will be very large; on the contrary, if they create a little good karma, the effect is also very big.
 
 316
 
@@ -8192,26 +8351,26 @@ The retribution of karma is different, and the retribution of those who are orda
 
 Among those who are ordained, the results are also different.
 
-A person who takes the novice vows, even if he does a little bit of bad karma, will get more bad karma than a person who has not taken the five vows. Similarly, if he does a little bit of good karma, the good karma will be greater than those who take the five precepts.
+A person who takes the novice vows, even if he does a little bit of bad karma, will get more bad karma than a person who has not taken the five vows. Similarly, if he does a little bit of good karma, the good karma will be greater than those who have not taken the five precepts.
 
-By analogy, those who take the monk ordination are greater than those who take the novice vows, those who take the bodhisattva vows are greater than those who take the monk ordination, and those who take the tantric vows are greater than those who take the bodhisattva vows.
+By analogy, those who take ordination are greater than those who take the novice vows, those who take the bodhisattva vows are greater than those who take the monk ordination, and those who take the tantric vows are greater than those who take the bodhisattva vows.
 
 Ordinary people offer tens of thousands of oil lamps to the Buddha, which is not as great as a pure bhikkhu offering a single oil lamp.
 
 Conversely, the sin of a precept-keeping monk killing an ant with hatred is greater than the sin of an ordinary person killing a human being.
 
-The identities of the actors are different, and the size of the results is also different.
+The identities of the actors are different, and the scale of the results is also different.
 
 Different identities have different strong proliferation of karma, and this is the strong proliferation of karma creators.
 
-The strong proliferative nature of karmic time is divided into two parts here.
+The strong proliferative nature of karma over time is divided into two parts here.
 317
 
-(1) The strong proliferative property of the karma hours refers to the proliferative property of the results in the duration of the karma time.
+(1) The strong proliferative property of karma over time refers to the proliferative property of the results according to the duration of the karma time.
 
 This is easy to understand. Whether it is good karma or bad karma, long-term and continuous karma will definitely result in greater rewards than short-term karma.
 
-(2) The strong proliferative nature of the karma dates. 
+(2) Special dates whic contribute to the strong proliferative nature of karma. 
 
 Compared with normal karma, the increase in the results of karma on certain dates is different.
 
@@ -8263,7 +8422,7 @@ In the age of the end of the Dharma, the merits of taking a certain precept and 
 
 In the Saha world of the age of the end of the Dharma, the merits and virtues of practicing good deeds for a moment are far better than the merits and virtues of practicing good deeds in the pure land of Buddhas and Bodhisattvas for many kalpas.
 
-We are now in the Saha world at the end of the Dharma era.
+We are now in the Saha world at the end of the Dharma age.
 
 (3) The strong proliferation of special methods 
 
@@ -8281,7 +8440,7 @@ Merit increasing mantras and blessings are all special ways to increase merit.
 
 The above is the strong proliferation of individual good dharmas.
 
-(3) Non-retribution of karmic retribution 
+(3) Infallibility of karmic retribution 
 
 If you do not do evil karma, you will not have bad retribution, and if you do not do good karma, you will not have good retribution.
 
@@ -8289,7 +8448,7 @@ Likewise, there will be no wealth without giving, and there will be no cause for
 
 320
 
-"Don't do non-retribution" also reminds us that we must be diligent in studying Buddhism.
+"Infallibility of karmic retribution" also reminds us that we must be diligent in studying Buddhism.
 
 Although there will be no evil retribution if we do not do evil karma, who will give us a reward if we do not do good karma? 
 
@@ -8299,7 +8458,7 @@ If you don’t work hard, no matter how many blessings Buddhas and Bodhisattvas 
 
 Therefore, one should diligently practice and sow good causes, so as to reap the corresponding rewards.
 
-(4) The incorrupt nature of doing karma means that the karma that has been done will not be eliminated on its own.
+(4) The incorrupt nature of doing karma means that the evil karma that has been done will not be eliminated on its own.
 
 Evil karma must be eliminated through repentance and chanting scriptures. Otherwise, the karma will not disappear on its own unless the karma ripens and the karma ends.
 
@@ -8307,15 +8466,19 @@ The same is true of good karma. If you do good deeds, if there is no anger or je
 
 Then, what kind of state is the indestructable nature of karma?
 
-In the Buddhist scriptures on the retribution of birth and fruit of fate, it says:
+In the Buddhist scriptures on the "retribution of birth and fruit of fate", it says:
+
+---
 
 The karma created by sentient beings will not be destroyed for a hundred kalpas.
+
+---
 
 That is to say, the good and bad karma we create will not be destroyed even after a hundred kalpas, until the karma is worked out, the result will appear.
 
 The combination of karma will bring forth the result.
 
-Good and evil karma is the cause; karma is the factor that is conducive to the maturity of the cause and the resultant result, such as a specific person, thing, environment, condition, etc.
+Good and evil karma is the cause; karma are the conditions that are conducive to the maturity of the cause and the resultant result, such as a specific person, thing, environment, condition, etc.
 
 When planting wheat, the seed is the cause; soil, watering, and spreading fertilizer are the primary and secondary factors.
 
@@ -8335,11 +8498,11 @@ In addition, people who do not have good fortune will ask questions even if they
 
 question.
 
-Therefore, you should always do good deeds, accumulate more and more blessings. In this way, whatever kind of fate you encounter is a good thing, and you can bear it.
+Therefore, you should always do good deeds, accumulate more and more merit. In this way, whatever kind of fate you encounter is a good thing, and you can bear it.
 
 The reason for good health is to recite sutras well, to release animals frequently, and not to kill.
 
-The fate is to take medicine, see a doctor in time, and pay more attention in life.
+The effect is to take medicine, see a doctor in time, and pay more attention in life.
 
 If there is no healthy cause, and your health is not good, no matter how good the doctor is, they may not be able to cure you.
 
@@ -8349,7 +8512,15 @@ The Madhyamika school believes that the nature of karma is that it is not corrup
 
 Yuecheng Bodhisattva said in "Entering the Middle Way":
 
-The self-nature of causation is not inherently corrupt, and it is possible to do it without relying on store-consciousness. Some karma has been destroyed over many lifetimes, and its consequences will still be produced.
+The self-nature of causation is not inherently corrupt, 
+
+and it is possible to do it without relying on store-consciousness. 
+
+Some karma has been destroyed over many lifetimes, 
+
+and its consequences will still be produced.
+
+--- 
 
 It means that even if the big karma is destroyed, the small karma remains, after many rebirths, the retribution will still appear.
 
