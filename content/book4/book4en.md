@@ -12,7 +12,9 @@ draft: false
 
 
 
-San Shi Dao (Lower Path)
+The Three Principal Aspects of the Path 
+
+(Lower Path)
 
 Middle Path
 
@@ -55,51 +57,51 @@ Practice the Dharma
 
 Master Tsongkhapa Master Tsongkhapa
 
-The fourth of the series “Treasures of the Fahai” in Tuole Temple
+The fourth of the series "Treasures of the Fahai" in Tuole Temple
 
-San Shi Dao (Lower Path)
+The Three Principal Aspects of the Path (Initial Level)
 
-Ngawang Gyatso Vajra Guru explained
+Talks by Ngawang Gyatso Vajra Guru
 
-Table of contents
+**Table of contents**
 
 #### Part III The Three Principal Aspects of the Path
 
-#### Chapter 2 - Middle Path
+#### Chapter 2 - Training for Individuals at the Middle Level
 
 **Section 1 - The Truth of Suffering**
 
-Knowing Suffering
+##### 1. Knowing Suffering
 
-(1) Five sufferings
+(1) Five types of sufferings
 
-(2) Eight sufferings
+(2) Eight types of suffering
 
-(3) Three sufferings
+(3) Three types of sufferings
 
 (4) The suffering of Asuras
 
 (5) The suffering of heaven
 
-**Section 2 - Troubles**
+**Section 2 - Definitions**
 
-Troubles
+##### 1. Afflictions
 
-(1) Nature of troubles
+(1) Nature of afflictions
 
-(2) Danger of worry
+(2) Harmfulness of afflictions
 
-(3) Types of troubles
+(3) Types of afflictions
 
-(4) The source of trouble
+(4) The source of afflictions
 
-(5) Causes of troubles
+(5) Causes of afflictions
 
-(6) Troubled troubles
+(6) Suffering of afflictions 
 
-2. Karma
+##### 2. Karma
 
-3. Dying
+##### 3. Dying
 
 (1) Death
 
@@ -107,7 +109,7 @@ Troubles
 
 (3) Precautions before and after death
 
-4.  Bardo - Intermediate State
+##### 4.  Bardo - Intermediate State
 
 (1) The state of the bardo
 
@@ -119,11 +121,11 @@ Troubles
 
 5. Living
 
-**Section 3 - The Truth**
+**Section 3 - The Truth of the Path**
 
 1. Overview
 
-(1) The path of wealth
+(1) The path of resources
 
 (2) The path of accumulation
 
@@ -131,29 +133,29 @@ Troubles
 
 (4) The path of learning
 
-(5) The path of no learning
+(5) The path of no more learning
 
-2. The Twelve Links of Dependent Arising
+2. The Twelve Causal Links of Dependent Arising
 
 3. Discipline, Concentration and Wisdom
 
-(1) Discipline
+(1) Moral Discipline
 
-(2) Meditation
+(2) Concentration
 
 (3) Wisdom
 
-Section 4 - The Truth of Extinction
+**Section 4 - The Truth of Liberation**
 
 1. Liberation
 
-(1) Remaining Nirvana
+(1) Nirvana with remainder
 
 (2) Nirvana without remainder
 
-(3) Abstinence of Nirvana
+(3) Non-abiding Nirvana
 
-#### Chapter 3 - Upper Path
+#### Chapter 3 - The Training for Excellent Individuals
 
 **Section 1 - Bodhicitta - Aspiration for Enlightenment**
 
@@ -161,33 +163,33 @@ Section 4 - The Truth of Extinction
 
 (1) Entering the Mahayana Gate
 
-(2) Obtaining the name of a Buddha
+(2) Taking a Buddhist Name
 
-(3) Beyond Theravada
+(3) Beyond Theravadan Arhats
 
-(4) Receive the blessing of the Buddhas and Tathagatas
+(4) Accumulate the merit of the Buddhas and Tathagatas
 
-(5) Accumulate Blessings Day and Night 
+(5) Accumulate Merit Day and Night 
 
-(6) Elimination of guilt
+(6) Elimination of karmic obstacles
 
-(7) By relying on Bodhicitta, one can achieve what one wishes
+(7) By relying on Bodhicitta, one can achieve whatever one wishes
 
-(8) Not disturbed by obstacles
+(8) Undisturbed by obstacles
 
-(9) Quick Achievements
+(9) Accelerated Achievements
 
-(10) Avatamsaka Sutra talks about the merits of bodhicitta
+(10) Avatamsaka Sutra on the merits of bodhicitta
 
-2. How to generate bodhicitta
+2. How to generate Aspiring bodhicitta
 
 (1) Seven branches of cause and effect generate bodhicitta
 
-(2) Awakening Bodhicitta from exchanges with others
+(2) Awakening Bodhicitta by exchanging self for others
 
-Section 2 - Ten Paramitas
+**Section 2 - Ten Paramitas**
 
-1. Paramita of Giving
+1. Paramita of Generosity
 
 (1) Wealth giving
 
@@ -197,9 +199,9 @@ Section 2 - Ten Paramitas
 
 (4) The Six Right Ways and Six Degrees of Giving
 
-(5) Charity
+(5) Charitable Giving
 
-2. Paramita of Keeping the Precepts
+2. Paramita of Moral Integrity
 
 (1) Abstinence
 
@@ -207,15 +209,15 @@ Section 2 - Ten Paramitas
 
 (3) The Dharma Precepts of Receiving Goodness
 
-3. Paramita of Endureance of Humiliation
+3. Paramita of Renunciation
 
-(1) Hurt tolerance
+(1) Tolerance of Pain
 
 (2) Tolerance of Suffering
 
 (3) Practicing Forbearance
 
-4. Paramita of Diligence
+4. Paramita of Persistence
 
 (1) Armored diligence
 
@@ -241,11 +243,11 @@ Section 2 - Ten Paramitas
 
 (2) A brief analysis of Pudgala's no-self
 
-7. Paramita of Convenience
+7. Paramita of Patience
 
-8. Paramita of Wish Wave
+8. Paramita of Truthfulness
 
-9. Paramita of Strength
+9. Paramita of Determination
 
 10. Paramita of Wisdom
 
@@ -257,15 +259,15 @@ Section 2 - Ten Paramitas
 
 3. Benificial Behavior
 
-(1) The immature can make the mature
+(1) The immature can mature
 
-(2) Those who have matured can be liberated
+(2) Thoe mature can deliver liberation
 
-4. Colleagues
+4. Exchanging Self for Others
 
 #### Part 4 - Vajrayana
 
-Chapter 1 - Conditions for Practicing the Tantric Vehicle
+##### Chapter 1 - Conditions for Practicing the Tantric Vehicle
 
 **Section 1 - Empowerment**
 
@@ -285,177 +287,214 @@ Part 5 -  the Order of Practice steps
 
 Introduction to Tuole Monastery
 
-![Six Paths of Reincarnation](/images/sixpathsreincarn.png)
+![Six Realms of Rebirth](/images/sixpathsreincarn.png)
 
-**Six Paths of Reincarnation**
-
-...
-
-If you do not put effort into contemplating true sufferings—the faults of cyclic existence—
-
-You will not develop the wish for liberation.
-
-If you do not contemplate true origins – the steps for entering cyclic existence—
-
-You will not understand how to cut the roots of cyclic existence.
-
-Therefore, rely on weariness, definite emergence from existence;
-
-And cherish the knowledge of what binds you to cyclic existence.
-
-I, a yogi, practiced like this.
-
-You who desire liberation, should do likewise.
+**Six Realms of Rebirth**
 
 ...
+
+>
+>If you do not put effort into contemplating true sufferings—the faults of cyclic existence—
+>
+>You will not develop the wish for liberation.
+>
+>If you do not contemplate true origins – the steps for entering cyclic existence—
+>
+>You will not understand how to cut the roots of cyclic existence.
+>
+>Therefore, rely on weariness, definite emergence from existence;
+>
+>And cherish the knowledge of what binds you to cyclic existence.
+>
+>I, a yogi, practiced like this.
+>
+>You who desire liberation, should do likewise.
+>
+
 
 ——"A Hymn of Experience (Lam rim nyam gur)"
 
-**Chapter 2 - Middle Path
+---
 
-In the San Shi Dao Lower Path, The goal of the pursuit is not to fall into the evil realm in the future, and to obtain the fruits of a human life and heaven.
+**Chapter 2 - Training for Individuals at the Middle Level**
 
-However, even if a person obtains the fruit of human beings and heaven in the next life, it is not guaranteed that it will be the same for life after life.
+In the The Three Principal Aspects of the Path - Training for Individuals at the Initial Level, the goal is not to fall into the three evil realms in the future, and to obtain the fruits of a human life and or heavenly realms.
 
-After the blessings are exhausted, they will definitely fall into the evil path, even the Great Brahma King is no exception.
+However, even if a person obtains the fruit of a human life and or heavenly realms in the next life, it is not guaranteed that it will be the same for life after life.
 
-Moreover, even if the blessings of each life are great, if you create even greater evil karma, when you are dying, the evil karma will appear, and you will still fall into the evil realm in future lives.
+After the accumulated merit is exhausted, they will definitely fall into the evil realms, and even the Great Brahma King is no exception.
 
-Thinking this way, come, even if the later generations get the fruit of human and heaven, it will not be final, and there is still the possibility of falling into the evil realm.
+Moreover, even if the accumulated merit of each life is great, if you create even greater evil karma, when you are dying, the evil karma will appear, and you will still fall into the evil realms in future lives.
 
-At this time, you will realize that you can only truly get rid of the fear of falling into the lower realms if you can escape the six realms of reincarnation.
+Thinking this way, even if later rebirths obtain the fruit of a human life and or heavenly realms, it will not be final liberation, and there is still the possibility of falling into the evil realms.
 
-Because the goal pursued by the Middle Path is liberation from the cycle of six realms, liberation, which is the method of liberation.
+So, you will realize that you can only truly get rid of the dread of falling into the lower realms if you can escape the six paths of rebirth. This requires the Training for Individuals at the Middle Level (Middle Scope Path).
 
-To be free from samsara, one must first practice renunciation.
+Because the goal pursued by the Middle Scope Path is leaving the cycle of the six realms of rebirth (samsara), getting out  is the Dharma door of liberation.
 
-What is renunciation? After understanding the suffering of the six realms of reincarnation, the strong desire to escape from the six realms arises, which is renunciation.
+To be free from samsara, one must first generate, through practice, renunciation.
 
-If you can realize that no matter how good the surface of the six-path samsara looks, it is still a pit of fire, and if you truly experience the pain of the six-path samsara, you will be able to get out of your mind.
+What is renunciation? With a clear understanding of the suffering of the six realms of rebirth, renunciation is the arousal of the strong desire to escape from the six realms.
 
-On the basis of renunciation, cultivating precepts, concentration and wisdom, or the Dharma Door of the Four Noble Truths, or the Twelve Dependent Origination, can all be liberated.
+If you can realize that no matter how good the surface of the six-path samsara looks, it is still a pit of fire, and if you truly experience the pain of the six-path samsara, you will be able to generate renunciation.
 
-Buddha Shakyamuni turned the wheel of Dharma three times and preached eighty-four thousand teachings.
+On the basis of renunciation, training in moral discipline, meditative concentration and wisdom, or the Dharma Door of the Four Noble Truths, or the Twelve Links of Dependent Origination, can all lead to liberation.
 
-The first turning of the Wheel is about the Dharma Door of the Four Noble Truths, including the sergeant, the Dao, and the Middle Way.
+Buddha Shakyamuni turned the wheel of Dharma three times and gave eighty-four thousand teachings.
 
-Among them, the goal pursued by the Middle Path is liberation from the six realms and samsara. There are two kinds of liberation goals: Shravaka and Arahants.
+The first turning of the Wheel is the Dharma Door of the Four Noble Truths, including the Path of the Initial Level, and the Path of the Middle Level.
 
-Shravakah hears the meaning of Mahayana, but does not practice it himself.
+Among them, the goal pursued by the Path of the Middle Level is liberation from the six realms of rebirth (samsara). Here, there are two kinds of aspirants to liberation: Shravakas and Arhats.
 
-Oneself, oneself cultivate the small multiplication, and finally obtain the fruit of Arahantship. This is the voice hearer, the Arhat.
+Shravakas seek liberation through listening to others’ instruction,the Mahayana, but do not practice it themselves.
 
-Fate Jue Arhat is also called Dujue Arhat, and it mainly cultivates the twelve conditions and the origination method.
+They follow the Hinayana, and finally obtain the fruit of Arhatship. This is the voice-hearer, the Shravaka.
 
-In the beginning, this kind of person and Dharma friend worshipped the teacher and cultivated the Tao together. When they were in the path of resources and food, they accumulated a hundred kalpas of good fortune. At this time, he made a vow: When he is reborn in the next life, if the Buddha Dharma is not there, or No, when encountering Buddhism, but not a guru, at this time, one must self-realize Bodhi.
+The Predestined Jue Arhat, also called the Solitary Arhat, mainly trains in the Twelve Causal Links of Dependent Origination.
 
-Because of this, with the power of a vow, the Arhat will appear in the era of annihilation.
+In the beginning, this kind of person followed a guru and practiced the Dharma together with the Sangha. When they practiced in this way, they accumulated a hundred kalpas of good fortune. At this time, he made a vow: If he is reborn in the next life, and if there is no Buddha Dharma, or he finds the Dharma but there is no guru, to seek enlightenment on his own.
+
+Due to the power of this vow, the Solitary Arhat will appear in the era of annihilation of the Dharma.
 
 4
 
-For example, according to Buddhist scriptures, the Buddha Dharma of Shakyamuni lived for five thousand five hundred years.
+For example, according to Buddhist scriptures, the Buddha Dharma of Shakyamuni will live for five thousand five hundred years.
 
-Since the birth of Buddha Shakyamuni, after 5,500 years, there will be no Buddha Dharma, and it will take another 45,000,000,000 years to preach the Dharma after the birth of Maitreya Buddha.
+5,500 years after the birth of Buddha Shakyamuni, there will be no Buddha Dharma, and it will take another 45,000,000,000 years before the birth of Maitreya Buddha and his teaching of  the Dharma.
 
-These 45,000,000,000 years are the long period of eradication of the Dharma. At this time, the possibility of the Arhats of Fate Jue appeared.
+These 45,000,000,000 years are the long period of eradication of the Dharma. At this time, there is the possibility that Solitary Arhats (pratyekabuddhas) will appear.
 
-When they saw the bones of some dead people, they began to think: These are the bones of people after death, so where did death come from? Birth, and then death, where does the birth come from? It is because of the birth, the birth, the pregnancy because of the pregnancy, and the pregnancy because there is a defiled consciousness, so why do you have this consciousness? It is the line that taints the consciousness, the line, where does it come from? It is because of the afflictions of ignorance that deeds arise... Just like that, I gradually understand that the root of samsara is the afflictions of ignorance.
+When they saw the bones of some dead people, they began to think: 
 
-Continue to think, what is the affliction of ignorance. At this time, because the blessings of hundreds of kalpas have been accumulated in the time of sustenance and Taoism, when you think like this, you will follow the vows of the previous life into emptiness, and then you will be emptiness. Realized emptiness.
+These are the bones of people after death, so where does death come from?
 
-Then, if you practice slowly, you will be liberated for a lifetime.
+Death comes only after life, so where does life come from? 
 
-This type of Arhat is called an Arhat of Dependent Origination, an Arhat who has become enlightened because he has realized the twelve Dependent Originations.
+It comes from birth, birth follows pregnancy, and the cause of pregnancy is a defiled consciousness, so what is the cause of this consciousness? 
 
-Fateful Jue Arhats not only cut off their afflictions, but also cut off part of their afflictions. They know obstacles and attain enlightenment at a higher level than Shravaka Arhats. Therefore, their appearance has a little bit of the Buddha's thirty-two and eighty-favoured features. Species, for example, have a part of the top of the bun, which is not present in the shravaka arahants.
+The emaotions taint consciousness.
+Where do the emotions come from? 
+
+It is because of the afflictions of ignorance that deeds arise... 
+
+Just like that, they gradually understand that the root of samsara is the affliction of ignorance.
+
+They continue to think: 
+
+What is the affliction of ignorance. At this time, due to the accumulated merit of hundreds of kalpas during the time of the flourishing of the Dharma. When you think of it like this, you will follow the vows of the previous life into emptiness, and then you will have realized the truth of emptiness.
+
+Then, if you practice steadily, you will be liberated in one lifetime.
+
+This type of Arhat is called an Arhat of Dependent Origination, an Arhat who has become enlightened because he has realized the Twelve Links of Dependent Origination.
+
+Solitary Arhats have not only cut off their afflictions, but also cut off part of cognitive obstructions. 
+
+Their level of enlightenment is higher than Shravaka Arhats. Therefore, their appearance has a little of the Buddha's thirty-two marks and eighty uaspicious features. For example, they have a part of the topknot, which the shravaka Arhats do not have.
 
 5
 
-The purpose of the zhongshi Taoist practice is to liberate, and liberation must first be realized, which is the Buddha-nature.
+The goal of the Path of the Middle Scope practice is to be liberated. To be liberated is to have an enlightened mind, the realisation of Buddha-nature.
 
-Everyone has Buddha-nature, not to mention humans, even animals have Buddha-nature, and all living beings have Buddha-nature.
+Everyone has Buddha-nature, not only mention humans. 
 
-Regarding Buddha-nature, in Buddhism and teaching, because of different views, understandings are also different.
+Even animals have Buddha-nature, and all sentient beings have Buddha-nature.
 
-Consciousness-only schools believe that the mind is originally pure, but it is defiled by afflictions. No, the defiled and pure mind is Buddha-nature.
+Regarding Buddha-nature, because of different views in Buddhist teachings, understandings are also different.
+
+Mind-only schools believe that the mind is originally pure, but it is defiled by afflictions, and a pure mind without defilements is Buddha-nature. 
 
 The Madhyamika school believes that the mind is inherently selfless, it is emptiness, and the mind with emptiness is Buddha-nature.
 
-We can know how we want, but we must understand that everyone has a heart that yearns for liberation, which is the heart of awareness.
+We can think however we want, but we must understand that everyone has a heart that yearns for liberation, that is, the mind of awareness.
 
-How did an arahant get liberated when he was practising the sage path? After birth, with this awakened mind, we began to practice.
+How does an Arhat become liberated by practising the path of the middle scope? After birth, with this awakening mind, he began to practice.
 
-First, cultivate the way of resources and food. The way of resources and food is the way of accumulating good fortune.
+First, training in the path of accumulation. The path of accumulation is the way of accumulating good merit.
 
-Then enter the path of addition, the path of addition, is to prepare for the real entry into emptiness. At this time, you can compare and realize emptiness.
+Then enter the path of joining.
+
+The path of joining, is to prepare for the real entry into emptiness. At this time, you can analyse and realize emptiness.
 
 Quantitative enlightenment requires comparison and analogy to understand, and it is a state of vague understanding.
 
-When you reach the point of view, you can realize the emptiness in real time. The meaning of reality is in the present, and you can understand it very clearly. It is like looking at the Amara fruit in the palm of your hand. It is the real realization of emptiness.
+When you reach the path of seeing, it is possible to realize the truth of emptiness. The nature of reality is clear, and you can understand it very clearly. It is like looking at the Amara fruit in the palm of your hand. It is the true realization of emptiness.
 
-After realizing the emptiness of the present, all defilements will be cut off.
+After realizing the emptiness of reality, all defilements will be cut off.
 
-Generally speaking, there are two kinds of afflictions: one is the afflictions of separation, which are the afflictions that we imagine and come out; the other is the afflictions that are innate, which are the afflictions that we bring over in the cycle of samsara without beginning.
+Generally speaking, there are two kinds of afflictions: one type are the mental afflictions, which are the afflictions that we imagine; the other type are the innate afflictions, which are the afflictions that we bring over in the cycle of samsara without beginning.
 
 6
 
-These two kinds of afflictions are completely cut off, and you will get the fruit of Arahantship.
+When these two kinds of afflictions are completely cut off, the fruit of Arahantship will be obtained.
 
-What does the mind feel like after the troubles are over? Usually, our soul, consciousness and wind are in a state of indistinguishable and indistinguishable, dwelling in the central channel.
+What does the mind feel like after the troubles are over? 
 
-After the afflictions are cut off, and when the cultivation reaches the level of liberation, the wind becomes the light body of consciousness, and the consciousness becomes a wisdom consciousness that truly realizes emptiness, which is different from our current defiled consciousness.
+Usually, our soul, consciousness and wind-energy are indistinguishable, dwelling in the central channel.
 
-At this time, an eight-year-old child-sized light of wisdom consciousness formed in the central channel, with a body and five sense organs, very solemn.
+Once the mental afflictions are eliminated, and when the cultivation reaches the level of liberation, the wind-energy becomes the light body of consciousness, and this consciousness becomes a wisdom consciousness that truly realizes emptiness, which is different from our current defiled consciousness.
 
-The wisdom of the Bodhisattva above the eighth level, the light body of consciousness can enter and exit freely in the body.
+At this time, the light of wisdom consciousness forms a very dignified body the size of an eight-year-old child with five sense organs in the central channel.
 
-Before the Theravada Arhats pass away, the light body of wisdom consciousness cannot go in and out freely, and is always in the central channel.
+With the wisdom of a Bodhisattva above the eighth bhumi, the light body of consciousness can enter and exit the body freely.
 
-At this time, the central channel will not become larger, and the light body of wisdom consciousness will not become smaller. This is an incredible merit and virtue.
+Before Theravada Arhats pass away, the light body of wisdom consciousness cannot go in and out of the body freely, and it always stays in the central channel.
 
-At this time, the body of an arahant is like a hotel. Wisdom and wisdom consciousness live in the light body. When the body is old and can no longer be used, or the sentient beings to be saved have been saved, the arahant will pass away.
+At this time, the central channel will not become larger, and the light body of wisdom consciousness will not become smaller. This is an incredible merit.
 
-1. Once passed away, the light body of wisdom consciousness emerges from the central channel, freed from the bondage of birth, aging, sickness, and death. At this time, the body of wisdom consciousness light is eternal, and will not die or grow old. , not sick, out of, reincarnation, really liberated.
+The body of an Arhat is like an hotel. Wisdom consciousness lives in the light body. When the body is old and can no longer be used, or the sentient beings to be saved have been saved, the Arhat will pass away.
 
-Regarding the process of liberation, the sutra method only talks about cutting off afflictions, not how the light body of wisdom consciousness is formed.
+Once passed away, the light body of wisdom consciousness emerges from the central channel, freed from the bondage of birth, aging, sickness, and death. At this time, the blight body of wisdom consciousness is eternal, and it will never die, grow old, get sick, freed from the round of rebirth, and truly liberated.
+
+Regarding the process of liberation, the sutras only talk about cutting off afflictions, not how the light body of wisdom consciousness is formed.
 
 7
 
-After the physical body of an arahant has passed away, if you want to further cultivate and become a Buddha, it will take a long, long time, and it will take a longer time for ordinary people than us.
+After the physical body of an Arhat has passed away, if they want to further cultivate and become a Buddha, it will take a long, long time, even longer than for ordinary humans like us.
 
-Because an arahant has no pain, only happiness, but also because there is no disobedience, the blessings, retribution, and bodhicitta required for becoming a Buddha are difficult to generate, so it takes a longer time.
+This is because an Arhat has no suffering, only happiness, but also precisely because there are no adverse conditions, the merit and bodhicitta required for becoming a Buddha are difficult to generate, so it takes a longer time.
 
-Cultivating the way of the zhongshi can liberate from reincarnation, so the way of the zhongshi is also called the way of liberation.
+Traing in the path of the middle scope can liberate us from rebirth, so the way of the middle scope is also called the path of liberation.
 
-So, what exactly is the practice of zhongshido? That is, the Dharma Door of the Four Noble Truths of Suffering, Cause, Path, and Extinction.
+So, what exactly is the practice of the path of the middle scope? 
+
+It is simply the Dharma Door of the Four Noble Truths of Suffering, Cause of Suffering, Cessation of Suufering, and the Eightfold Path.
 
 8
 
-The first section, The Truth of Suffering, has finished practicing the path of the mortals, and after entering the path of the zhongshi, the first thing to do is to cultivate out of renunciation.
+Section 1 - The Truth of Suffering
 
-Because of the fear of the suffering of the six realms, to renounce the mind of the six realms of samsara is renunciation.
+After having practiced the path of the Initial Level, and having entered the path of the Middle Level, the first thing to do is to cultivate the mind of renunciation.
 
-If you are still addicted to the splendor and wealth of the world, you will not have the idea of ​​renunciation.
+Because of the dread of the suffering of the six realms, to renounce the six realms of samsara is renunciation.
 
-Only by realizing that the enjoyment of human beings and heaven is impermanent, and on the basis of the concept of impermanence, we will look down on the happiness of human beings and heaven, and understand the true colors of glory and wealth, and then we will obtain renunciation.
+If you are still addicted to the splendor and wealth of the world, you will not have the mind of ​​renunciation.
 
-Once you have attained renunciation, you will enter the Hinayana, the way of sustenance.
+Only by realizing that the enjoyment of human beings and heavenly gods is impermanent, and on the basis of the concept of impermanence that arises, the happiness of human beings and heaven is illusory, and the true colors of glory and wealth will be understood, and then one will obtain renunciation.
+
+After attaining renunciation, one enters the path of accumulation of Theravada.
 
 When we were studying the lower realms, we already had the desire to renounce the suffering of the three evil realms.
 
 However, the mind of renunciation of the six realms and samsara has not yet arisen. To obtain this kind of renunciation, one needs to understand the six realms of suffering, which requires a lot of thinking about the truth of suffering.
 
-1. Knowing that the greatest suffering among the six realms of suffering is the suffering of the three lower realms. No one wants to fall into the three lower realms.
+1. Knowing Suffering
 
-, however, what we need now is a mind that is free from the six realms of samsara.
+Knowing that the greatest suffering among the six realms of suffering is the suffering of the three lower realms there is no one who wants to fall into the three lower realms.
 
-Therefore, it is necessary to recognize the suffering of the human, asura, and heaven among the six realms.
+However, what we need now is a mind that wants to be free of all six realms of samsara.
 
-The sufferings of these three realms can be divided into five parts: the five sufferings, the eight sufferings, the three sufferings, the sufferings of the Asura way, and the sufferings of the heavenly way.
+Therefore, it is also necessary to recognize the suffering of the humans, asuras, and heavenly gods among the six realms.
 
-(1) The Five Sufferings The five sufferings are the five kinds of suffering, including the suffering of change and impermanence, the suffering of constant suffering, the suffering of samsara, the suffering of karma that cannot be changed, the suffering of afflictions that cannot be resolved, the suffering of being without support at critical moments.
+The sufferings of these three "higher" realms can be divided into five parts: the five sufferings, the eight sufferings, the three sufferings, the sufferings of the Asuras, and the sufferings of the gods.
+
+(1) The Five Sufferings 
+
+The five sufferings are the five categories of suffering, including the suffering of change and impermanence, constant suffering, the suffering of samsara, the suffering of karma that cannot be changed, the suffering of afflictions that cannot be resolved, the suffering of being without support at critical moments.
+
+##### 1. Suffering of Change
 
 Impermanence, suffering, and impermanence mean that all things in the world are not eternal, they are impermanent, and they are always changing.
+
 Glory, wealth and honor are impermanent, family status is impermanent, and personal connections are still impermanent.
 
 Everything is impermanent and cannot last forever.
@@ -472,7 +511,9 @@ There are six types of fickle suffering:
 
 10
 
-(1) Relatives and enemies are changeable and bitter. On the one hand, they are still friends today, but a few words are heavy, and they may become enemies tomorrow.
+(1) Relatives and enemies are changeable and bitter. 
+
+On the one hand, they are still friends today, but a few words are heavy, and they may become enemies tomorrow.
 
 On the other hand, someone who has always thought that he is an enemy may one day help him, and that kind of feeling is also quite uncomfortable.
 
@@ -484,11 +525,13 @@ To become a person in a normal relationship, or even to become an adversary or a
 
 In addition, karma is incredible. Due to the relationship of karma, relatives and friends in this life may also become enemies in the next life;
 
-In this life, you love your parents as much as you would, but in the next life you may become enemies, or grievances and creditors.
+In this life, you love your parents as much as you can, but in the next life you may become enemies, or grievances and creditors.
 
-In the past, there was a wealthy family in India, and both the husband and the wife died. A few years later, Shariputra, the most wise among the Buddha's disciples, passed by his house and saw their sons eating fish with their children in their arms. , A dog came to snatch the bones of the fish, and was beaten away with a whip by him.
+In the past, there was a wealthy family in India, and both the husband and the wife died. A few years later, Shariputra, the most wise among the Buddha's disciples, passed by his house and saw their sons eating fish with their children in their arms. A dog came to snatch the bones of the fish, and was beaten away with a whip by them.
 
-Shariputra had supernatural powers and saw the karma of the scene in front of him: just now, the fish that was eaten was the male owner of this family, because he often ate the fish in the pool behind the house, and he was born into a fish after death. This time he was caught and eaten by his own son; 11
+Shariputra had supernatural powers and saw the karma of the scene in front of him: just now, the fish that was eaten was the male owner of this family, because he often ate the fish in the pool behind the house, and he was born into a fish after death. This time he was caught and eaten by his own son; 
+
+11
 
 The dog is the hostess. Because she was born and loved her family before, she became a domestic dog. Just now, she was whipped by her own son for grabbing fish to eat;
 
@@ -497,12 +540,14 @@ The child in their son's arms was an enemy of fornication with his son's wife. A
 When Shariputra saw these circumstances, he said a verse:
 
 Eating the father and whipping the mother,
- holding the enemy in the arms, 
- 
- the wife swallowing the husband's bones, 
- reincarnation is ridiculous!
 
-When we think about this situation, we also feel that reincarnation is really ridiculous, and painful.
+holding the enemy in the arms, 
+ 
+the wife swallowing the husband's bones, 
+
+rebirth is ridiculous!
+
+When we think about this situation, we also feel that rebirth is really ridiculous, and painful.
 
 This is the fickleness of relatives and hatreds, nothing, no relationship is eternal.
 
@@ -512,7 +557,7 @@ Status is also fickle.
 
 The same is true of humanity. A person's life, even when he is a child, is a very honorable person. Because of the impermanence of the relationship, he will become a person with a low status. This situation is often seen.
 
-In addition, in the reincarnation, the status is also constantly changing.
+In addition, in the rebirth, the status is also constantly changing.
 
 12
 
@@ -522,7 +567,7 @@ The world respects the lofty emperor Shitian, and it is inevitable that karma wi
 
 What is the concept of the runner king in the world? There are four kinds of wheel-turning kings. The one who rules four continents is the golden wheel king, the one who rules three continents is the silver wheel king, the one who rules two continents is the bronze wheel king, and the one who rules one continent is the iron wheel king.
 
-The world we live in is called Nanzhanbuzhou, and there are also three other worlds: Dongshengshenzhou, Xiniuhezhou, and Beijuluzhou. These are the four larger worlds in Buddhist scriptures, where human beings and Daoists live. There are two small continents around the world, there are a total of eight small continents, which are also inhabited by people and Tao.
+The world we live in is called Jambudvipa, and there are also three other worlds: Dongshengshenzhou, Xiniuhezhou, and Beijuluzhou. These are the four larger worlds in Buddhist scriptures, where human beings and Daoists live. There are two small continents around the world, there are a total of eight small continents, which are also inhabited by people and Tao.
 
 There are also many planets where inhuman beings live, that is, the worlds where Yakshas and Asuras live. Together, these are one world ruled by the Golden Wheel King.
 
@@ -530,7 +575,7 @@ That is to say, if the blessings are exhausted, even the wheel-turning king who 
 
 The most noble and respected by the world, Di Shitian will also become an ordinary person.
 
-These world gods are like this, and we ordinary people are even less likely to have exceptions.
+These worldly gods are like this, and we ordinary people are even less likely to have exceptions.
 
 13
 
@@ -552,7 +597,9 @@ For example, people in the heavenly world will enjoy it very much when they are 
 
 This is, suffering and happiness.
 
-(5) Youth is fickle and bitter 14
+(5) Youth is fickle and bitter 
+
+14
 
 In the age of youth, everyone is young, beautiful, and strong, but such time is short, which is also a pain.
 
@@ -562,7 +609,9 @@ At the age of 80, the aging of the body is already obvious, and the old eyes are
 
 When you are about to die, looking back at this life is like having a dream, and it will pass in an instant. This is the fickle suffering of youth.
 
-(6) Glory, wealth, and unreliable misery The misery brought about by wealth usually brings disaster.
+(6) Glory, wealth, and unreliable misery 
+
+The misery brought about by wealth usually brings disaster.
 
 There is a metaphor, there are two women, one is called the lucky girl, the other is called the unlucky woman. Wherever the lucky girl goes, the unlucky woman also goes, like the shadow of the lucky girl.
 
@@ -580,9 +629,9 @@ Therefore, wealth without blessings is a disaster, and there is no blessing. If 
 
 In the past, there was a region in India where the throne was vacant. No matter who it was, as long as he sat on the throne of the king, he could only live for one day. Therefore, no one was willing to sit on that throne.
 
-But there is always someone to run the country, so everyone has to take turns to sit on the throne, and whoever is on the head will be unlucky.
+But there always to be someone to run the country, so everyone had to take turns to sit on the throne, and whoever is on the throne will be unlucky.
 
-Although he got the throne and glory and wealth, but only one day, it was very painful.
+Although he got the throne and glory and wealth, but only for one day, it was very painful.
 
 So, if you get great wealth, glory and wealth, then what are you paying for? What you pay is good fortune, and all of a sudden, a lot of good fortune is eliminated.
 
@@ -592,9 +641,12 @@ Let go of your heart, and you will really have no worries.
 
 Everything in the world is changing in an instant, but we can't see it, come out, and don't understand the truth.
 
-For example, the high-rise buildings in front of us are changing and decaying in an instant, but we don’t understand it now. We have to wait until our wisdom grows before we realize the impermanence and principles, and we will not be attached to everything. .
+For example, the high-rise buildings in front of us are changing and decaying in an instant, but we don’t understand it now. We have to wait until our wisdom grows before we realize the impermanence and principles, and we will not be attached to anything.
 
-Suffering from samsara, 16
+Suffering from samsara
+
+16
+
 The suffering of sentient beings from beginningless time is endless. We do not know how many times we have been in hell, how many times we have fallen into the realm of hungry ghosts, suffering;
 
 How many times have I gone to the realm of heaven, experienced short-lived happiness, and then fell down after the blessings were exhausted.
@@ -605,16 +657,16 @@ It is still difficult to imagine the suffering of samsara. When we reach a certa
 
 So, we have been in endless misery in the six realms, most of the time in hell, with no chance of liberation.
 
-Now, now, I have the opportunity to learn Buddhism, and I must cherish this opportunity very much.
+Now, I have the opportunity to learn Buddhism, and I must cherish this opportunity very much.
 
-If, if you don’t cherish it, you will not be able to get free this time, and you will enter the cycle of reincarnation again. If you want to encounter the Buddhadharma again, you may have to suffer countless times in pain again, after a few kalpas.
+If you don’t cherish it, you will not be able to get free this time, and you will enter the cycle of rebirth again. If you want to encounter the Buddhadharma again, you may have to suffer countless times in pain again, after a few kalpas.
 
 The suffering of unchangeable karma is the suffering of being unable to escape and change karma.
-When karmic obstacles are not eliminated, karma cannot be changed. Even if one has attained Arahantship, one still has to receive karmic retribution.
+When karmic obstacles are not eliminated, karma cannot be changed. Even if one has attained Arhatship, one still has to receive karmic retribution.
 
 There are four fruit positions in the Arhat path, the first fruit is called Su Tuo Huan, and there are also karmic retributions at times.
 
-There was a woman named Wusangma, "Wusang", which means "blue sky" in Chinese. She attained the fruit of Sudohuan.
+There was a woman named Asangama, "Asanga", which means "blue sky" in Chinese. She attained the fruit of Sudohuan.
 
 17
 
@@ -632,15 +684,15 @@ For example, cancer, there is a way before you get cancer, but you can eliminate
 
 After you have cancer, the retribution has already come out, and it is very difficult to change or eliminate it.
 
-There is a banyan tree in India. The roots of the underground tree can grow to a radius of five hundred paces, and the branches on the ground can also grow to five hundred paces.
+There is a banyan tree in India. The roots of the underground tree can grow to a radius of five hundred paces, and the branches near the ground can also grow to five hundred paces.
 
-Such a big tree, when it is still a small seed, is very easy to dig up.
+Such a big tree is very easy to dig up when it is still a small seed, .
 
 If you wait for it to grow into a big tree, and then want to pull it out, you need to dig out all the roots in a radius of 500 steps.
 
-Therefore, in order to eliminate karma, it must be eliminated before the karma comes out, and when it is a seed.
+Therefore, in order to eliminate karma, it must be eliminated before the karma manifests, and when it is a seed.
 
-After the retribution comes out, it will be very difficult to eliminate karma.
+After the retribution manifests, it will be very difficult to eliminate karma.
 
 18
 
@@ -652,11 +704,15 @@ When sentient beings are dying, at this most critical moment, they are helpless.
 
 The Great Game Book says:
 
+---
+
 All living beings come alone when they are born, and go alone when they die
 
-Suffering its pain alone, never in the world of reincarnation to rely on.
+Suffering its pain alone, never in the world of rebirth to rely on.
 
 When we came into the world, we came alone, and when we left, we also left alone.
+
+---
 
 No one to rely on, no one to help, oneself, one's own retribution can only be borne by oneself, no one can share it, and can only suffer alone.
 
@@ -664,12 +720,18 @@ These are the five sufferings.
 
 19
 
-(2) The Eight Sufferings The Eight Sufferings are the suffering of birth, old age, illness, death, the suffering of separation from love, the suffering of resentment and hatred, the suffering of not being able to seek, and the suffering of the five aggregates.
+(2) The Eight Sufferings 
 
-The pain of birth A person is born with great pain, and birth is the root of all pain.
-In the last three weeks of the fetus, the fetus already has a sense of smell, can smell a very bad smell, and will feel that the mother's fetus is dirty, and always wants to leave. When you are born, you will feel very, very painful, so the fetus will cry loudly as soon as the baby is born.
+The Eight Sufferings are the suffering of birth, old age, illness, death, the suffering of separation from love, the suffering of resentment and hatred, the suffering of not being able to seek, and the suffering of the five aggregates.
+
+The pain of birth 
+
+A person is born with great pain, and birth is the root of all pain.
+In the last three weeks of the fetus, the fetus already has a sense of smell, can smell a very bad smell, and will feel that the mother's womb is dirty, and always wants to leave. When you are born, you will feel very, very painful, so the baby will cry loudly as soon as it is born.
 
 Nagarjuna Bodhisattva said in the Book of Relatives and Friends:
+
+---
 
 Life is not good, and it is the source of many troubles.
 
@@ -700,7 +762,9 @@ If you get old all of a sudden, no one can stand it, just like a young man, if y
 
 Therefore, we must soberly realize that getting old is also a kind of suffering.
 
-The pain of sickness The pain of sickness is felt by everyone, big or small, saying no, all the pain.
+The pain of sickness 
+
+The pain of sickness is felt by everyone, big or small, saying no, all the pain.
 It's not a big problem when you get a minor illness, but when you get a serious illness, you will have a lot of pain, not only physical pain, but also in your heart, fear of death. This kind of psychological torture is very painful.
 
 There have been examples of this.
@@ -709,7 +773,7 @@ Two people went to the hospital to check their health. One of them had stomach c
 
 Hearing what the doctor said, the stomach of the person who didn't have stomach cancer really started to hurt, and then he was hospitalized for more than 20 days, waiting for the experts in Beijing to perform the operation.
 
-During this period, my health got worse and worse, and finally I couldn't get up, and I had to be supported by relatives when I went to the toilet.
+During this period, his health got worse and worse, and finally he couldn't get up, and he had to be supported by relatives when he went to the toilet.
 
 When the expert arrived, the expert saw that his symptoms did not look like gastric cancer, so he checked again and said that he did not have gastric cancer.
 
@@ -721,26 +785,28 @@ In addition, the man-made industry is serious now, and all kinds of strange and 
 
 According to the records of Tibetan medicine, there are 424 cases of diseases in people, but now there are thousands of diseases.
 
-There are many diseases that I have never seen or even heard of in Tibetan areas. I have never seen anyone with dementia in Tibetan areas.
+There are many diseases that I have never seen or even heard of in Tibet. I have never seen anyone with dementia in Tibet.
 
-Yes, once, when speaking of scriptures in Tibetan areas, everyone was surprised and said, "There is still this disease in the world?" It was very strange. Many people have never heard of vegetative people.
+Yes, once, when speaking of scriptures in Tibet, everyone was surprised and said, "There is still this disease in the world?" It was very strange. Many people have never heard of vegetative people.
 
 Now there are many strange diseases, and these diseases will cause suffering to people.
 
 twenty two
 
-The Pain of Death When dying, the four elements of the body are separated, and one's own body and soul are also separated, which is a very big pain.
+The Pain of Death When dying 
+
+The four elements of the body are separated, and one's own body and soul are also separated, which is a very big pain.
 The first is the separation of the four major elements. The earth, water, fire, and wind are slowly pulled away. This process will be very painful for one's own body.
 
 And because of the relationship between karma and power, people will have various karmic feelings and feelings before death.
 
-For example, if you are engaged in killing karma and often kill living beings before your death, you will feel that all kinds of animals you killed in your lifetime will trample your body, or you will be squeezed or smashed by huge mountains and boulders in the shape of the killed animals. There are many Such a horrible feeling.
+For example, if you are engaged in killing karma and often kill living beings before your death, you will feel that all kinds of animals you killed in your lifetime will trample your body, or you will be squeezed or smashed by huge mountains and boulders in the shape of the killed animals. There are many such horrible feelings.
 
-At this time, the most pitiful people are those who do not understand the process of death, the karmic obstacles are relatively heavy, and they did not study the Buddhadharma, or did not have religious beliefs or beliefs during their lifetime, and they will feel very painful at this time.
+The most pitiful people are those who do not understand the process of death, the karmic obstacles are relatively heavy, and they did not study the Buddhadharma, or did not have religious beliefs or beliefs during their lifetime, and they will feel very painful at this time.
 
-Because I don't understand the non-existence, the constant, and the choice, my heart will always be in pain because I don't give up on money, relatives and friends;
+Because they don't understand  non-existence, the constant, and the choice, my heart will always be in pain because I don't give up on money, relatives and friends;
 
-And because there is no belief, I feel helpless, full of fear of the unknown world, and unable to get rid of death, very desperate.
+And because there is no belief, I feel helpless, full of fear of the unknown, and unable to get rid of death, very desperate.
 
 Parents, wives and children, who thought they would never be separated in their entire lives, would suffer from love and separation when they faced parting or death.
 We hope that our life is a life full of love, and we can be with those who love each other, but we don’t know that this life is full of the pain of separation and separation at any time.
@@ -751,7 +817,7 @@ Love each other with each other, the god of death prompts each other to leave, a
 
 Blind and loving together, it seems that life and death will not be separated, but in the end they will leave each other.
 
-Those who remain live in the world every day, suffering, and those who leave go to the other side and continue to suffer from reincarnation.
+Those who remain live in the world every day, suffering, and those who leave go to the other side and continue to suffer from rebirth.
 
 Because our love is small love, greed, not selfless, big love.
 
@@ -760,7 +826,7 @@ Little love is easy to lose, and it will be painful if you lose it, and the deep
 Great love is to love all beings in the six realms. There are countless sentient beings in the six realms. Therefore, great love will not be lost and will not suffer.
 
 Resentment, resentment, bitterness, things that you don't want to meet, people you don't want to meet, but often encounter, when you do, it's resentment, resentment, and bitterness.
-Karma is incredible, you have to bear it yourself when you create your own karma.
+Karma is incredible, you have to bear the consequences yourself when you create your own karma.
 
 Everyone, everyone does not want to have grievances and creditors, but because they have done bad karma and offended sentient beings, there are many grievances and creditors;
 
@@ -772,7 +838,7 @@ Ghosts will meet ghosts, even if they are afraid, they cannot escape;
 
 don't want to
 
-Sin demons, but because of killing, some sentient beings who have killed have been reincarnated as demons.
+Sin demons, but because of killing, some sentient beings who have killed have been reborn as demons.
 
 This will cause resentment and bitterness.
 
@@ -780,14 +846,16 @@ Usually when we see an enemy or a deadly enemy, our hearts keep beating.
 
 This kind of suffering does not want to be encountered by oneself, but it happens naturally.
 
-Therefore, one should earnestly study the Dharma at ordinary times, persist in the practice, do more life-releasing and almsgiving, and then dedicate the merits of the practice.
+Therefore, one should earnestly study the Dharma at all times, persist in the practice, do more life-releasing and almsgiving, and then dedicate the merits of the practice.
 
 When the karma between you and all sentient beings is eliminated, this kind of suffering is also eliminated.
 
 There are too many demands from our human beings. We cannot ask for money, we cannot ask for work, we cannot ask for health.
 Asking for something but always getting it, not getting it, these are all pains.
 
-The Suffering of the Five Aggregates The five aggregates are form, feeling, perception, action, and consciousness. To put it simply, "color" is our body;
+The Suffering of the Five Aggregates
+
+The five aggregates are form, feeling, perception, action, and consciousness. To put it simply, "color" is our body;
 "Suffering" is the feeling of pain and pleasure;
 
 "Think" is thought;
@@ -824,7 +892,7 @@ Consciousness is the mind, also known as mind. The external environment is imper
 
 The heart does not want to receive painful things, but it can always feel it, so it is always painful.
 
-Buddhas have no physical body, and the bodies of bodhisattvas below the seventh level are similar. The light body of consciousness, the bodhisattvas of the eighth level and above, and the arahants of the four fruitions have obtained the true light body of wisdom. The light body of wisdom has only happiness and no pain.
+Buddhas have no physical body, and the bodies of bodhisattvas below the seventh level are similar. The light body of consciousness, the bodhisattvas of the eighth level and above, and the Arhats of the four fruitions have obtained the true light body of wisdom. The light body of wisdom has only happiness and no pain.
 
 , and the physical body of our five aggregates will have all kinds of pain, that is, there will be no pain for the time being. As long as the five aggregates are still there, all kinds of suffering will follow.
 
@@ -858,7 +926,7 @@ If you turn on the air conditioner too much, you will get sick. It's all trouble
 
 There are also countless pains in the day, the pain of having to go to work during the day, the pain of going to work;
 
-At night there are fatigue, insomnia, nightmares, and pain.
+At night there is fatigue, insomnia, nightmares, and pain.
 
 In addition to these obvious pains, there are all kinds of troubles.
 
@@ -866,13 +934,15 @@ Leaders have the troubles of leaders, bosses have the troubles of bosses, ordina
 
 28
 
-The Bodhisattva Wusang said that human beings have one hundred and ten kinds of suffering, but in fact it is far from them.
+The Bodhisattva Asanga said that human beings have one hundred and ten kinds of suffering, but in fact it is far from them.
 
 After understanding the suffering of human beings, we should think about it again. We still need to reincarnate in the next life. If we still want to become human, we must continue to suffer.
 
 When we really want to understand, after we no longer want to be greedy for the wealth and honor of the world, and no longer want to reincarnate as a human being, we will have the thought of renunciation from the suffering of human beings and the Tao. This is also a kind of renunciation, but it is not the middle Shidou's renunciation.
 
-(3) Three Sufferings The three sufferings are suffering, becoming suffering, and doing suffering.
+(3) Three Sufferings 
+
+The three sufferings are suffering, becoming suffering, and doing suffering.
 
 Suffering is the suffering of feeling. It can be said that it is suffering within suffering, sensitive suffering. The suffering we all think is suffering. Being ill is suffering, being beaten and scolded is also suffering, and suffering in the three evil realms is suffering.
 
@@ -911,9 +981,9 @@ Only enlightened saints, or people who have realized emptiness, can see it.
 
 Most people need to use a magnifying glass to see tiny dust.
 
-The second Sega wood-like living Buddha, Master Jigme Wangpo, is the abbot of Labrang Monastery.
+The second Sega wood-like living Buddha, Master Jigme Wangpo, was the abbot of Labrang Monastery.
 
-In the past, the fastest way to walk was on horseback. It took seven days to travel from Xining to the Labrang Monastery in Gansu.
+In the past, the fastest way to travel was on horseback. It took seven days to travel from Xining to the Labrang Monastery in Gansu.
 
 One time when I went to Labrang Monastery, the master was riding a horse, and he had been observing the sufferings along the way. When he arrived at the Labrang, he said that it took seven days to observe and understand the sufferings, but it was not very complete.
 
@@ -923,7 +993,7 @@ These are the three sufferings, and these are the sufferings common to the six r
 
 (4) The bitter asuras of the asura path are also called non-heaven and non-human, which means that compared to the gods, these living beings are like gods but not gods.
 
-Asura lived in Mount Sumeru, below the sea level, there were four cities called Guguang, Yueman, Miao, Ju and Momo, and there was a certain distance between them and the heavens.
+Asuras live on Mount Sumeru, below the sea level, there were four cities called Guguang, Yueman, Miao, Ju and Momo, and there was a certain distance between them and the heavens.
 
 31
 
@@ -947,11 +1017,11 @@ In addition, Asura can see with his supernatural powers that he is very jealous 
 
 32
 
-Then they will fight the Four Heavenly Kings on the fourth floor of Mount Sumeru. At this time, they will generally not win.
+Then they will fight the Four Heavenly Kings on the fourth level of Mount Sumeru. At this time, they will generally not win.
 
 Occasionally won once, will hit thirty-three, days go.
 
-In the thirty-three days, the great king has Di Shitian, and the emperor has thirty-two sons. These thirty-two sons are also kings and rule over the other thirty-two heavenly kingdoms, so they are called thirty. three days.
+In the thirty-three days, the great king has Di Shitian, and the emperor has thirty-two sons. These thirty-two sons are also kings and rule over the other thirty-two heavenly kingdoms, so they are called thirty three gods.
 
 Asuras, fighting with gods and humans, often lose, and if you fight a hundred times, you may have a chance to win a little bit.
 
@@ -987,7 +1057,7 @@ Ye Motian, a day is two hundred years in the world;
 
 Tusita, a day is four hundred years in the world;
 
-, Hua Letian, one day is eight hundred years in the world;
+Hua Letian, one day is eight hundred years in the world;
 
 He transforms into heaven, one day is 1,600 years in the human world.
 
@@ -1172,7 +1242,7 @@ So, what is this source? It is karma and afflictions. Sentient beings create kar
 
 In the lower realms, we have learned that falling into the lower realms is the cause, the karma.
 
-Since karma also arises because of afflictions, the cause of our reincarnation is karma and afflictions, but compared with karma, afflictions are more harmful.
+Since karma also arises because of afflictions, the cause of our rebirth is karma and afflictions, but compared with karma, afflictions are more harmful.
 
 Because karma is also driven by afflictions, it is afflictions that make me, we keep creating karma.
 
@@ -1192,11 +1262,11 @@ If there is a lover, it is even more for the sake of life.
 
 That is to say, if you cut off the "being" and "love" of the twelve causal conditions, you won't be able to create new karma, because you have cut off all of them, and you will have troubles.
 
-If there is "love", it will still suffer from reincarnation.
+If there is "love", it will still suffer from rebirth.
 
 Among the twelve karma, "being" is karma, and "love" is affliction.
 
-Therefore, afflictions are the root of reincarnation and are extremely harmful.
+Therefore, afflictions are the root of rebirth and are extremely harmful.
 
 (3) Types of afflictions Once you know the dangers of afflictions, you must cut off afflictions. First, you must recognize afflictions.
 
@@ -1207,7 +1277,7 @@ Six Root Defilements There are six root afflictions: greed, hatred, delusion, ar
 
 When there is greed, the mind will definitely be restless and uncomfortable.
 
-In the "Mahayana Abhidhamma Collection" written by the Bodhisattva Wusang, it is said: "greed, that is, the greed of the world, which is said to be inseparable from the object.", in the six root afflictions, "greed" is listed First, there is a reason.
+In the "Mahayana Abhidhamma Collection" written by the Bodhisattva Asanga, it is said: "greed, that is, the greed of the world, which is said to be inseparable from the object.", in the six root afflictions, "greed" is listed First, there is a reason.
 
 , The six root afflictions can be summarized into the three poisons of greed, hatred, and delusion, and the three poisons can be summarized into greed. Therefore, greed is the initial and root of all afflictions.
 
@@ -1309,7 +1379,7 @@ In addition, frequent prostrations and obeisance to Buddhas and Bodhisattvas can
 
 A person is often arrogant, and the retribution in the later life will be very bad, and he may become a slave, a servant, and someone who serves others.
 
-Every slave and maid is a slave, or a servant or a servant, because the previous karma has been created in the previous life, and it falls into the evil realm and is reincarnated.
+Every slave and maid is a slave, or a servant or a servant, because the previous karma has been created in the previous life, and it falls into the evil realm and is reborn.
 
 A servant who looks miserable now must be the most arrogant person in a certain life.
 
@@ -1467,7 +1537,7 @@ This kind of view has fallen into the ordinary side, and it is called common.
 
 Another kind of unrighteous view is: if everything is impermanent, then everything must not exist.
 
-Those who hold a judgmental view are prone to fall into stubborn emptiness, and if it is more serious, they will develop to the point of not recognizing past and future lives, reincarnation and cause and effect, thinking that since all things and dharmas are empty, there is nothing.
+Those who hold a judgmental view are prone to fall into stubborn emptiness, and if it is more serious, they will develop to the point of not recognizing past and future lives, rebirth and cause and effect, thinking that since all things and dharmas are empty, there is nothing.
 
 Therefore, the most harmful thing among the unrighteous views is the broken view.
 
@@ -1770,15 +1840,15 @@ People who are worthy of shame and who don't care about their face will be looke
 
 70
 
-(13) Unbelief or unbelief refers to unbelief caused by an impure mind and inability to correctly understand the Three Jewels, Cause and Effect, and the Six Paths of Reincarnation.
+(13) Unbelief or unbelief refers to unbelief caused by an impure mind and inability to correctly understand the Three Jewels, Cause and Effect, and the Six Paths of rebirth.
 
 Unbelief is different from "doubt" in the six root afflictions. Doubt refers to doubts about cause and effect and whether samsara exists or not, and is uncertain.
 
 The essence of unbelief is ignorance, ignorance and ignorance caused by weak roots of goodness, karma, and deep obstacles.
 
-Only believe in the visible cause and effect of the world, not in the invisible cause and effect of good and evil, nor in the Three Jewels, reincarnation.
+Only believe in the visible cause and effect of the world, not in the invisible cause and effect of good and evil, nor in the Three Jewels, rebirth.
 
-This kind of unbelief is not acquired by studying the scriptures, but is caused by misunderstandings about causality, reincarnation, etc.
+This kind of unbelief is not acquired by studying the scriptures, but is caused by misunderstandings about causality, rebirth, etc.
 
 Not believing in cause and effect is very scary, because not believing in cause and effect, it means no self-discipline.
 
@@ -1960,7 +2030,7 @@ The scope of distraction is too broad, and the thoughts are constantly flying.
 
 Nor do they think of dealing with them, because many people don’t even know about it, and distraction is also a kind of trouble.
 
-When abjection occurs, think more about the three evil realms and the six realms of reincarnation. The suffering will be greatly reduced, and the mind will slowly return to meditation.
+When abjection occurs, think more about the three evil realms and the six realms of rebirth. The suffering will be greatly reduced, and the mind will slowly return to meditation.
 
 (20) Non-right knowledge
 
@@ -2177,7 +2247,7 @@ Second, karmic afflictions will lead to bad karma, renunciation of the following
 
 Concentrate, evil karma will fall into the evil realm, and thus experience a lot of suffering;
 
-Good karma will feel, the fruit of human beings and heaven, and get many happy feelings.
+Good karma will feel, the fruit of men and gods, and get many happy feelings.
 
 The good karma caused by renunciation as the origin, the result is liberation from samsara, return;
 
@@ -2349,7 +2419,7 @@ Because the first seven days are very easy and easy to overtake, and it is the e
 
 In the first seven days, many bardo bodies will be reborn, and it will be very difficult to reincarnate in the good way after the rebirth.
 
-Before reincarnation, transcendence is relatively easy to reach the good path. It can be transcended by reciting sutras for the bardo body, or reciting the six-character mantra, the mantra of the immovable Tathagata, the holy name of Amitabha, etc. Transcendence requires three kinds of relationships to be useful. .
+Before rebirth, transcendence is relatively easy to reach the good path. It can be transcended by reciting sutras for the bardo body, or reciting the six-character mantra, the mantra of the immovable Tathagata, the holy name of Amitabha, etc. Transcendence requires three kinds of relationships to be useful. .
 
 The first is to have a blood relationship with the deceased under seven generations. This kind of relationship can help the deceased greatly.
 
@@ -2367,11 +2437,11 @@ But if you have a big heart, you can help a little bit, but a normal heart can't
 
 95
 
-After death, if the first seven days cannot be reincarnated, the second, seven days may also find the mother to be reincarnated.
+After death, if the first seven days cannot be reborn, the second, seven days may also find the mother to be reborn.
 
 From the third to the seventh seven, heaven, the bardo body will definitely find the mother body to reincarnate.
 
-Forty-nine days later, although I don't know where to go to the six realms, I can be sure that this bardo body has been reincarnated and is no longer in the bardo state.
+Forty-nine days later, although I don't know where to go to the six realms, I can be sure that this bardo body has been reborn and is no longer in the bardo state.
 
 (4) If you were a practitioner during your rebirth, you can see your own deity in the bardo body, and then follow the deity to be reborn in the Pure Land.
 
@@ -2403,7 +2473,7 @@ There are also practitioners who are directly reborn in the Pure Land;
 
 There are also people who committed great evils and went straight to hell during their lifetime.
 
-There are also those who have been reincarnated in the Formless Realm, and these do not need to go through, the bardo body.
+There are also those who have been reborn in the Formless Realm, and these do not need to go through, the bardo body.
 
 5. Living beings have four births:
 
@@ -2633,7 +2703,7 @@ In the last three or seven days of the fetus, the fetus can feel that the mother
 
 But at this time, the troubles were not big. After birth, I gradually came into contact with the outside world, and I had various feelings, and all kinds of different troubles followed.
 
-Another kind of affliction is called innate affliction. The innate affliction is me. The afflictions that we have brought in the reincarnation of life after life, the afflictions of innate affliction are not, so easy to break.
+Another kind of affliction is called innate affliction. The innate affliction is me. The afflictions that we have brought in the rebirth of life after life, the afflictions of innate affliction are not, so easy to break.
 
 After the Hinayana practice reaches the position of seeing the Dharma, and after entering the meditation of emptiness, it will cut off all the afflictions of separation, and leave the meditation after a day or two.
 
@@ -2649,9 +2719,9 @@ First, the great innate afflictions must be cut off, the biggest afflictions mus
 
 The smallest afflictions are the most subtle afflictions, the seeds of afflictions. Generally, one cannot recognize them. If one does not think that it is a kind of affliction, when the seeds and seeds are cut off, all afflictions will be cut off.
 
-Once all the afflictions are cut off, they will be liberated and become an arahant, and then they will enter the path of non-learning.
+Once all the afflictions are cut off, they will be liberated and become an Arhat, and then they will enter the path of non-learning.
 
-(5) Unlearned Theravada Arahants who are liberated are called the Unlearned Dao, because from the perspective of eliminating afflictions and afflictions, it is no longer necessary to continue studying at this level.
+(5) Unlearned Theravada Arhats who are liberated are called the Unlearned Dao, because from the perspective of eliminating afflictions and afflictions, it is no longer necessary to continue studying at this level.
 
 But from the perspective of the Mahayana eradicating the barriers to knowledge, there is actually a way to learn, and one needs to learn it.
 
@@ -2717,15 +2787,15 @@ In the process of "taking", many afflictions arise, and because of afflictions t
 
 Because of "existence", the karma increases, and the karma is continuously created, and the karma and the obscurity further increase until death.
 
-After death, due to karmic reasons, reincarnation in the six realms is called "birth".
+After death, due to karmic reasons, rebirth in the six realms is called "birth".
 
 After "birth", it grows old again until death, which is "old age and death".
 
-The Twelve Dependent Origins talks about the reincarnation of the three worlds.
+The Twelve Dependent Origins talks about the rebirth of the three worlds.
 
-"Ignorance and formation" are the samsara of the previous world, "consciousness, name and form, six senses, contact, feeling, craving, grasping, existence, birth, old age and death" are the samsara of this life, and "birth, old age and death" are again, yes The reincarnation of the afterlife.
+"Ignorance and formation" are the samsara of the previous world, "consciousness, name and form, six senses, contact, feeling, craving, grasping, existence, birth, old age and death" are the samsara of this life, and "birth, old age and death" are again, yes The rebirth of the afterlife.
 
-"Xing" is the karma that leads to the reincarnation of the previous life, and "there" is the karma that leads to the reincarnation of the future life.
+"Xing" is the karma that leads to the rebirth of the previous life, and "there" is the karma that leads to the rebirth of the future life.
 
 The Twelve Dependent Origination is one of the whole process of a person coming into the world to be born to old age and death. The above method starts from ignorance and affliction.
 
@@ -2751,7 +2821,7 @@ Then, where does "consciousness" come from, because "actions" create goodness, a
 
 Where does the "action" come from? It's the ignorance and afflictions that create the karma, and this karma is the "action".
 
-Therefore, the root of the six realms of samsara is the afflictions of ignorance. Once the afflictions of ignorance are cut off, you will never be reincarnated in samsara again, and you will be liberated.
+Therefore, the root of the six realms of samsara is the afflictions of ignorance. Once the afflictions of ignorance are cut off, you will never be reborn in samsara again, and you will be liberated.
 
 In this way, think about the twelve Dependent Origination according to the forward and reverse, and then you will understand the process of a person's circulation in samsara;
 
@@ -2769,9 +2839,9 @@ The seven sufferings are: consciousness, name and form, six sense organs, contac
 
 Now everyone understands why you need to be liberated, because the pain of samsara and rebirth is too much! Opportunities for liberation are very rare compared to suffering.
 
-In countless reincarnations, we only know that this opportunity in front of us will have a chance in future generations, and we cannot be sure.
+In countless rebirths, we only know that this opportunity in front of us will have a chance in future generations, and we cannot be sure.
 
-Therefore, we must cherish it. If we miss this opportunity and fail to be liberated, we will re-enter reincarnation, continue to be born, continue to suffer, and the hope of liberation is very slim.
+Therefore, we must cherish it. If we miss this opportunity and fail to be liberated, we will re-enter rebirth, continue to be born, continue to suffer, and the hope of liberation is very slim.
 
 3. In addition to meditating on the Four Noble Truths, the Twelve Condition, and Origination, there is another method for practicing morality, concentration and wisdom.
 
@@ -2945,7 +3015,7 @@ The best thing is to be able to sit on the knees, but it is not necessary to sit
 
 When the Buddha was alive, there was an Arhat named Niu Tuo. When he practiced meditation, he practiced by sitting in a cross-section, but he failed to achieve it. He practiced in the growth seat, lotus seat, etc., and posture, but he failed to achieve it.
 
-Later, Buddha Shakyamuni said to him, "You are reincarnated from an ox. You can only meditate in the ox posture. That's it." bit.
+Later, Buddha Shakyamuni said to him, "You are reborn from an ox. You can only meditate in the ox posture. That's it." bit.
 
 The common way to sit is to sit cross-legged. The hands are in Ding Yin, the left hand is down, the right hand is up, the tongue is on the upper jaw, the eyes are 80% closed, and the tip of the nose may not be seen.
 
@@ -3253,7 +3323,7 @@ That is to say, after passing away, letting go of the physical body and walking 
 
 135
 
-Arahants such as Sariputra and Muggallana are currently in Nirvana without remainder.
+Arhats such as Sariputra and Muggallana are currently in Nirvana without remainder.
 
 Specifically, after passing away, the soul is separated from the body, and the body and body are destroyed.
 
@@ -3281,19 +3351,19 @@ The liberation method of the Middle Path can liberate and liberate many sentient
 
 For example, after attaining the status of Arhat, and after attaining the light body of wisdom, one will often enter into concentration, enter into the concentration of cessation, the concentration of happiness, and be very happy in concentration.
 
-Therefore, an arahant, once entered into meditation, will stay in it for a long time, even for tens of thousands of kalpas.
+Therefore, an Arhat, once entered into meditation, will stay in it for a long time, even for tens of thousands of kalpas.
 
 At this time, if someone asks for help, the Arhat cannot hear it.
 
-When an arahant does not enter the time, with the power of his vows and the power of blessings, sentient beings will naturally receive some kind of help and some kind of blessing.
+When an Arhat does not enter the time, with the power of his vows and the power of blessings, sentient beings will naturally receive some kind of help and some kind of blessing.
 
 After the Buddha passed away, a king in India was very sad when he heard the news of the Buddha's passing away. The Buddha's eldest disciple, Venerable Kasyapa, came to see the king.
 
 Venerable Kasyapa rode an elephant to the palace. The king went to greet Venerable Kasyapa. He also rode an elephant. When he saw Venerable Kasyapa, he immediately jumped down from the elephant and bowed. Venerable Kasyapa used the God, Tong caught him at once, and said to him, "Fortunately, I didn't enter today, or you will be injured."
 
-In addition, an arahant has only broken the hindrance of afflictions, but has not broken the hindrance of knowledge.
+In addition, an Arhat has only broken the hindrance of afflictions, but has not broken the hindrance of knowledge.
 
-Therefore, the abilities and supernatural powers of an arahant are limited and cannot be converted to all sentient beings.
+Therefore, the abilities and supernatural powers of an Arhat are limited and cannot be converted to all sentient beings.
 
 There was an old man named Hua Jie, who wanted to become a monk when he was in his 80s. He went and looked for the relic, who looked at it with his supernatural powers and said, "You don't have the fate to become a monk.
 
@@ -3301,7 +3371,7 @@ There was an old man named Hua Jie, who wanted to become a monk when he was in h
 
 He thought, "I don't want me at home, and I don't want me in the monastery. My karma is really heavy, so I might as well die." He was about to commit suicide.
 
-At this time, the Buddha stopped him, and the Buddha said, "You became a monk. The fate was planted thousands of kalpas ago, and an arahant can't see it."
+At this time, the Buddha stopped him, and the Buddha said, "You became a monk. The fate was planted thousands of kalpas ago, and an Arhat can't see it."
 
 The Buddha continued: "A few thousand kalpas ago, you were a worm on a tree. You fell into the stream under the tree and went around the prayer wheel along the current. This is the reason why you became a monk."
 
@@ -3313,13 +3383,13 @@ Take him to a small island in the sea, the island is full of huge bones.
 
 The Buddha said: "You were a very big fish in your previous life, and this is the corpse of your previous life.
 
-After hearing this, he thought to himself, "I actually became such a big animal in my previous life. How many lives should I have killed? The karma is too heavy. No wonder Arahants can't see my destiny as a monk." "
+After hearing this, he thought to himself, "I actually became such a big animal in my previous life. How many lives should I have killed? The karma is too heavy. No wonder Arhats can't see my destiny as a monk." "
 
 A renunciation arises, and then there is liberation.
 
-An arahant, like the old man Huajie, cannot see or come out, because his ability is limited and he cannot see what happened in the past.
+An Arhat, like the old man Huajie, cannot see or come out, because his ability is limited and he cannot see what happened in the past.
 
-In addition, Arahants do not possess the Bodhi mind to save sentient beings, so they cannot save all sentient beings.
+In addition, Arhats do not possess the Bodhi mind to save sentient beings, so they cannot save all sentient beings.
 
 139
 
@@ -3357,7 +3427,7 @@ After attaining Buddhahood, the hindrances of knowledge are broken again;
 
 At the same time, when wisdom, blessings, and abilities are all consummated, the conditions for saving sentient beings are met.
 
-In addition, in terms of the fruition of the practice, compared with the Buddhahood of the Mahayana, the Arahantship of Theravada is not perfect.
+In addition, in terms of the fruition of the practice, compared with the Buddhahood of the Mahayana, the Arhatship of Theravada is not perfect.
 
 For the Arhats of Theravada, although the self-clinging has been cut off and the suffering is not so much, it is only broken, the root of karma has been removed, and no new karma will be created.
 
@@ -3437,7 +3507,7 @@ A person who has aroused bodhicitta is a bodhisattva, regardless of race, status
 
 (3) A bodhisattva who surpassed Theravada Arhats who just developed Bodhicitta, surpassed sound in the convenient method, and surpassed Arhats and Hans in saving sentient beings.
 
-Since the Bodhisattva of the Seven Grounds, he has surpassed Arahants in wisdom.
+Since the Bodhisattva of the Seven Grounds, he has surpassed Arhats in wisdom.
 
 (4) After receiving the blessings of the Buddhas and Tathagatas and attaining bodhicitta, one can quickly practice and become a Buddha, and it is difficult to achieve bodhicitta.
 
@@ -3557,7 +3627,7 @@ If you recite mantras, or practice the method of increasing your breath, it will
 
 151
 
-Moreover, after attaining bodhicitta, even in reincarnation, the merit and virtue of bodhicitta will not be regressed. In this way, the practice in later life will be easy, and the achievement will be faster.
+Moreover, after attaining bodhicitta, even in rebirth, the merit and virtue of bodhicitta will not be regressed. In this way, the practice in later life will be easy, and the achievement will be faster.
 
 Therefore, Master Tsongkhapa said: "Bodhicitta is the most special and successful cause of becoming a Buddha, it is the core of Mahayana Buddhism, it is what Buddhas and Bodhisattvas cultivate, and the heart is the most precious wishful treasure in the world and beyond the world. It is healing and greed. A panacea for madness."
 
@@ -5078,7 +5148,7 @@ For example, there is anger towards enemies, greed and joy towards relatives and
 
 When we think about the truth of suffering, we talk about relatives and hatreds changing and impermanent, etc., and we will understand that when we treat sentient beings in this way, it is actually wrong.
 
-In reincarnation, the enemy has been my friend many times;
+In rebirth, the enemy has been my friend many times;
 
 Friends and relatives have been our enemies many times;
 
@@ -5090,7 +5160,7 @@ Not only that, but now they are friends and enemies, and they can't always be in
 
 Therefore, it is unreasonable to be greedy or angry with sentient beings.
 
-In addition, all living beings also suffer from the suffering of reincarnation. From this point of view, all living beings are equal.
+In addition, all living beings also suffer from the suffering of rebirth. From this point of view, all living beings are equal.
 
 By thinking like this often, you can slowly cultivate your own equality and heart.
 
@@ -5100,11 +5170,11 @@ If you can treat other sentient beings equally, you will stop the evil deeds cau
 
 After being able to treat all sentient beings equally, it will be very, very easy to cultivate and recognize that all sentient beings are mothers.
 
-How to identify it? If we think about it seriously, we will realize and realize that the soul of all living beings is beginningless, and so is reincarnation.
+How to identify it? If we think about it seriously, we will realize and realize that the soul of all living beings is beginningless, and so is rebirth.
 
-Since the beginningless kalpa, we have been reincarnated countless times, more times than the sand in the universe.
+Since the beginningless kalpa, we have been reborn countless times, more times than the sand in the universe.
 
-Every time we are reincarnated, there are sentient beings who do it, our parents, so it is said that all sentient beings in the six realms have done ours, our parents.
+Every time we are reborn, there are sentient beings who do it, our parents, so it is said that all sentient beings in the six realms have done ours, our parents.
 
 And more than once or twice, sentient beings in the six realms have been our parents countless times. Even if they are not mothers in this life, they are also mothers in past lives.
 
@@ -5156,7 +5226,7 @@ We must develop bodhicitta well, the basis is here.
 
 There is a great siddha in India named Zamba Yeshe Jepa. After his mother died, in order to find her, he cultivated supernatural powers.
 
-With God, after observation, I found that my mother was reincarnated in a rich family in Tibet and became a bug under the stove.
+With God, after observation, I found that my mother was reborn in a rich family in Tibet and became a bug under the stove.
 
 He came to Tibet, and there, a rich man kept sheep for three years.
 
@@ -5168,7 +5238,7 @@ Therefore, all beings such as bugs, ants, and mosquitoes that we see may be the 
 
 The ones who often meet must be the ones with fate, the mosquitoes without fate can't enter the room, we can't see the bugs without fate, and there are no living beings who have no fate, they will meet.
 
-It is very likely that our parents, grandparents and other relatives and friends who are destined to meet are reincarnated after death.
+It is very likely that our parents, grandparents and other relatives and friends who are destined to meet are reborn after death.
 
 It is very, very important to recognize that all sentient beings are mothers.
 
@@ -5190,7 +5260,7 @@ The Venerable went to ask Buddha Shakyamuni, and the Buddha said, "It's too far 
 
 Then, the Buddha took Mujian and even went to that world.
 
-Also in the human world, his mother was reincarnated as a woman and was carrying water.
+Also in the human world, his mother was reborn as a woman and was carrying water.
 
 The Venerable taught the Dharma to his mother, and his mother practiced liberation.
 
@@ -5492,7 +5562,7 @@ When practicing Bodhisattva in the middle stage, there must be the water of grea
 
 When the Bodhisattva becomes a Buddha in the later period, he will show his retribution body or incarnation with great compassion, teach and transform all beings, and let all beings obtain real benefits.
 
-If there is no great compassion, the heart will be unwilling to help sentient beings to liberate, and will be like an arahant who has entered Nirvana by himself, and sentient beings will not be helped.
+If there is no great compassion, the heart will be unwilling to help sentient beings to liberate, and will be like an Arhat who has entered Nirvana by himself, and sentient beings will not be helped.
 
 Therefore, for becoming a Buddha, every moment of the first, middle, and last three periods of practice, compassion and heart are always the most important.
 
@@ -5570,7 +5640,7 @@ Therefore, we should, when we have compassion, contemplate the suffering of all 
 
 Compassion can be divided into two types, the mother's compassion and the father's compassion.
 
-The compassion that only wishes to stay away from pain is the compassion of the Shravaka, the Arahants, and it can also be called the compassion of the mother;
+The compassion that only wishes to stay away from pain is the compassion of the Shravaka, the Arhats, and it can also be called the compassion of the mother;
 
 And the kind of compassion that sees the suffering of sentient beings, generates courage, and saves sentient beings is the compassion of the Mahayana, also known as the compassion of the father, and it is also the compassion that we need to generate.
 
@@ -5586,7 +5656,7 @@ However, although I have the heart to take it, do I have the ability to take it?
 
 Not to mention guiding sentient beings in the six realms, right now, he doesn't even have the ability to free his mother from suffering and achieve happiness.
 
-Think again, just think, who has this ability? There are no Arahants, no ordinary Bodhisattva, no Sagittarius, and no Bodhisattva who has reached the ground. Only Buddhas have this ability.
+Think again, just think, who has this ability? There are no Arhats, no ordinary Bodhisattva, no Sagittarius, and no Bodhisattva who has reached the ground. Only Buddhas have this ability.
 
 Because the Buddha's ability is the greatest, the wisdom is the greatest, the blessings and retribution are the greatest, and the great compassion is also the greatest.
 
@@ -5799,7 +5869,7 @@ All the troubles and sufferings in our life are caused by ego.
 
 The poisoning of swords and soldiers, the obstacles and infringements of heavenly dragons and evil spirits, and even being born in hell, hungry ghosts, animal realms, etc., all originate from the evil deeds such as killing for our own interests.
 
-This is from the point of view of reincarnation.
+This is from the point of view of rebirth.
 
 Then, in our daily life, all kinds of illnesses and pains in our body, all kinds of conflicts and troubles that occur, being persecuted and excluded at work, and even taking a lawsuit, violating the laws of the state, etc., are also due to egoism It is caused by the idea of ​​loving me, respecting me.
 
@@ -6447,13 +6517,13 @@ In the past, some poor people in India saw the cassocks worn by monks, and they 
 
 (8) Five unrelenting sins 
 
-The five unrelenting sins are killing the father, mother, an arahant, breaking the harmony, merging with the Sangha, and spitting out the blood of the Buddha's body with disgust.
+The five unrelenting sins are killing the father, mother, an Arhat, breaking the harmony, merging with the Sangha, and spitting out the blood of the Buddha's body with disgust.
 
 If you commit the five uninterrupted sins, you will commit this precept.
 
 (9) Wrong view 
 
-Wrong view refers to not believing in cause and effect, reincarnation, and the Three Jewels. Of these three, any one of the wrong views violates this precept.
+Wrong view refers to not believing in cause and effect, rebirth, and the Three Jewels. Of these three, any one of the wrong views violates this precept.
 
 Other wrong views are generally inverted concepts, for example, what is originally good is regarded as bad, and what is bad is regarded as good;
 
@@ -6473,7 +6543,7 @@ If you do this, you will break this precept.
 
 For those who understand and accept emptiness before the time has come, if they talk about true emptiness, after hearing it, they may fall into stubborn emptiness, cling to severance, and stop seeing.
 
-After clinging to this wrong view, you will not recognize cause and effect, reincarnation, and believe that everything will be destroyed after death.
+After clinging to this wrong view, you will not recognize cause and effect, rebirth, and believe that everything will be destroyed after death.
 
 In this way, greed, hatred, and delusion will be driven to destroy all good virtues and increase all evil deeds, which is very scary.
 
@@ -7345,7 +7415,7 @@ And it was my body that was cremated after my death, not me.
 
 Because if it is I who is cremated, I should really be extinguished;
 
-If I destroy me, I should not be reincarnated.
+If I destroy me, I should not be reborn.
 
 None of these aspects make sense, so this, head-to-toe body is not me.
 
@@ -7361,7 +7431,7 @@ So, the bodhisattva of the worldly relatives went to another master of the Schoo
 
 He asked again, "Who am I? Where am I?" The master said, "Consciousness is I."
 
-Shiqin Bodhisattva thought, "Oh, that's right, it is this consciousness that is reincarnated from generation to generation.
+Shiqin Bodhisattva thought, "Oh, that's right, it is this consciousness that is reborn from generation to generation.
 
 So, the awareness is that I should be right. "
 
@@ -7811,7 +7881,7 @@ You also need to learn the second step of the supreme yoga class. If not, if the
 
 If you receive empowerment, but do not practice the six yogas, then the empowerment will not work. It will be useless, it will still cause damage, and you will go to hell and evil realms in the future.
 
-If the tantric vows can be kept, even if you don't practice any dharmas or disciplines, just practice the vows, you will definitely become a Buddha after being reincarnated sixteen times.
+If the tantric vows can be kept, even if you don't practice any dharmas or disciplines, just practice the vows, you will definitely become a Buddha after being reborn sixteen times.
 
 From this, it can be seen how extraordinary the tantric method is.
 
@@ -7913,7 +7983,7 @@ The two methods, the door is like the sun and the moon, the tantric method is li
 
  Xianzong also only talked a little bit about the pure land of Buddhas and Bodhisattvas, but about the true and complete pure land of Buddhas and Bodhisattvas, the tantric schools explained very clearly.
 
-As far as becoming a Buddha is concerned, according to the teachings of Xianzong, after you have developed bodhicitta, you must accumulate the blessings of the three great asamkhya kalpas, and you will have to reincarnate many times before you can become a Buddha. In the process of reincarnation, in addition to bodhicitta Yes, in addition to merit, some merit will also be withdrawn. If we study Tantra, we can become Buddhas in one lifetime, without having to go through the three major asamkhya kalpas.
+As far as becoming a Buddha is concerned, according to the teachings of Xianzong, after you have developed bodhicitta, you must accumulate the blessings of the three great asamkhya kalpas, and you will have to reincarnate many times before you can become a Buddha. In the process of rebirth, in addition to bodhicitta Yes, in addition to merit, some merit will also be withdrawn. If we study Tantra, we can become Buddhas in one lifetime, without having to go through the three major asamkhya kalpas.
 
 If he is the most outstanding Vajra disciple in Tantric Buddhism, he can become a Buddha in three years and three and a half months as quickly as possible; even an average disciple, after developing Bodhicitta, can become a Buddha in seven years by practicing Tantra. Or become a Buddha in ten or ten years; in this life, those who have not been able to become a Buddha can become a Buddha in the bardo stage. From this, we can see how special the secret method is, so the secret method is very precious, yes, it is very difficult to encounter.
 
@@ -8155,7 +8225,7 @@ Eleventh is Rebirth;
 
 The twelfth is Aging and death.
 
-The whole of the Twelve Links of Dependent Arising is a process of our reincarnation.
+The whole of the Twelve Links of Dependent Arising is a process of our rebirth.
 
 If you think about this process, you will know that the root of samsara is suffering, and then you must think about ways to deal with big and small afflictions.
 
@@ -8309,7 +8379,7 @@ On the 10th and 25th of every month, the monastery holds the Dakini Buddha's Dha
 
 Buddhist scriptures: There are golden scrolls of "Prajna Sutra" in the collection of Tuola Temple, several chapters of Buddhist scriptures written by Jia, Cao Jie, (one of the two major disciples of Master Tsongkhapa), and passed down by the family of Ngawang Gyatso Vajra Master. , the golden word "Great Prajna Sutra".
 
-Relics: There are Sakyamuni Buddha relics, Wusang relics, Bodhisattva bone relics, and Muganlian bone relics.
+Relics: There are Sakyamuni Buddha relics, Asanga relics, Bodhisattva bone relics, and Muganlian bone relics.
 
 Treasures: rare treasures such as Manjusri gems, antique methods inherited by Master Saikangba, and utensils.
 

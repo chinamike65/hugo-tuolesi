@@ -828,7 +828,7 @@ The master's own body, speech, and mind rested in a pure and solemn state. Inspi
 
 Even if I accidentally violated it occasionally, I would feel ashamed and immediately repent according to the ritual.
 
-Many saints have been prophesied by the master Shakyamuni Buddha, Maitreya Bodhisattva, Manjushri Bodhisattva, Machig Labdrön, Yuecheng Bodhisattva, Guru Rinpoche, etc., all of whom have prophesied Master Tsongkhapa.
+Many saints have been prophesied by the master Shakyamuni Buddha, Maitreya Bodhisattva, Manjushri Bodhisattva, Machig Labdrön, Candrakīrti Bodhisattva, Guru Rinpoche, etc., all of whom have prophesied Master Tsongkhapa.
 
 Padmasambhava's "Words of Encouragement" says:
 
@@ -8510,7 +8510,7 @@ The good and bad karma created by the continuous circulation of predestination h
 
 The Madhyamika school believes that the nature of karma is that it is not corrupt, that it is not preserved in the alaya consciousness, and that it cannot be destroyed.
 
-Yuecheng Bodhisattva said in "Entering the Middle Way":
+Candrakīrti Bodhisattva said in "Entering the Middle Way":
 
 The self-nature of causation is not inherently corrupt, 
 
@@ -8548,7 +8548,7 @@ Delaying the appearance of evil retribution will prolong the time of repentance,
 
 2. The Ten Ways of Karma
 
-We have already understood the essential characteristics of karma and the importance of cause and effect, but we still do not necessarily understand what is good karma and what is bad karma, because cause and effect are very subtle, so how do we determine in the future that what you do good karma? 
+We have already understood the essential characteristics of karma and the importance of cause and effect, but we still do not necessarily understand what is good karma and what is bad karma, because cause and effect are very subtle, so how do we determine in the future that what you do is good karma? 
 
 According to the "Kusa Lun":
 
@@ -8563,6 +8563,8 @@ That is to say, the relatively obvious good and bad karma can be summarized into
 Since our words and deeds in the world are also included in the ten karma, it is necessary to learn and understand the ten karma.
 
 On the other hand, the "Entrance to the Middle Way" says:
+
+---
 
 If all the different births and all the words are born, 
 
@@ -9109,7 +9111,7 @@ After completing these two dharmas, later generations will obtain the fruits of 
 
 Besides, it is more important to generate several kinds of thoughts.
 
-**First of all, it is necessary to achieve the rare view of being full of leisure and human beings.**
+**First of all, it is necessary to achieve the rare view of being full of leisure and endowments.**
 
 Only when the concept of the rarity of a precious human body is born can one truly realize the preciousness of the human body.
 
@@ -9145,13 +9147,13 @@ After taking refuge in the Three Jewels of the Guru, although you can temporaril
 
 To respect cause and effect, we must understand the nature of karma.
 
-Through learning and cultivating the ten karma paths, I have come to know the gross good and evil karma, and the results of the ten evil karmas.
+Through learning and cultivating the ten karma paths, I have come to know the gross good and evil karma, and the results of the ten evil deeds.
 
 Finally, I also learned about the eight meritorious persons who are most suitable for practicing the Dharma.
 
 This concludes the explanation of the path of the Lower Scope.
 
-When training in the Aspects of the Path, after understanding clearly the impermanence of life, if you can realize that even if you get the Fruit of Humanity and Heaven, he possibility of falling into the evil realms in the next life will still exist, and the only way out is to achieve liberation from the six realms of rebirth.
+When training in the Aspects of the Path, after understanding clearly the impermanence of life, if you can realize that even if you get the Fruit of gods and men, he possibility of falling into the evil realms in the next life will still exist, and the only way out is to achieve liberation from the six realms of rebirth.
 
 At this time, the idea of ​​​​seeking liberation will arise in the mind, and in this way, one will enter the path of the Middle Scope.
 
