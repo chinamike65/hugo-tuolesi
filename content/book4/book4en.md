@@ -461,9 +461,9 @@ It is simply the Dharma Door of the Four Noble Truths of Suffering, Cause of Suf
 
 8
 
-Section 1 - The Truth of Suffering
+##### Section 1 - The Truth of Suffering
 
-After having practiced the path of the Initial Level, and having entered the path of the Middle Level, the first thing to do is to cultivate the mind of renunciation.
+After having practiced the path of the Initial Level, and having entered the path of the Middle Level, the first thing to do is to cultivate the mind of renunciation, to developing aversion to samsara.
 
 Because of the dread of the suffering of the six realms, to renounce the six realms of samsara is renunciation.
 
@@ -493,325 +493,389 @@ The five sufferings are the five categories of suffering, including the sufferin
 
 ##### 1. Suffering of Change
 
-Impermanence, suffering, and impermanence mean that all things in the world are not eternal, they are impermanent, and they are always changing.
+Impermanence means that nothing in the world is eternal, it is impermanent, and it is changing all the time.
 
-Glory, wealth and honor are impermanent, family status is impermanent, and personal connections are still impermanent.
+Fame, wealth and honour are impermanent, family status is impermanent, and personal relatio9nships are impermanent.
 
-Everything is impermanent and cannot last forever.
+Everything is impermanent and nothing lasts forever.
 
-Volatility is a pain.
+Change is painful.
 
-For example, the originally happy life has changed in an instant;
+For example, happiness in life can change to pain in an instant;
 
-It was a good job, but it was lost in an instant.
+You have a good job, but suddenly you lose it.
 
-Good times are always short and painful.
+Good times are always short, and also bring pain.
 
-There are six types of fickle suffering:
+There are six types of suffering of change:
 
 10
 
-(1) Relatives and enemies are changeable and bitter. 
+##### (1) Relatives and enemies are changeable and bitter. 
 
-On the one hand, they are still friends today, but a few words are heavy, and they may become enemies tomorrow.
+On the one hand, they are still friends today, but with a few harsh words, they may become enemies tomorrow.
 
-On the other hand, someone who has always thought that he is an enemy may one day help him, and that kind of feeling is also quite uncomfortable.
+On the other hand, someone you have always thought of as an enemy may one day help you, and that kind of feeling is also quite uncomfortable.
 
 We have all experienced these situations, and this is a kind of suffering.
 
-Often, in a lifetime, no one person will always be, our family and friends, will change.
+Often, over a lifetime, there is no who will always be our friend. It will change.
+
+--- 
+to do
 
 To become a person in a normal relationship, or even to become an adversary or an enemy, this is the change of kinship and hatred.
 
-In addition, karma is incredible. Due to the relationship of karma, relatives and friends in this life may also become enemies in the next life;
+---
 
-In this life, you love your parents as much as you can, but in the next life you may become enemies, or grievances and creditors.
+In addition, karma is incredible. Due to karma, relatives and friends in this life may also become enemies in the next life;
 
-In the past, there was a wealthy family in India, and both the husband and the wife died. A few years later, Shariputra, the most wise among the Buddha's disciples, passed by his house and saw their sons eating fish with their children in their arms. A dog came to snatch the bones of the fish, and was beaten away with a whip by them.
+In this life, you love your parents dearly, but in the next life you may become enemies, or creditors.
 
-Shariputra had supernatural powers and saw the karma of the scene in front of him: just now, the fish that was eaten was the male owner of this family, because he often ate the fish in the pool behind the house, and he was born into a fish after death. This time he was caught and eaten by his own son; 
+In the past, there was a wealthy family in India, and both the husband and the wife died. A few years later, Shariputra, the most wise among the Buddha's disciples, passed by his house and saw their son eating fish with his son in his arms. A dog came to snatch the bones of the fish, and was driven away with a whip.
+
+Shariputra had supernatural powers and saw the karma of the scene in front of him: the fish that was eaten was the father of this family, and because he often ate the fish in the pond behind the house, he was reborn as a fish. This time he was caught and eaten by his own son; 
 
 11
 
-The dog is the hostess. Because she was born and loved her family before, she became a domestic dog. Just now, she was whipped by her own son for grabbing fish to eat;
+The dog was the mother. Because she loved her previous family, she was reborn as a domestic dog. Now, she was whipped by her own son for grabbing fish to eat;
 
-The child in their son's arms was an enemy of fornication with his son's wife. After he was killed, because he still coveted his wife, he was reborn as her child.
+The child in their son's arms was an enemy had raped his son's wife. After he was killed, because he still coveted his wife, he was reborn as her child.
 
-When Shariputra saw these circumstances, he said a verse:
+When Shariputra saw these circumstances, he recited a verse:
 
-Eating the father and whipping the mother,
+“He eats his father’s flesh and kicks his mother away,
 
-holding the enemy in the arms, 
- 
-the wife swallowing the husband's bones, 
+The enemy he killed he dandles on his lap,
 
-rebirth is ridiculous!
+The wife is gnawing at her husband’s bones,
+
+Samsara can be such a farce.”
+
+The man’s father died and was reborn as a fish in the pool, the layman caught his father, the fish, killed it, and was now eating it. The layman’s mother was very attached to the house so she was reborn as the man’s dog. The man’s enemy had been killed for raping the man’s wife; and because the enemy was so attached to her, he was reborn as her son. While he ate his father’s flesh, the dog – his mother – ate the fish bones, and so was beaten by her son. His own little son, his enemy, was sitting on his knee.
 
 When we think about this situation, we also feel that rebirth is really ridiculous, and painful.
 
-This is the fickleness of relatives and hatreds, nothing, no relationship is eternal.
+This is the fickleness of relatives, friends and enemies. No relationship is eternal.
 
-(2) The status is changeable and impermanent, even if the honor is like the emperor Shi Tianwang, after the blessings are exhausted, they must fall into the evil realm, and then slowly reincarnate into poor people with low blessings.
+##### (2) Impermanence of Status and Honour
+
+Status is changeable and impermanent. 
+
+Even a noble like the Emperor Shi Tian Wang, after their merit is exhausted, must fall into the evil realms, and then gradually be reborn into a poor family with low fortune.
 
 Status is also fickle.
 
-The same is true of humanity. A person's life, even when he is a child, is a very honorable person. Because of the impermanence of the relationship, he will become a person with a low status. This situation is often seen.
+The same is true for all of of humanity. Even if someone was a very noble person as a child, due the impermanence of the relationship, he will become a person with low status. This situation is often seen.
 
-In addition, in the rebirth, the status is also constantly changing.
+In addition, with each rebirth, status is also constantly changing.
 
 12
 
-changing. The Book of Friends says:
+The Letter to a Friend says:
 
-The world respects the lofty emperor Shitian, and it is inevitable that karma will fall into the next world. He is the king of the world's wheel-turning king, and sometimes he will become a slave among slaves.
+>
+>Indra, universally revered,
+>
+>Will fall again to earth through action’s force.
+>
+>And he who ruled the universe as king
+>
+>Will be a slave within samsara’s wheel.
+>
 
-What is the concept of the runner king in the world? There are four kinds of wheel-turning kings. The one who rules four continents is the golden wheel king, the one who rules three continents is the silver wheel king, the one who rules two continents is the bronze wheel king, and the one who rules one continent is the iron wheel king.
+What is the concept of the wheel-turning king in the world? There are four kinds of wheel-turning kings. 
 
-The world we live in is called Jambudvipa, and there are also three other worlds: Dongshengshenzhou, Xiniuhezhou, and Beijuluzhou. These are the four larger worlds in Buddhist scriptures, where human beings and Daoists live. There are two small continents around the world, there are a total of eight small continents, which are also inhabited by people and Tao.
+The one who rules four continents is the golden wheel king, the one who rules three continents is the silver wheel king, the one who rules two continents is the bronze wheel king, and the one who rules one continent is the iron wheel king.
 
-There are also many planets where inhuman beings live, that is, the worlds where Yakshas and Asuras live. Together, these are one world ruled by the Golden Wheel King.
+The world we live in is called Jambudvipa in the South, which is trapezoidal and blue, and there are also three other worlds: 
 
-That is to say, if the blessings are exhausted, even the wheel-turning king who leads the four continents of the world will become a slave-maid among slaves, that is, the lowest slave-maid;
+Purvavideha in the East, which is semi-circular and white in colour;
 
-The most noble and respected by the world, Di Shitian will also become an ordinary person.
+Aparagodaniya (Eng. 'Enjoyer of Cattle') in the West, which is circular and ruby red; 
+
+Uttarakuru (Eng. 'Unpleasant Sound') in the North, which is square and green. 
+
+These are the four larger continents in Buddhist scriptures, where human beings and other sentient beings live. Each of the four continents is flanked by two subcontinents, there are a total of eight subcontinents, which are also inhabited by human beings.
+
+There are also many planets where non-human beings live, that is, the worlds where Yakshas and Asuras live. Together, these are one world ruled by the Golden Wheel King.
+
+That is to say, if the accumulated merit is exhausted, even the Wheel-Turning King who rules the four continents of the world will become a slave-maid among slaves, that is, the lowest among slaves;
+
+Even Indra, the most noble and most respected by the world, will also become an ordinary person.
 
 These worldly gods are like this, and we ordinary people are even less likely to have exceptions.
 
 13
 
-(3) We have generally seen the situation where the rich and the poor become impermanent and bitter, and the poor suddenly become rich;
+##### (3) Rich and poor alike experience the suffering of change
 
-The rich become poor in an instant, this is the change of rich and poor, impermanence.
+We have all seen the situation where the rich become poor, and the poor suddenly become rich;
 
-For example, some rich people go to Macau to gamble and lose all of them in one night. Not only do they become poor, but they also owe a lot of debt.
+The rich become poor in an instant, this is the exchange of wealth and poverty.
 
-There are many more, big bosses, because of investment and stock trading, they are already very rich, but they are heavily in debt after a few days.
+For example, some rich people go to Macau to gamble and lose all of their money in one night. Not only do they become poor, but they also owe a lot of debt.
 
-This situation is very common, which is the change of rich and poor, and it is fickle.
+There are many more examples of big bosses who are already very rich, because of investment in stock trading, suddenly they are heavily in debt.
 
-Under normal circumstances, it is difficult to change from poor to rich, but it is very easy to change from rich to poor.
+This situation is very common, which is the fickle nature of wealth and poverty.
 
-(4) The time of suffering and happiness is always unretainable. Even if you get happiness, it will soon be lost, and even become pain.
+Under normal circumstances, it is difficult to go from being poor to being rich, but it is very easy to go from rich to poor.
 
-For example, people in the heavenly world will enjoy it very much when they are alive. Once the blessings are exhausted, the appearance of decline will appear, and the afterlife will fall into hell.
+##### （4）Suffering the impermanence of happiness 
 
-This is, suffering and happiness.
+Happy times can't go on forever, and even if you find some happiness, you will soon lose it, and even turn into pain.
 
-(5) Youth is fickle and bitter 
+For example, people in the heavenly world will enjoy it very much when they are alive. Once the accumulated merit is exhausted, the appearance of decline will appear, and they will fall into hell in the next life.
+
+This is suffering the impermanence of happiness.
+
+##### （5）impermanence of youth  
 
 14
 
-In the age of youth, everyone is young, beautiful, and strong, but such time is short, which is also a pain.
+In the age of youth, everyone is young, beautiful, and strong, but such time is short, which is also suffering.
 
-From 20 to 30 years old, ten years is not a long time. When I look back at the age of 30, my youth has just passed. When I look at myself again, there are wrinkles on my face.
+From 20 to 30 years old, ten years is not a long time. When we look back at the age of 30, our youth has just passed. When we look at ourselves again, there are wrinkles on our face.
 
 At the age of 80, the aging of the body is already obvious, and the old eyes are dim.
 
 When you are about to die, looking back at this life is like having a dream, and it will pass in an instant. This is the fickle suffering of youth.
 
-(6) Glory, wealth, and unreliable misery 
+##### (6) The suffering of unreliable prosperity and wealth
 
-The misery brought about by wealth usually brings disaster.
+The misery that wealth brings, is that it usually brings misfortune.
 
-There is a metaphor, there are two women, one is called the lucky girl, the other is called the unlucky woman. Wherever the lucky girl goes, the unlucky woman also goes, like the shadow of the lucky girl.
+There is a story about two women, one is called the lucky girl, the other is called the unlucky old woman. Wherever the lucky girl went, the unlucky woman followed her like a shadow.
 
-For example, when a lucky girl arrives at a certain person's home, she says, "I am an auspicious girl, which will bring prosperity, prosperity, and good luck to my career.
+For example, when the lucky girl arrived at a certain person's home, she said, "I am a lucky girl, who will bring prosperity, fortune, and good luck to your career."
 
-"Everyone was very happy and said: "You come in and stay at my house." "
+Everyone was very happy and said: "Come in and stay in my house." "
 
-When the door is about to be closed, an ugly girl will pull it and the door will say, "Don't close the door, I'll come in too, she's a lucky girl, I'm an unlucky woman, and I'm inseparable from the lucky girl.
+When the door was about to be closed, the ugly woman steps up and says, "Don't close the door, I'll come in too, she's a lucky girl, I'm an unlucky woman, and I'm inseparable from the lucky girl.
 
-Auspicious women are like wealth, and unlucky women are like disasters. If you have wealth, there will be disasters. When people have no blessings, wealth is a disaster.
+Lucky women are like wealth, and unlucky women are like disasters. If you have wealth, there will be disasters. When people have no blessings, wealth is a disaster.
 
-Therefore, wealth without blessings is a disaster, and there is no blessing. If you have money, you will definitely get sick or have other problems.
+Therefore, wealth without blessings is a disaster, and there is no fortune. If you have money, you will definitely get sick or have other problems.
 
 15
 
-In the past, there was a region in India where the throne was vacant. No matter who it was, as long as he sat on the throne of the king, he could only live for one day. Therefore, no one was willing to sit on that throne.
+In the past, there was a region in India where the throne was vacant. No matter who it was, whoever sat on the throne of the king, only lived for one day. Therefore, no one was willing to sit on that throne.
 
-But there always to be someone to run the country, so everyone had to take turns to sit on the throne, and whoever is on the throne will be unlucky.
+But there always has to be someone to run the country, so everyone had to take turns to sit on the throne, and whoever is on the throne will be unlucky.
 
-Although he got the throne and glory and wealth, but only for one day, it was very painful.
+Although he got the throne and the glory and great wealth, it was only for one day. It was very painful.
 
-So, if you get great wealth, glory and wealth, then what are you paying for? What you pay is good fortune, and all of a sudden, a lot of good fortune is eliminated.
+So, if you get great wealth and glory, then what are you using to pay for it? What you pay is good fortune, and all of a sudden, a lot of good fortune is eliminated.
 
-We should often seriously think about these impermanent sufferings. If we understand that things are impermanent, we will not be so attached.
+We should often seriously think about these impermanent sufferings. If we understand that things are impermanent, we will not become so attached.
 
-Let go of your heart, and you will really have no worries.
+Let go of your attachment, and you will really have no worries.
 
-Everything in the world is changing in an instant, but we can't see it, come out, and don't understand the truth.
+Everything in the world is changing so fast, but we can't see it, and don't understand the truth.
 
-For example, the high-rise buildings in front of us are changing and decaying in an instant, but we don’t understand it now. We have to wait until our wisdom grows before we realize the impermanence and principles, and we will not be attached to anything.
+For example, the high-rise buildings in front of us are changing and decaying every moment, but we don’t understand this. We have to wait until our wisdom grows before we realize the truth of impermanence, and then we will not be attached to anything.
 
-Suffering from samsara
+##### 2. Suffering of samsara
 
 16
 
-The suffering of sentient beings from beginningless time is endless. We do not know how many times we have been in hell, how many times we have fallen into the realm of hungry ghosts, suffering;
+The suffering of sentient beings from beginningless time is endless. We do not know how many times we have been in hell, how many times we have fallen into the realm of hungry ghosts, how much suffering we have gone through;
 
-How many times have I gone to the realm of heaven, experienced short-lived happiness, and then fell down after the blessings were exhausted.
+How many times have we gone to the realm of heaven, experienced short-lived happiness, and then fallen again once the accumulated merit was exhausted.
 
-The suffering of the six realms of samsara is inexhaustible, inexhaustible.
+The suffering of the six realms of samsara is inexhaustible and endless.
 
-It is still difficult to imagine the suffering of samsara. When we reach a certain level of practice and receive the blessings of Buddhas and Bodhisattvas, it will be easier and easier to realize these sufferings.
+It is still difficult to imagine the suffering of samsara. When we reach a certain level of practice and receive the merit of Buddhas and Bodhisattvas, it will be easier to imagine these sufferings.
 
 So, we have been in endless misery in the six realms, most of the time in hell, with no chance of liberation.
 
-Now, I have the opportunity to learn Buddhism, and I must cherish this opportunity very much.
+Now, wehave the opportunity to learn Buddhism, and we must cherish this opportunity very much.
 
-If you don’t cherish it, you will not be able to get free this time, and you will enter the cycle of rebirth again. If you want to encounter the Buddhadharma again, you may have to suffer countless times in pain again, after a few kalpas.
+If you don’t cherish it, you will not be able to get free this time, and you will enter the cycle of rebirth again. If you want to find the Buddhadharma again, you may have to suffer countless kalpas in pain again.
 
-The suffering of unchangeable karma is the suffering of being unable to escape and change karma.
-When karmic obstacles are not eliminated, karma cannot be changed. Even if one has attained Arhatship, one still has to receive karmic retribution.
+##### 3. The Suffering of Unavoidable Karma
 
-There are four fruit positions in the Arhat path, the first fruit is called Su Tuo Huan, and there are also karmic retributions at times.
+The suffering of unavoidable karma is the suffering of being unable to escape and change karma.
+Unless karmic obstacles are eliminated, karma cannot be changed. Even if one has attained Arhatship, one still has to experience karmic retribution.
 
-There was a woman named Asangama, "Asanga", which means "blue sky" in Chinese. She attained the fruit of Sudohuan.
+There are what are known as the "Four Fruits" on the Arhat path. 
+
+The first fruit is called Srota apanna, the Stream-Enterer, but there are still some karmic obstructions.
+
+There was a woman named Asangama, "Asanga", which means "blue sky" in Chinese. She attained the stage of a sotāpanna.
 
 17
 
-At this time, someone set fire to her house. After the fire, she flew to the roof and observed with her supernatural powers why someone burned her house.
+Someone set fire to her house. After the fire, she flew to the roof and used with her supernatural powers to see why someone had burned down her house.
 
-It turned out that I created karma in my previous life, and burned down the house of an Arhat who was conditioned by fate. This karma has not been eliminated, so there is a result, retribution.
+It turned out that she had created some negative karma in her previous life, and had burned down the house of a Solitary Arhat. This karma had not been eliminated, so this was the resulting retribution.
 
-Only after attaining the first fruit of Arhats will they be able to remember this karma and receive retribution.
+Only after attaining the first fruit of Arhats will they be able to remember this karma and experience retribution.
 
-She also thought that the karma she created would eventually be rewarded by herself, so she jumped into the fire and burned to death.
+She also thought that the karma she created would eventually be experienced by herself, so she jumped into the fire and burned to death.
 
 Once the retribution is manifested, it is very difficult to change it. To force and change the retribution is only possible in Tantric Buddhism.
 
-For example, cancer, there is a way before you get cancer, but you can eliminate the cause of cancer;
+For example, cancer. Before you get cancer, you can eliminate the cause of cancer;
 
-After you have cancer, the retribution has already come out, and it is very difficult to change or eliminate it.
+After you have cancer, the effect has already manifest, and it is very difficult to cure or eliminate it.
 
-There is a banyan tree in India. The roots of the underground tree can grow to a radius of five hundred paces, and the branches near the ground can also grow to five hundred paces.
+There is a banyan tree in India. The roots underground can grow to a radius of five hundred paces, and the branches near the ground can also grow to five hundred paces.
 
-Such a big tree is very easy to dig up when it is still a small seed, .
+Such a big tree is very easy to dig up when it is still a small seed.
 
 If you wait for it to grow into a big tree, and then want to pull it out, you need to dig out all the roots in a radius of 500 steps.
 
-Therefore, in order to eliminate karma, it must be eliminated before the karma manifests, and when it is a seed.
+Therefore, in order to eliminate karma, it must be eliminated before the effect manifests, when it is a seed.
 
-After the retribution manifests, it will be very difficult to eliminate karma.
+After the effect manifests, it will be very difficult to eliminate.
 
 18
 
-Those suffering from the shackles of afflictions have many afflictions, such as greed, hatred, ignorance, arrogance, doubt, and jealousy, all of which are afflictions.
-Even if you are aware of your own troubles, you also recognize that what hurts you is troubles, but you can't stop them if you want to. This is also a kind of pain.
+##### 4. The intractable suffering of the shackles of afflictions
+
+Those suffering from the shackles of afflictions have many troubles, such as greed, hatred, ignorance, arrogance, doubt, and jealousy.
+Even if you are aware of your own troubles, you also recognize that what hurts you are the troubles, but you can't stop them if you want to. This is also a kind of suffering.
+
+##### 5. The suffering of being helpless at a critical moment
 
 The suffering of being helpless at a critical moment is the suffering of being alone at a critical moment of life and death.
-When sentient beings are dying, at this most critical moment, they are helpless. This is a very deep pain.
+When sentient beings are dying, at this most critical moment, they are helpless. This is a very deep form of suffering.
 
-The Great Game Book says:
+The "Great Game Book" says:
 
 ---
+TODO
 
-All living beings come alone when they are born, and go alone when they die
+All living beings come alone when they are born, 
+
+and go alone when they die
 
 Suffering its pain alone, never in the world of rebirth to rely on.
 
-When we came into the world, we came alone, and when we left, we also left alone.
-
 ---
 
-No one to rely on, no one to help, oneself, one's own retribution can only be borne by oneself, no one can share it, and can only suffer alone.
+When we came into the world, we came alone, and when we leave, we also leave alone.
+
+
+No one to rely on, no one to help us, one's own karma can only be borne by oneself, no one can share it, and we can only suffer alone.
 
 These are the five sufferings.
 
 19
 
-(2) The Eight Sufferings 
+### (2) The Eight Sufferings 
 
 The Eight Sufferings are the suffering of birth, old age, illness, death, the suffering of separation from love, the suffering of resentment and hatred, the suffering of not being able to seek, and the suffering of the five aggregates.
 
-The pain of birth 
+##### 1. The suffering of birth 
 
-A person is born with great pain, and birth is the root of all pain.
-In the last three weeks of the fetus, the fetus already has a sense of smell, can smell a very bad smell, and will feel that the mother's womb is dirty, and always wants to leave. When you are born, you will feel very, very painful, so the baby will cry loudly as soon as it is born.
+A person is born in great suffering, and birth is the root of all suffering.
+In the last three weeks of the fetus, the fetus already has a sense of smell, can smell a very bad smell, and will feel that the mother's womb is dirty, and always wants to leave. When you are born, you will feel very, very much pain, so babies will cry loudly as soon as they is born.
 
-Nagarjuna Bodhisattva said in the Book of Relatives and Friends:
+Nagarjuna Bodhisattva said in the "Letter to a Friend":
 
 ---
+TODO
 
-Life is not good, and it is the source of many troubles.
+Then once there’s birth, comes misery untold,
 
-After birth, it is the root of all troubles and troubles, because from then on, one can feel all kinds of pain.
+And sickness, ageing, wants frustrated, death,
+
+Decay, in short the whole great mass of pain.
+
+If birth is stopped, all this will be no more.
+
+---
 
 Therefore, if there is life, there will be death, and there will be suffering.
 
 All beings in the six realms have inexhaustible suffering.
 
-old pain, 20
-We all know the pain of old age.
+##### 2. Suffering of Old-Age
 
-The five aggregates of eyes, ears, nose, tongue, and body have all lost their original abilities.
+20
+We all know the suffering of old age.
+
+The five sense organs of eyes, ears, nose, tongue, and body have all lost their original abilities.
 
 The originally bright eyes became blurred and could not see anything;
 
-ears, often unable to hear;
+The ears, often unable to hear;
 
-The nose and tongue are very slow to sense odors, and they can't bite things when they eat;
+The nose and tongue are very slow to sense odors, and they can't taste things when they eat;
 
 The body moves slowly, or not at all;
 
-It turned out that her dark hair had turned white, her skin was wrinkled, and she was often disliked by others, causing great pain.
+Dark hair has turned white, the skin is wrinkled, and often disliked by others, causing great suffering.
 
-The predecessors of Karma said that the body is slowly getting old, but we don't know.
+Kadampa said:
 
-If you get old all of a sudden, no one can stand it, just like a young man, if your hair turns white all of a sudden, you will definitely stand it, but as you get older, you will not notice the pain of old age.
+that the body is slowly getting old,
+
+but we don't knowit.
+
+If you get old all of a sudden, no one can stand it. 
+
+Just like a young man, whose hair turns white all of a sudden, you will definitely be unable tostand it, but as you get older, you will not notice the pain of old age.
 
 Therefore, we must soberly realize that getting old is also a kind of suffering.
 
-The pain of sickness 
+##### 3. Suffering of sickness
 
-The pain of sickness is felt by everyone, big or small, saying no, all the pain.
-It's not a big problem when you get a minor illness, but when you get a serious illness, you will have a lot of pain, not only physical pain, but also in your heart, fear of death. This kind of psychological torture is very painful.
+Everyone has felt the pain of sickness, great or small, is felt by everyone. All the inexhaustible pain.
 
-There have been examples of this.
+It's not a big problem when you get a minor illness, but when you get a serious illness, you will have a lot of pain, and not just physical pain, but also in your mind, fear of death. This kind of psychological pain is extreme.
 
-Two people went to the hospital to check their health. One of them had stomach cancer, and the other was healthy. However, the doctor took the medical records wrong, and said there was no problem with the person who had stomach cancer. Yes, the person without stomach cancer said that he had stomach cancer. Inpatient surgery.
+We all know examples of this.
 
-Hearing what the doctor said, the stomach of the person who didn't have stomach cancer really started to hurt, and then he was hospitalized for more than 20 days, waiting for the experts in Beijing to perform the operation.
+Two people went to the hospital for physical examination. One of them had stomach cancer, and the other was healthy. However, the doctor mixed up the medical records, and said there was no problem with the person who had stomach cancer. However, the person without stomach cancer was told that he had stomach cancer and neede to be hospitalised for surgery.
+
+Hearing what the doctor said, the stomach of the person who didn't have stomach cancer really started to hurt, and then he was hospitalized for more than 20 days, waiting for the experts from Beijing to perform the operation.
 
 During this period, his health got worse and worse, and finally he couldn't get up, and he had to be supported by relatives when he went to the toilet.
 
-When the expert arrived, the expert saw that his symptoms did not look like gastric cancer, so he checked again and said that he did not have gastric cancer.
+When the expert arrived, the expert he saw that the symptoms did not look like gastric cancer, so he checked again and said that he did not have gastric cancer.
 
-As soon as he heard it, his body was healed immediately, and there was no more disease.
+As soon as the man heard this, his body got better immediately, and there was no more disease.
 
-So, let’s not say that if you have an incurable disease, even the name of the disease will frighten people to death. Many patients are frightened to death by the disease.
+So, even the name of a disease can frighten people to death. Many patients are frightened to death just by hearing it.
 
-In addition, the man-made industry is serious now, and all kinds of strange and strange diseases have appeared.
+In addition, the man-made karma is serious now, and all kinds of strange and wierd diseases have appeared.
 
-According to the records of Tibetan medicine, there are 424 cases of diseases in people, but now there are thousands of diseases.
+According to the records of Tibetan medicine, there were 424 types of diseases in humans, but now there are thousands of diseases.
 
-There are many diseases that I have never seen or even heard of in Tibet. I have never seen anyone with dementia in Tibet.
+There are many diseases that we have never seen or even heard of in Tibet. I have never seen anyone with dementia in Tibet.
 
-Yes, once, when speaking of scriptures in Tibet, everyone was surprised and said, "There is still this disease in the world?" It was very strange. Many people have never heard of vegetative people.
+Once, when I was teaching scriptures in Tibet, I mentioned this vegetative disease. Everyone was surprised and said, "This kind of disease still exists?" They all thought it was very strange. Many people had never heard of vegetative people.
 
 Now there are many strange diseases, and these diseases will cause suffering to people.
 
-twenty two
+22
 
-The Pain of Death When dying 
+##### 4. The Pain of Dying
+ 
 
-The four elements of the body are separated, and one's own body and soul are also separated, which is a very big pain.
-The first is the separation of the four major elements. The earth, water, fire, and wind are slowly pulled away. This process will be very painful for one's own body.
+At the moment of death, the four elements of the body are separated, and one's own body and consciousness are also separated, which is a very great suffering.
 
-And because of the relationship between karma and power, people will have various karmic feelings and feelings before death.
+First comes the separation of the four major elements. Earth, water, fire, and wind are slowly pulled away. This process will be very painful for one's own body.
 
-For example, if you are engaged in killing karma and often kill living beings before your death, you will feel that all kinds of animals you killed in your lifetime will trample your body, or you will be squeezed or smashed by huge mountains and boulders in the shape of the killed animals. There are many such horrible feelings.
+And because of the relationship between karma and power, people will have various karmic feelings and emotions before death.
 
-The most pitiful people are those who do not understand the process of death, the karmic obstacles are relatively heavy, and they did not study the Buddhadharma, or did not have religious beliefs or beliefs during their lifetime, and they will feel very painful at this time.
+For example, if you are engaged in killing karma and often kill living beings before your death, you will feel that all the animals you killed in your lifetime will trample your body, or you will be squeezed or smashed by huge mountains and boulders in the shape of the killed animals. There are many such horrible feelings.
 
-Because they don't understand  non-existence, the constant, and the choice, my heart will always be in pain because I don't give up on money, relatives and friends;
+The most pitiful people are those who do not understand the process of death, whose karmic obstacles are relatively heavy, and they did not study the Buddhadharma, or did not have any religious beliefs or practices during their lifetime, and they will feel very painful at this time.
 
-And because there is no belief, I feel helpless, full of fear of the unknown, and unable to get rid of death, very desperate.
+Because they don't understand  non-existence, the constant, and the choice, their heart will always be in pain because they don't let go of money, relatives and friends;
+
+And because there is no belief, they feel helpless, full of fear of the unknown, and unable to get avoid death, very desperate.
 
 Parents, wives and children, who thought they would never be separated in their entire lives, would suffer from love and separation when they faced parting or death.
-We hope that our life is a life full of love, and we can be with those who love each other, but we don’t know that this life is full of the pain of separation and separation at any time.
 
-Shantideva Bodhisattva said in the Treatise on Entering the Way of the Bodhisattva:
+We hope that our life is a life full of love, and we can be with those who love each other, but we don’t know that this life is full of the suffering of separation and separation can happen at any time.
+
+Shantideva Bodhisattva said in "The Way of the Bodhisattva":
 
 Love each other with each other, the god of death prompts each other to leave, and suffer unbearable pain. This is a certain number in the world.
 
