@@ -1683,15 +1683,21 @@ After realizing emptiness, even if it is not the actual realization, but the act
 
 53
 
-The Dhammakaya says:
+The "Dharmakaya" says:
 
-All dharmas arise from conditions, all dharmas die from conditions,
+>
+>All dharmas arise from conditions, 
+>
+>all dharmas die from conditions,
+>
+>I, the great recluse of the Buddha,
+>
+>often say the same thing.
+>
 
-I, the great recluse of the Buddha, often say the same thing.
+The Buddha talks about dependent origination and emptiness, and believes that all dharmas are dependent origination, all are cause and effect.
 
-The Buddha talks about dependent origination and emptiness, and believes that all dharmas are dependent origination, all are, cause and effect.
-
-We all know that none of the myriad laws and myriads exist independently, but exist in an interdependent relationship.
+We all know that none of the myriad causes and myriad effects independently, but exist in an interdependent relationship.
 
 For example, a cup has many materials inside and outside. It is not unique. It is made of many materials.
 
