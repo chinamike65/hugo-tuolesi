@@ -389,13 +389,13 @@ This type of Arhat is called an Arhat of Dependent Origination, an Arhat who has
 
 Solitary Arhats have not only cut off their afflictions, but also cut off part of cognitive obstructions. 
 
-Their level of enlightenment is higher than Shravaka Arhats. Therefore, their appearance has a little of the Buddha's thirty-two marks and eighty uaspicious features. For example, they have a part of the topknot, which the shravaka Arhats do not have.
+Their level of enlightenment is higher than Shravaka Arhats. Therefore, their appearance has a little of the Buddha's thirty-two marks and eighty auspicious features. For example, they have a part of the topknot, which the Shravaka Arhats do not have.
 
 5
 
-The goal of the Path of the Middle Scope practice is to be liberated. To be liberated is to have an enlightened mind, the realisation of Buddha-nature.
+The goal of the Path of the Middle Scope training is to be liberated. To be liberated is to have an enlightened mind, the realisation of Buddha-nature.
 
-Everyone has Buddha-nature, not only mention humans. 
+Everyone has Buddha-nature, not only humans. 
 
 Even animals have Buddha-nature, and all sentient beings have Buddha-nature.
 
@@ -850,13 +850,12 @@ There are many diseases that we have never seen or even heard of in Tibet. I hav
 
 Once, when I was teaching scriptures in Tibet, I mentioned this vegetative disease. Everyone was surprised and said, "This kind of disease still exists?" They all thought it was very strange. Many people had never heard of vegetative people.
 
-Now there are many strange diseases, and these diseases will cause suffering to people.
+Now there are many strange diseases, and these diseases will cause people to suffer.
 
 22
 
 ##### 4. The Pain of Dying
  
-
 At the moment of death, the four elements of the body are separated, and one's own body and consciousness are also separated, which is a very great suffering.
 
 First comes the separation of the four major elements. Earth, water, fire, and wind are slowly pulled away. This process will be very painful for one's own body.
@@ -875,310 +874,397 @@ Parents, wives and children, who thought they would never be separated in their 
 
 We hope that our life is a life full of love, and we can be with those who love each other, but we don’t know that this life is full of the suffering of separation and separation can happen at any time.
 
-Shantideva Bodhisattva said in "The Way of the Bodhisattva":
+Shantideva Bodhisattva said in "Entering the Way of the Bodhisattva":
 
-Love each other with each other, the god of death prompts each other to leave, and suffer unbearable pain. This is a certain number in the world.
+Love each other while with each other,
 
-Blind and loving together, it seems that life and death will not be separated, but in the end they will leave each other.
+the god of death prompts us to leave,
 
-Those who remain live in the world every day, suffering, and those who leave go to the other side and continue to suffer from rebirth.
+and suffer unbearable pain. 
 
-Because our love is small love, greed, not selfless, big love.
+This is a certain number in the world.
 
-Little love is easy to lose, and it will be painful if you lose it, and the deeper you love, the more painful it will be.
+Blind and loving together, 
 
-Great love is to love all beings in the six realms. There are countless sentient beings in the six realms. Therefore, great love will not be lost and will not suffer.
+it seems that life and death will not be separated, 
 
-Resentment, resentment, bitterness, things that you don't want to meet, people you don't want to meet, but often encounter, when you do, it's resentment, resentment, and bitterness.
-Karma is incredible, you have to bear the consequences yourself when you create your own karma.
+but in the end they will leave each other.
 
-Everyone, everyone does not want to have grievances and creditors, but because they have done bad karma and offended sentient beings, there are many grievances and creditors;
+Those who remain alive in the world suffer every day, and those who leave go to the other side and continue to suffer from rebirth.
 
-twenty four
+Because our love is small love, greedy, not selfless, great love.
 
-don't want to see
+Small love is easy to lose, and it will be painful if you lose it. The deeper you love, the more painful it will be.
 
-Ghosts will meet ghosts, even if they are afraid, they cannot escape;
+Great love is to love all beings in the six realms. There are countless sentient beings in the six realms. Therefore, great love will not be lost and will not suffer any pain.
 
-don't want to
+##### 6. Resentment
 
-Sin demons, but because of killing, some sentient beings who have killed have been reborn as demons.
+Things you don't want to meet, people you don't want to meet,
+
+But it is often encountered, that is, resentment and bitterness.
+
+Karma is incredible, you have to experience the consequences yourself when you create your own karma.
+
+No one wants to have grievances and creditors, but because they have committed non-virtuous deeds and offended sentient beings, there are many grievances and creditors;
+
+24
+
+If you don't want to see a ghost, you will meet a ghost, even if you are afraid, you can't hide;
+
+We don't want to offend demons, but because of killing,
+
+Some sentient beings who have been killed have been reincarnated as demons.
 
 This will cause resentment and bitterness.
 
-Usually when we see an enemy or a deadly enemy, our hearts keep beating.
+Often when we see an enemy or a deadly enemy, our hearts beat faster and we can't control it. We feel anxious and miserable.
 
-This kind of suffering does not want to be encountered by oneself, but it happens naturally.
+No one wants to experience this kind of suffering, but it happens naturally.
 
-Therefore, one should earnestly study the Dharma at all times, persist in the practice, do more life-releasing and almsgiving, and then dedicate the merits of the practice.
+Therefore, one should earnestly study the Dharma regularly, persist in our practice, do more life-releasing and almsgiving, and then dedicate the merits of the practice.
 
 When the karma between you and all sentient beings is eliminated, this kind of suffering is also eliminated.
 
-There are too many demands from our human beings. We cannot ask for money, we cannot ask for work, we cannot ask for health.
-Asking for something but always getting it, not getting it, these are all pains.
+##### 7. Suffering of dissatisfaction
 
-The Suffering of the Five Aggregates
+We human beings have too many demands. We ask for money but can't get it, we ask for work but can't get it, and we ask for health but can't get it.
 
-The five aggregates are form, feeling, perception, action, and consciousness. To put it simply, "color" is our body;
-"Suffering" is the feeling of pain and pleasure;
+Asking for something but never getting it, these are all pains.
 
-"Think" is thought;
+##### 8. The Suffering of the Five Aggregates
 
-The content of action includes a lot, "form, feeling, perception", other than that are actions, including the emptiness of the nose, ears, and mouth;
+The five aggregates or heaps of clinging are:
 
-"Consciousness" is consciousness, including eye-consciousness, ear-consciousness, nose-consciousness, tongue-consciousness, and body-consciousness.
+1. form (or material image, impression) (色)
+2. sensations (or feelings, received from form) (受)
+3. perceptions (想)
+4. mental activity or formations (行)
+6. consciousness (识)
 
-The Five Aggregates of Form, Feeling, Thinking, Action, Consciousness, especially the Form Aggregate, include the eyes, ears, nose, tongue, and body.
+
+To put it simply, "form" is our body;
+"feeling" is the feeling of pain and pleasure;
+
+"perception" is thought;
+
+The content of mental formations includes a lot, "form, feeling, perception", other than that are mental formations, including the emptiness of the nose, ears, and mouth;
+
+"Consciousness" is sense consciousness, including eye-consciousness, ear-consciousness, nose-consciousness, tongue-consciousness, and body-consciousness.
+
+The Five Aggregates of form, feeling, perception, mental formations, and consciousness, especially the aggregate of form , include the five sense organs: eyes, ears, nose, tongue, and body.
 
 The suffering of the five aggregates means that the body is the root and vessel of suffering. Once the body of the five aggregates is formed, there will be suffering.
 
-For example, if afflictions are water, then the body is a water tank that holds water for afflictions. With a body in which the five aggregates are in harmony, all kinds of afflictions and sufferings will come.
+For example, if afflictions are water, then the body is a water tank that holds water for afflictions. With a body in which the five aggregates are in present, all kinds of afflictions and sufferings will come.
 
-Therefore, the body of the five aggregates gathered by the five aggregates is itself a type of great suffering. The first seven types of suffering must be felt by the body of the five aggregates. If there is no body of the five aggregates, the first seven types of suffering will not appear. No way, feel.
+Therefore, the body which unites the five aggregates is itself a type of great suffering. The first seven types of suffering must be experienced by the body of the five aggregates. If there is no body of the five aggregates, the first seven types of suffering will not appear. There is no way to feel.
 
 Therefore, it is said that the "five aggregates" are the basis for sentient beings to experience suffering.
 
 In addition, since the five aggregates are also impermanent, looking at them separately, each of the five aggregates is also full of suffering.
 
-First of all, look at the aggregate of materiality, that is, our body. This body is also impermanent. It changes every day.
+First of all, look at the aggregate of form, that is, our body. This body is also impermanent. It changes every day.
 
-Looking at the feeling aggregate, many of the feelings of suffering and happiness are suffering.
+Looking at the aggregate of feeling , many of the feelings of suffering and happiness are suffering.
 
-Thinking refers to thinking. Our minds are thinking about messy and bad things. We can’t get what we want, and it’s also very painful.
+Perception refers to thinking. Our minds are thinking about messy and bad things. We can’t get what we want, and it’s also very painful.
 
-Looking at the aggregate of formations, the range of formations is very wide. All things and ten thousand things other than form, feeling, perception, and consciousness are all formations, including space, nirvana, and so on.
+Looking at the aggregate of mental formations, the range of formations is very wide. All things and ten thousand things other than form, feeling, perception, and consciousness are all formations, including space, nirvana, and so on.
 
-The dimension of the human body is also a line. If the dimension of the human body is gone, it will be very hard.
+TODO
 
-For example, if you are hungry, you see something delicious, but your stomach is full after eating, no, there is room, it will be very painful.
+The space inside the human body is also a mental formation. If the space inside the human body is gone, it will be very hard.
+
+For example, you are hungry, and you see something delicious, so you eat until you are full, and there is no room left, it will be very painful.
 
 Consciousness is the mind, also known as mind. The external environment is impermanent. When the mind feels happiness, it will soon become misery.
 
-The heart does not want to receive painful things, but it can always feel it, so it is always painful.
+The mind does not want to experience painful things, but it can always feel it, so it is always in pain.
 
-Buddhas have no physical body, and the bodies of bodhisattvas below the seventh level are similar. The light body of consciousness, the bodhisattvas of the eighth level and above, and the Arhats of the four fruitions have obtained the true light body of wisdom. The light body of wisdom has only happiness and no pain.
+Buddhas have no physical body, and the bodies of bodhisattvas below the seventh level are similar. The light body of consciousness, the bodhisattvas of the eighth level and above, and the Arhats of the fourth fruit have obtained the true light body of wisdom. The light body of wisdom has only happiness and no pain.
 
-, and the physical body of our five aggregates will have all kinds of pain, that is, there will be no pain for the time being. As long as the five aggregates are still there, all kinds of suffering will follow.
+The physical body of our five aggregates will have all kinds of pain, that is, even if there is no pain for the time being, ss long as the five aggregates are still there, all kinds of suffering will follow.
 
-The suffering of the five aggregates is a type of suffering, and it is the root of all suffering in this life and in the future, because the various sufferings of the five aggregates cause us to be in samsara all the time. Only by knowing more about the suffering of the five aggregates can we truly be disenchanted, samsara, and renunciation.
+The suffering of the five aggregates is a type of suffering, and it is the root of all suffering in this life and in the future, because the various sufferings of the five aggregates cause us to be in samsara all the time. Only by knowing more about the suffering of the five aggregates can we truly be disenchanted with samsara, and develop renunciation.
 
 The sufferings of people in the six realms are mainly the eight sufferings.
 
-Human suffering is endless, because there are many sufferings that we didn’t know before, but only after we studied the Buddhadharma did we realize that there are so many sufferings.
+Human suffering is endless, because there are many sufferings that we didn’t know before, but only after we study the Buddhadharma do we realize that there are so many sufferings.
 
-It turns out that we have been suffering in a daze, and what we used to think is beautiful, as long as we carefully analyze and feel it.
+It turns out that we have been suffering in ignorance, and what we used to think is beautiful, as soon as we carefully analyze and feel it, find that it is actually suffering. 
 
 27
 
-You will find that it is actually suffering.
 
-For example, the daily necessities of life are suffering. When eating, when the food is placed on the table, it looks very beautiful and very appetizing, but when eating, it is chewed and chewed in the mouth, and it is only swallowed when it is chewed.
+For example, the daily necessities of life are suffering. 
 
-At this time, no one will want to eat the food after seeing it, because they can swallow it because they have not seen it. Therefore, the food eaten is not really dry, clean and fresh.
+When eating, when the food is placed on the table, it looks beautiful and very appetizing, but when eating, it is chewed and chewed in the mouth until it is mashed up before swallowing.
 
-The same is true of where we live, no matter where we live, after a period of time, we will be troubled in our hearts. In the eyes of others, it looks like a very good house, but we will feel uncomfortable when we live there.
+Seeing this, no one would want to eat the food, and they can swallow it because they have not seen it. Therefore, the food that eaten is not really dry, clean and fresh.
 
-There are countless troubles even with one piece of clothing.
+The same is true of where we live. No matter where we live, after a period of time, we will be troubled in our minds. To other people, it looks like a very good house, but we will feel uncomfortable living there.
 
-When the weather is not cold or hot, it will be more comfortable not to wear clothes, but it is necessary to wear them.
+There are countless troubles even with one item of clothing.
 
-The weather is cold and the pain is cold, so I need to add some clothes;
+When the weather is neither cold or hot, it is more comfortable not to wear clothes, but it is necessary to wear them.
 
-In summer, when the weather is hot and the pain is hot, it is necessary to reduce the clothes, sometimes the clothes are not enough, and the air conditioner must be turned on;
+When the weather is cold and the cold is painful, we need to put on some more clothes;
+
+In summer, when the weather is hot and the heat is painful, we need to take off some clothes. Sometimes that is not enough, and the air conditioner has to be turned on;
 
 If you turn on the air conditioner too much, you will get sick. It's all trouble, and it's all pain.
 
-There are also countless pains in the day, the pain of having to go to work during the day, the pain of going to work;
+There are also countless pains in daily life, the unavoidable pain of having to go to work;
 
 At night there is fatigue, insomnia, nightmares, and pain.
 
-In addition to these obvious pains, there are all kinds of troubles.
+In addition to these obvious pains, there are many other kinds of troubles.
 
 Leaders have the troubles of leaders, bosses have the troubles of bosses, ordinary people have the troubles of ordinary people, and these troubles are also pains.
 
 28
 
-The Bodhisattva Asanga said that human beings have one hundred and ten kinds of suffering, but in fact it is far from them.
+The Bodhisattva Asanga said that human beings have one hundred and ten kinds of suffering, but in fact it is far more.
 
-After understanding the suffering of human beings, we should think about it again. We still need to reincarnate in the next life. If we still want to become human, we must continue to suffer.
+After understanding the suffering of human beings, we should think about it again and again. We still need to be reborn in the next life. If we still want to become human, we must continue to suffer.
 
-When we really want to understand, after we no longer want to be greedy for the wealth and honor of the world, and no longer want to reincarnate as a human being, we will have the thought of renunciation from the suffering of human beings and the Tao. This is also a kind of renunciation, but it is not the middle Shidou's renunciation.
+When we truly understand that we no longer want to be greedy for worldly wealth and no longer want to reincarnate as human beings, we will have the idea of renunciation from the suffering of humanity. This is also a kind of renunciation, but it is not the renunciation of the path of the middle scope.
 
-(3) Three Sufferings 
+### (3) Three Sufferings 
 
-The three sufferings are suffering, becoming suffering, and doing suffering.
+The three sufferings are: 
 
-Suffering is the suffering of feeling. It can be said that it is suffering within suffering, sensitive suffering. The suffering we all think is suffering. Being ill is suffering, being beaten and scolded is also suffering, and suffering in the three evil realms is suffering.
+1. The suffering of suffering
 
-To become miserable becomes miserable, and it is called bad misery, that is, happiness turns into misery, which is itself a kind of misery.
+2. The suffering of change
+
+3. All-pervasive suffering
+
+##### 1. The suffering of suffering
+
+The suffering of suffering is the suffering of feeling. It can be said that it is suffering within suffering, sensitive suffering. The suffering that we all usually think of as suffering. 
+
+##### 2. The suffering of change
+
+The suffering of change is the suffering caused by the fact that life is constantly changing.
+When you do get what you want, you can’t hold onto it. Even if things are going great now, it’s just a matter of time. The richest, most successful person in the world will eventually lose it all.
 
 What we think of as happiness is not real happiness.
 
-For example, eating seems to be a kind of happiness, because when you eat, you usually feel very comfortable, and when you eat a big meal, you are even more happy.
+For example, eating seems to bring a kind of happiness, because when you eat, you usually feel very comfortable, and when you eat a big meal, you are even more happy.
 
-If eating is really a kind of happiness, it should be that the more you eat, the more you want to eat, the more you eat, the faster you will be happy.
+If eating were really a kind of happiness, it should follow that the more you eat, the more you want to eat. The more you eat, the more you will be happy.
 
-However, we all know that this is not the case. If you eat too much, it will become pain.
+However, we all know that this is not the case. If you eat too much, it will cause you pain.
 
-Why is this? Explain that the essence of eating is pain, and the feeling of happiness when eating is actually just hunger, and the pain is reduced.
+Why is this? It shows that the essence of eating is pain, and the feeling of happiness when eating is actually just a reduction in the pain of hunger.
 
-The same is true when traveling. When I first set off, I was very excited, and I felt that the scenery outside was beautiful, but if I kept walking, it would gradually become painful.
+The same is true of traveling or going on holiday. When we first set off, we are very excited and feel that the scenery is so beautiful, but if we keep walking, we would gradually get tired and bored of seeing it, and it would gradually become insufferable.
 
-Such suffering is called suffering.
+Such suffering is called suffering of change.
 
-Asceticism is the suffering of all things changing and impermanent.
-This kind of change is not at all, it is based on our will, it is non-negotiable, and therefore, it is a kind of persecution.
+##### 3. All-pervasive suffering
 
-This impermanent, impermanent change is the practice of suffering.
+All-pervasive suffering is the suffering of all things changing and impermanent.
+
+It’s the general background of anxiety and insecurity that colors even our happiest moments. Deep down, we fear that life doesn’t offer us solid ground and that our very existence is questionable.
+
+This kind of change is completely independent of our will and is non-negotiable, so it is a kind of coercion.
+
+This impermanent, constant change is all-pervasive suffering.
 
 Not only is life impermanent, but everything is impermanent, changing every moment.
 
-Because of the persecution of suffering, when we need help, we do not have it;
+Because of the pervasiveness of suffering, when we need help, we cannot get it;
 
 30
 
-When you want to rely on someone, you can't rely on it. Originally, you can rely on some kind of help that you get, but because of changes, it is lost. These are all suffering.
+When you want to rely on someone, you can't. You used to be able to rely on some kind of help, but things have changed. These are all suffering.
 
-Suffering is very subtle, it is relatively subtle impermanence, not gross, impermanent.
+All-pervasive suffering is very subtle, it is relatively subtle impermanence, not gross impermanence.
 
-Only enlightened saints, or people who have realized emptiness, can see it.
+Only enlightened sages, or people who have realized emptiness, can see it.
 
-Most people need to use a magnifying glass to see tiny dust.
+Most people need to use a magnifying glass to see tiny specks of dust.
 
-The second Sega wood-like living Buddha, Master Jigme Wangpo, was the abbot of Labrang Monastery.
+The Second Jamyang Zhepa, Konchok Jigme Wangpo, was the abbot of Labrang Monastery.
 
 In the past, the fastest way to travel was on horseback. It took seven days to travel from Xining to the Labrang Monastery in Gansu.
 
-One time when I went to Labrang Monastery, the master was riding a horse, and he had been observing the sufferings along the way. When he arrived at the Labrang, he said that it took seven days to observe and understand the sufferings, but it was not very complete.
+One time when he went to Labrang Monastery, the master was riding a horse, and he had been observing the sufferings along the way. When he arrived at the Labrang, he said that it took seven days to observe and understand sufferings, but it was not avery complete understanding.
 
-Therefore, it is difficult to understand and understand the suffering of actions, because the afflictions and karma of sentient beings are constantly circulating, and the causes of suffering and suffering are constantly circulating and changing, so it is difficult to observe clearly.
+Therefore, it is difficult to gain an understanding of all-pervasive suffering, because the afflictions and karma of sentient beings are constantly circulating, and the causes of all-pervasive suffering are constantly circulating and changing, so it is difficult to observe them clearly.
 
 These are the three sufferings, and these are the sufferings common to the six realms.
 
-(4) The bitter asuras of the asura path are also called non-heaven and non-human, which means that compared to the gods, these living beings are like gods but not gods.
+### （4）The suffering of Asuras
 
-Asuras live on Mount Sumeru, below the sea level, there were four cities called Guguang, Yueman, Miao, Ju and Momo, and there was a certain distance between them and the heavens.
+The bitter asuras of the asura path are also called demi-gods, which means that compared to the gods, these living beings are like gods but not gods.
+
+Asuras live on Mount Sumeru, below the sea level, there are four cities called Guguang, Yueman, Miao, Ju and Momo, and there is a certain distance between them and the heavenly realms.
 
 31
 
-Although Asuras are generally similar to the celestial world, they cannot be compared with the celestial world.
+Although Asuras are generally similar to beings in the celestial world, they cannot be compared with the celestial beings.
 
 Asura beings are twice as tall as humans, a hundred times more beautiful than humans, and have some magical powers.
 
-Very rich, no matter how big the world is, rich and honorable, it looks very, very bad in Asura.
+They are very rich, but no matter how great their riches and status, everything looks very, very bad to an Asura.
 
-Nagarjuna Bodhisattva's "Book of Relatives and Friends" says:
+Nagarjuna Bodhisattva's "Letter to a Friend" says:
 
-Those who are not gods are suffering and heavy, because of their natural hatred of gods and blessings, and because of their interesting nature, although they have wisdom, they do not see the truth.
+---
 
-That is to say, although Asuras are very wealthy, beautiful in appearance, and have high wisdom, their bodies are obscured by karmic obstacles and obscured. This kind of body has no fate to come into contact with the Buddhadharma, and thus will never be liberated. Opportunity.
+>
+>The asuras begrudge the gods their splendor,
+>
+>Their inbred loathing thus torments their minds.
+>
+>Though clever, they’re obscured as all their kind,
+>
+>And so it is they cannot see the truth.
+>
 
-Beings in the heavens often plunder the beautiful women in the asuras, and they can enjoy the immortal nectar juice. .
+---
 
-In addition, Asura can see with his supernatural powers that he is very jealous of the glory and wealth of the thirty-three days. Therefore, Asura often goes to war with gods and humans, and also fights with wealthy Yaksha beings, and fights with the Eight Great Dragon Kings.
+That is to say, although Asuras are very wealthy, beautiful in appearance, and have high wisdom, their minds are obscured by karmic obstacles and obstructions. This kind of mind does not have the chance to come into contact with the Buddhadharma, and thus will never be liberated. 
 
-, When fighting, you must first fight the dragons on all sides of Mount Sumeru, and sometimes you will beat the dragons.
+Beings in the heavens, the gods, often plunder the beautiful women of the asuras, and they can enjoy the nectar of immortality.
+
+In addition, Asura can see with his supernatural powers that he is very jealous of the glory and wealth of the Thirty-Three Gods. Therefore, the Asura often go to war with heavenly beings, and also fight with wealthy Yaksha beings, and fight with the Eight Great Dragon Kings.
+
+In war, they must first fight the dragons on all sides of Mount Sumeru, and sometimes they will beat the dragons.
 
 32
 
-Then they will fight the Four Heavenly Kings on the fourth level of Mount Sumeru. At this time, they will generally not win.
+Then they will fight the Four Heavenly Kings on the fourth level of Mount Sumeru. Here, they will generally not win.
 
-Occasionally won once, will hit thirty-three, days go.
+Occasionally, they win, and will then attack the heaven of the Thirty-Three Gods.
 
-In the thirty-three days, the great king has Di Shitian, and the emperor has thirty-two sons. These thirty-two sons are also kings and rule over the other thirty-two heavenly kingdoms, so they are called thirty three gods.
+Indra is the Emperor of the Thirty-Three Gods, and has thirty-two sons. These thirty-two sons are also kings and rule over the other thirty-two heavenly kingdoms, so they are called Thirty-Three Gods.
 
-Asuras, fighting with gods and humans, often lose, and if you fight a hundred times, you may have a chance to win a little bit.
+When fighting with heavenly beings, the Asuras often lose, and if they fight a hundred times, they may have a chance to win once in a while.
 
-When fighting, the elephant "Guardian" in the heavens can smash the big stone at Asura with a swing of its nose.
+In battle, the elephant "Guardian" of the heavens can hurl enormous stones at the Asuras with a swing of their trunk.
 
-Emperor Shatian's mount is a three-headed fragrant elephant with a sword wheel on its nose, which can be rotated, and the sword wheel stabs at Asura.
+Indra's mount is a three-headed fragrant elephant with a sword wheel on its nose, which can be rotated, and the sword wheel slashes the Asuras.
 
-Even if the god is hit by a weapon, as long as the head is not broken, he will not die;
+Even if a god is struck by a weapon, as long as the head is not injured, he will not die.
 
-Once Asura is hit at the vital part, it will be fatal, and if his limbs are cut off, he will be disabled and lose his ability to fight.
+Once an Asura is hit in a vital point, it will be fatal, and if his limbs are cut off, he will be disabled and lose his ability to fight.
 
 Therefore, every war always ends with the defeat of the Asuras, and there is almost never a chance of victory.
 
-When we fight in the human world, even if the two sides are evenly matched, the soldiers will have deep fears. Asuras and the more powerful gods are fighting, their fears are indescribable. Male Asuras will endure this kind of life. Fear the pain of war.
+When we fight in the human world, even if both sides are evenly matched, the soldiers will have deep fears. When Asuras and the more powerful gods are fighting, their fears are indescribable. Male Asuras have to endure the pain of this fearful war all their lives.
 
-In addition, because of frequent wars, millions of asuras will die every time they fight. Because of the many asuras who are disabled in wars, it is very painful.
+In addition, due to frequent wars, millions of asuras die every time they fight. and there are many, many asuras who are disabled due to wars, and there is a lot of pain.
 
 33
 
-There is a lake in the Ashura world called "Tongguan Lake", which is like the live broadcast on TV, although the male Ashura's wife and children did not participate in the battle, and stayed at home.
+There is a lake in the Ashura world called "Tongguan Lake", which is like a live broadcast on TV. Although the  wives and children do not participate in the battle, and stay at home, they can still see their husbands, sons, fathers and brothers being killed in the projection on the lake. They suffer even more pain and are grief-stricken.
 
-However, seeing the sight of her husband, son, and brother being killed in the war on the lake is even more painful and grief-stricken.
+The splendor and wealth of the Asuras  was originally very good, but because of their greedy desire and jealousy, and delusional thinking, and by trying to rob heavenly beings, eventually harmed themselves.
 
-Asura's splendor and wealth were originally very good, but because of his greedy desire and jealousy, he delusionally obtained it, and the gods and humans benefited him, and eventually he harmed himself.
+### （五）The suffering of heavenly realms
 
-(5) There are several types of sentient beings in the realm of suffering: the six heavens in the desire realm, the seventeen heavens in the form realm, and the four heavens in the formless realm.
+There are several types of sentient being in the heavenly realms: the lowest level are the six heavens of the Desire realm, seventeen heavens in the Form realm, and four heavens in the Formless realm.
 
-The six heavens of the desire realm have six layers: the four heavenly kings, one day is the human world, fifty years;
+There are six heavens of the desire realm on six levels: 
 
-Thirty-three days, one day is a hundred years in the world;
+1. the Heaven of the Four Great Kings, where one day is the equivalent of fifty years in the human world;
 
-Ye Motian, a day is two hundred years in the world;
+2. the Heaven of the Thirty-three Gods (ruled by Indra/Sakya), where one day is a hundred years in the human world;
 
-Tusita, a day is four hundred years in the world;
+3. Suyama (ruled by King Yama), where a day is two hundred years in the human world;
 
-Hua Letian, one day is eight hundred years in the world;
+4. Tusita (home of the future Buddha Maitreya), where a day is four hundred years in the human world;
 
-He transforms into heaven, one day is 1,600 years in the human world.
+5. Sunirmita (the Heaven of Pleasant Transformations), where one day is eight hundred years in our world;
+
+6. Paranirmita (abode of Mara), one day is 1,600 years in the human world.
 
 34
 
-The six heavens of the Desire Realm are very rich. There are mountains of gold and silver, and all kinds of treasures are formed. The heavens and humans look at these like we look at the stones on the mountain. It can be seen how rich the heavens are.
-There are many beautiful flowers, many pools that can be bathed, and all kinds of lotus flowers bloom in the pools, which emit a very strong fragrance.
+##### 1. The six heavens of the desire realm
+
+The six heavens of the Desire Realm are very rich. There are mountains of gold and silver, and all kinds of treasures are formed. The heavenly beings look at these the way we look at the stones on the mountain. It can be seen how rich the heavens are.
+There are many beautiful flowers, many pools for bathing, and all kinds of lotus flowers bloom in the pools, which emit a very strong fragrance.
 
 There is a wish-fulfilling tree in the heavens, if you need anything, the wish-fulfilling tree can satisfy it.
 
-A gust of wind blew, and the clothes of the gods were changed into new ones. They were very beautiful, and they lived very comfortably and freely.
+With a gust of wind, the clothes of the gods are changed into new ones. They are very beautiful, and they live very comfortably and freely.
 
-The six heavenly beings in the Desire Realm are more beautiful and richer than Asuras.
+The beings in the six heavenly  realms of the Desire Realm are more beautiful and richer than Asuras.
 
-, diet is nectar, eat a little nectar every day to satisfy the appetite.
+Their diet is nectar, and they eat a little nectar every day to satisfy the appetite.
 
-Heaven, and human lifespans are very, very long. According to the time in the heavens, some are five or six hundred years old, and some are several thousand years old.
+The lifespans of heavenly beings are very, very long. According to the time in the heavens, some are five or six hundred years old, and some are several thousand years old.
 
-But the gods and humans will not be able to do it in their lifetimes, they will only have fun if they practice, and they will die when the blessings of the previous life are exhausted.
+But the heavenly beings will not practice the Dharma in their entire lifetimes. They will only enjoy themselves, and they will die when the accumulated merit of previous lifetimes are exhausted.
 
-Death omens will appear in the last seven days before the death of devas, for example, desire, the last seven days of the four heavens, the lowest of the six heavens in the realm, one day is equivalent to fifty years in the human world, and seven days is equal to three hundred and fifty years in our world. During one hundred and fifty years, there will be death omens. There are ten kinds of death omens, which are divided into five death omens in the far distance and five near death omens.
+Death omens will appear in the last seven days before the death of a god. For example, the last seven days of the Four Heavenly Kings, the lowest of the six heavens in the Desire Realm, one day is equivalent to fifty years in the human world, and seven days are equal to three hundred and fifty years in our human world. During these three hundred and fifty years, there will be signs of death. 
 
-The Book of Friends says:
+There are ten kinds of death omens, divided into five death omens far away and five near death omens.
 
-The color of the body has become unlovable, the seat of the house is wilted, the clothes are stained with sweat, and the walk is unprecedented.
+The "Letter to a Friend" says:
+
+>
+>Their bodies’ colors cease to charm and please,
+>
+>Their seats grow hard, their flowered wreaths do wilt,
+>
+>Their clothes are stained, and on their bodies now appear
+>
+>Rank drops of sweat they never had before.
+>
+
+
+>
+>These five are signs that herald death in heaven,
+>
+>Appearing to the gods in their abodes.
+>
+>They’re not unlike the signs of death that warn
+>
+>Of coming death in humans on the earth.
+>
 
 35
 
-The five signs of death in the heavenly retribution appear in the gods of the heavens, as well as among the people on earth, to report the signs of death that should die.
+These five signs of death that herald death and transmigration in the higher realms (meaning the god realms) occur for the gods living in the god realms of the world of desire, and are similar to the signs of death — the stench of death and so on — that announce approaching death in humans on earth.
 
-The far five signs of death are the phenomena that appear in the early stages of death, including the loss of body light, the inability to sit still, the old flower garland, the stained clothes, the body, and the body sweating.
+The five signs heralding death are the phenomena that appear in the early stages of death, including (1) their beautiful complexions fade and they grow ugly; (2) their seats become uncomfortable to sit on; (3) the garlands of flowers with which they are adorned grow old; (4) stains appear on their garments; and (5) sweat, hitherto absent, now breaks out on their bodies and they smell foul.
 
-From the moment of the death omens, the spirits of the gods and men are not good, they don't like it, they happily sit on their own thrones, and they can't sit still anymore.
+From the moment of the death omens, the spirits of the heavenly beings are not good. They don't like it, their own throne has become hard, and they can't sit still anymore.
 
-Encrusted, and the crown of jewels and green hair also withered;
+Encrusted with sweat, the crown of jewels and flowers in their hair also withers;
 
-Then the flower vines become old. The flower vines worn on the head, neck, and arms are very fragrant and beautiful. In a day in the world, they will naturally change three times. From the moment of death, they cannot be replaced, and they will slow down. Slowly getting old, rotten, and rotten, it cannot be removed;
+The flower garlands worn on the head, neck, and arms are very fragrant and beautiful. In a day in the world, they will naturally change three times. From the moment of the appearance of the signs of death, they cannot be replaced, and they will wither. Slowly getting old, smelly, and rotten, and they cannot be removed;
 
-Then there is the stain on clothes. In a day in the human world, as long as a gust of wind blows, the clothes of gods and humans will not know, and they will change three times without realizing it, and they are also very beautiful clothes. I can't change it. For example, the seven days of the Four Heavenly Kings are equivalent to three hundred and fifty years in the human world. During this period of time, I wear this suit every day. It has become stinky and tattered, and I can't change it. Think again, The previous enjoyment was very difficult to accept in my heart, but there was no way.
+Then there are the stains on their clothes. 
 
-People's clothes can be bought when they are old, but this is not the case in the heavens;
+In a day in the human world, as long as a gust of wind blows, the clothes of heavenly beings will not know, and they will change three times without realizing it, and they are also very beautiful clothes. Now they can't change. For example, the seven days of the Four Heavenly Kings are equivalent to three hundred and fifty years in the human world. During this period of time, they wear this suit every day. It has become stinky and tattered, and they can't change it. 
 
-Then, the body sweats, the two armpits sweat naturally, and the body emits a great odor
+Thinking back over the previous enjoyment is very difficult for their minds to accept, but there was no way to go back.
+
+People can buy new clothes when the the ones they have get old, but this is not the case in the heavens;
+
+Then, the body sweats, the two armpits sweat naturally, and the body emits a great stench.
 
 36
 
-Heavenly people are born with scents, and have never smelled odors. Therefore, after the smell comes out, neither themselves nor the heavenly people around them can stand it, but they cannot escape, they can only endure it.
+Heavenly people are born with a fragrant scent, and have never encountered a stench like this. Therefore, after the stench comes out, neither themselves nor the heavenly people around them can stand it, but they cannot escape, they can only endure it.
 
-Nearly five death omens are more serious, including the sudden disappearance of body light, bathing, water on the body, uncontrollable music, blinking eyes, and reluctance to part with the situation.
+The five signs that death is near are more serious, including the sudden disappearance of body light, bathing, water on the body, uncontrollable music, blinking eyes, and reluctance to depart.
 
-Before the death omens, the heavenly beings are like corpses that make people fear and disgust, they are abandoned aside, and the other emperors and goddesses are unwilling to take a look.
+Before death, the heavenly beings are like corpses that make people fearful and disgusted, they are abandoned, and the other emperors and goddesses are unwilling to look at them.
 
-When there is no sign of death, everyone plays together every day. If anyone finds the sign of death, every heavenly being will avoid him far away, because the body and body are very smelly, and other heavenly beings can't stand it.
+When there are no signs of death, everyone plays together every day. If the signs of death appear, other heavenly being will keep far away from him, because the body is very smelly, and other heavenly beings can't stand it.
 
-Some relatives and friends may pick up a few flowers from a branch, put them on his head, and say, "May you be born in this world after your death, and come to see us after accumulating blessings!", there will be no other expressions. , there is no way to help him, only to let him die there in pain.
+Some relatives and friends may pick up a few flowers from a branch, put them on his head, and say, "May you be born in this world after your death, and come to see us after accumulating blessings!" There will be no other expressions. There is no way to help him, only to let him die there in pain.
 
-What is even more painful is that the celestial beings are called "those who know the three worlds", that is to say, after the celestial beings are born, they will know why they were born and become the celestial beings;
+What is even more painful is that the celestial beings are called "those who know the three worlds", that is to say, after the celestial beings are born, they will know why they were born and became celestial beings;
 
 Knowing when to die from the omen of death;
 
@@ -1186,268 +1272,342 @@ After death, where will you be reborn.
 
 Knowing this makes it even more painful.
 
-And heaven and man have supernatural powers and can see their own future.
+Heavenly beings have supernatural powers and can see their own future.
 
-, When you are not in hell, you can also see hell, see the suffering of all beings in hell, and think of your next life, it will be very painful.
+When you are not in hell, you can also see hell, and can see the suffering of all beings in hell, and think of your next life, it will be very painful.
 
 some days
 
 37
 
-People know that they will become pigs and dogs in the human world in the next life. When they see pigs and dogs, they will eat nectar after life. When they think of going to the next life, they will become a pig in the human world and eat those dirty things. ,Very painful.
+Some celestial beings know that they will become pigs and dogs in the human world in the next life. After seeing the life of pigs and dogs, they think of how they used to live on nectar. When they think of going to the human world to become a pig and eat those dirty things in the next life, their minds will be in very, great pain.
 
-The grand enjoyment of the heavens makes the heavens and men deplete their own blessings, so most of them fall into the evil realm after death.
+The grand enjoyment of the heavens makes the heavenly beings deplete their own accumulated merit, so most of them fall into the evil realms after death.
 
-Since the gods and humans know in advance where they will go in the next life, there is no way to change them, so they are extremely distressed.
+Since the heavenly beings know in advance where they will go in the next life, and that there is no way to change it, they are extremely distressed.
 
-When we human beings die, most people do not know the next life, whether it is good or bad, and they pass away in confusion, so the pain and anxiety are not so intense.
+When we human beings die, most people do not know the next life, whether it will be good or bad, and they pass away in confusion, so the pain and anxiety are not so intense.
 
-In addition, the blessings of the gods are not all the same. If the blessings are small, the gods will panic and fear when they see the great power and benefit. The gods with great blessings often oppress the gods with small blessings.
+In addition, the blessings of the gods are not all the same. If the blessings are small, the gods will panic and fear when they see great power and benefit. The gods with great blessings often oppress the gods with lesser blessings.
 
-The light on the human body is very strong, and the light on the small blessing is relatively weak. When the two meet, the pressure of the small blessing will be very, very large, and the small blessing will be reported to the sky. People were driven away from their dwelling places and suffered great pain and sorrow.
+The light from the body of gods with great merit is very strong, and the light from the body of gods with lesser merit is relatively weak. When the two meet, the pressure on the gods with lesser merit is very, very large, and the gods with lesser merit will be driven away from their dwelling places and suffer great pain and sorrow.
 
-In addition, when fighting with Asuras, although generally speaking, the gods will win, but in the process of fighting, the gods also have the pain of being injured and being killed.
+When fighting with Asuras, although generally speaking the gods will win, the gods also have the pain of being injured and being killed in the process of fighting.
 
-If you are reborn in the Desire Realm for six days, your enjoyment will be equivalent to me, the tens of thousands of years in the human world, because the blessings accumulated in the previous life are completely exhausted in this, the next rebirth, and the new blessings cannot be accumulated. Therefore, the vast majority of heavenly beings will fall into the evil realm after death, almost 100%.
+If you are reborn in one of the six heavens of the Desire Realm, your enjoyment will be equivalent to tens of thousands of years in the human world. Once the merit accumulated in previous lives is completely exhausted in this rebirth, and since new merit cannot be accumulated, the vast majority of heavenly beings will fall into the evil realms after death, almost 100%.
 
-Therefore, when we look at them, although they can be extremely happy in their lifetimes, their endings in the later life are actually very painful.
+Therefore, when we look at them, although they can be extremely happy in their lifetimes, their endings in the later rebirths are actually very painful.
 
-Knowing this, we will generate renunciation, renunciation, the six heavens of the desire world, and the enjoyment of leaving the heavenly realm.
+When we understand this, we will generate renunciation, to leave the six heavens of the desire realm, and also to avoid the enjoyment of the heavenly world, and vow not to be reborn in the six heavens of the desire realm in the next life, and not to become a deity in the desire realm.
 
-There are also gender differences in the six heavens of the Suffering Desire Realm in the Form Realm Heaven. Starting from the Form Realm Heaven, the devas are no longer divided into genders, but they can be distinguished according to their body appearance. When it comes out, female devas are lighter in body shape. Men are thicker and heavier, there is such a little difference, and there is no difference in gender.
-The enjoyment of the seventeen days of the form world is greater. The devas of the form realm are twice as tall as the devas of the desire realm, and they are more beautiful than the devas of the desire realm. good day.
+##### 2. The Suffering of the Form Realm
 
-Eating, upper, the six-day diet in the Desire Realm uses nectar, and even in the Form Realm, nectar is not used. Eating and drinking is meditation. Once you are born, you have the ability to meditate.
+There are also gender differences in the six heavens of the Desire Realm. Starting from the Heaven of the Form Realm, the heavens and men are no longer divided into genders, but they can be distinguished according to their bodies. A little difference, no gender difference.
 
-The life of the Heaven of the Form Realm is also much longer than that of the Sixth Realm of Desire, but it is still enjoying it all the time. The moment the blessings are exhausted, he will die. There is no sign of death. After death, he will fall into the evil realm. pain.
+Men are thicker and heavier, there is such a little difference, and there is no difference in gender.
 
-In the formless realm, suffering and colorlessness means that there is no body. In the four days of the colorless world, heaven and human have no body, only consciousness exists.
-When the devas of the Formless Realm are born, they will have the consciousness, consciousness, and feeling that they have been born, and then they enter the meditation, and they will not know anything.
+In the devas of the seventeen heavens of the form realm the difference is greater. The devas of the form realm are twice as tall as the devas of the desire realm, and they are more beautiful than the devas of the desire realm. good day.
 
-There may be hundreds or tens of thousands of kalpas in the meditation, and after leaving the meditation, you will die, and you will suffer very little.
+In terms of diet, nectar is used for the six heavens of the desire realm, whereas in the form realm nectar is not even used. Eating and drinking is meditation. Once you are born, you have the ability to meditate, but it does not mean that you are always in meditation.
 
-Although the Heavens of the Form Realm and the Formless Realm are not like the Six Heavens of the Desire Realm, they have signs of death and present pain, but they will still be persecuted by the suffering of actions.
+The life of the beings of the Form Realm is also much longer than that of the Six Heavens of the Realm of Desire, but they are still enjoying themselves all the time. The moment the accumulated merit is exhausted, they will also die. There are no signs of immanent death. After death, he will fall into suffering of the evil realms.
 
-Therefore, it is said in the "Theory of Supplies":
+##### 3. The Suffering of the Formless Realm
 
-The heavens of form and formless, transcending suffering and suffering, take peace and joy as their nature, they will not be moved in aeons, but they will not be liberated in the end, and they will still fall from there.
+In the suffering of formless realm,  formlessness means that there is no body. In the four heavens of the formless realm, beings have no body. Only consciousness exists.
+
+When the gods of the Formless Realm are born, they will have the consciousness and feeling that they have been born, and then they will enter the meditation, and they will not know anything.
+
+They may spend hundreds or tens of thousands of kalpas in meditation, and after leaving meditation, they will die, and they will suffer very little.
+
+Although the Heavens of the Form Realm and the Formless Realm are not like the Six Heavens of the Desire Realm, they have signs of immanent death and present pain, but they are still haunted by the suffering of actions, and they also have afflictions and obstacles, and they cannot live and die freely.
+
+Therefore, it is said in the "The Advice for Gathering Accumulations":
+
+The heavens of form and formlessness,
+
+transcending suffering and suffering,
+
+take peace and joy as their nature,
+
+they will not be moved in aeons, 
+
+but they will not be liberated in the end, 
+
+and they will still fall from there.
 
 Therefore, it is not good to be reborn as a god. Many people think that it is a good thing to be a god. In fact, it is a big loss to be a god.
 
-Just keep consuming the blessings, not accumulating
+Just keep consuming the blessings, not accumulating Reward;
 
 40
 
-Reward;
 
-Because there is no pain, there will be no repentance because of the pain, and karma will not be eliminated.
 
-Therefore, although heaven and human beings are extremely happy, they are only temporary enjoyment, and after death they will still fall into evil.
+There will be no repentance because of the lack of pain, and karma will not be eliminated.
 
-And because heaven and man can live for a long time, in tens of thousands of kalpas, just enjoying themselves will habitually block the operation of wisdom. Therefore, after being reborn, they will become more stupid than ordinary people. , then, the practice is more difficult, and it is more difficult to liberate.
+Therefore, although heavenly beings are extremely happy, they are only so temporarily, and after death they will still fall into evil.
 
-If we think about it carefully, we will find that in the six realms, everything is unreliable, impermanent, and suffering.
+And because heavenly beings can live for a long time, just enjoying themselves for tens of thousands of kalpas, which will habitually block the operation of wisdom. Therefore, after being reborn, they will become more stupid than ordinary people. Then, practice is more difficult, and it is more difficult to attain liberation.
 
-When you understand this, you will have thoughts of wanting to get out of the six realms of samsara. This kind of thought of wanting to be freed from the suffering of the six realms is called renunciation.
+If we think about it carefully, we will find that in the six realms, everything is unreliable, impermanent, and full of suffering.
 
-, to get renunciation, it can be said to have achieved a kind of achievement, after renunciation, the heart will not turn back after the heart is really firm.
+When you understand this, you will have thoughts of wanting to get out of the six realms of samsara. This kind of thought of wanting to be freed from the suffering of the six realms is called renunciation or aversion to the realms of samsara or disgust with all of cyclic existence.
+
+Attaining the mind of renunciation can be said to be a kind of achievement. 
+After renunciation, the mind will not turn back once the mind is really firm.
 
 People who have achieved renunciation will see life differently.
 
-For example, ordinary people would be envious of rich people, and if they get renunciation, people would think that being rich is a disaster.
+For example, ordinary people are envious of rich people, but if they attain the mind of renunciation, they will know that being rich is a disaster.
 
-Because ordinary people, when they have money, will generally lead to greater greed for karma, or take money to do bad things. Therefore, when people who have obtained renunciation look at the world, prosperity and wealth are fire pits.
+When ordinary people have money, it will generally lead to greater greed for and unwholesome actions, or they will use money to do bad things. Therefore, when people who have obtained renunciation look at the world, prosperity and wealth are fire pits.
 
 41
 
-For example, when a few people happily gather together for a meal, a dozen or so dishes, ordinary people will think it is normal after reading it, and those who have obtained renunciation will think that these people are consuming the blessings, they do not understand, Cause and effect, very poor.
+For example, when a few people happily gather together for a meal, a dozen or so dishes, ordinary people will think this is normal, whereas those who have obtained renunciation will think that these people are very pitiful, since they are consuming merit, and they do not understand Cause and effect.
 
-The accomplished people see ordinary people, that's it, son;
+This is how accomplished people look at ordinary people;
 
-Ordinary people look at accomplished people, and sometimes feel weird and don’t understand them well.
+Ordinary people look at accomplished people, and sometimes feel weird and don’t understand them.
 
-After attaining renunciation and bodhicitta, a person's heart will undergo essential changes. At this time, a great compassion for saving sentient beings has arisen in his heart, and he is able to regard all sentient beings in the six realms as his own mother, Therefore, you can live in harmony with people in the world, and together, your conversations will be very mysterious.
+After attaining renunciation and bodhicitta, a person's mind will undergo essential changes. At this time, a great compassion for saving sentient beings has arisen in his mind, and he is able to regard all sentient beings in the six realms as his own mother. Therefore, you can live in harmony with people in the world, and together, your conversations will be very mysterious.
 
 42
 
-The second section, the truth of the collection, includes the afflictions, karma, death, the bardo, and birth.
+## Section 2 - The Truth of the Cause of Suffering
 
-Gathering means gathering, which means gathering together.
+The second section, the truth of the cause suffering, includes the afflictions, karma, death, the bardo, and birth.
 
-In the Truth of Suffering, we talked about the suffering of sentient beings in the six realms. Then, what is the cause that makes sentient beings suffer? The truth of the collection is about the cause of suffering, that is, afflictions.
+In the Truth of Suffering, we talked about the suffering of sentient beings in the six realms. 
 
-1. Troubles To understand troubles, we must understand them from six aspects: the nature of troubles;
+What then is the cause that makes sentient beings suffer? 
 
-the danger of worry;
+The Truth of the Cause of Suffering, that is, afflictions.
 
-the type of trouble;
+1. Afflictions 
 
-source of trouble;
+To understand afflictions, we must understand them from six aspects: 
 
-the cause of troubles;
+the nature of afflictions;
+
+the danger of afflictions;
+
+the types of afflictions;
+
+source of afflictions;
+
+the cause of afflictions;
 
 Troubled troubles.
 
-(1) The nature of troubles troubles are also called confusion. When you have troubles, your mind will be restless and unsettled, always worried and uncomfortable.
+(1) The nature of afflictions 
+
+Afflictions are also called confusion. When you have afflictions, your mind will be restless and unsettled, always worried and uncomfortable.
 
 So, in essence, affliction is a state of mind that makes the mind unsettled and uncomfortable.
 
-The "unquiet mind" mentioned here refers to not being interested in, or interested in, good things.
+The "unquiet mind" mentioned here refers to the lack of attraction to or interest in good things, and the craving and pursuit of non-good things, which leads to restlessness.
 
 43
 
-(2) The harm of afflictions The harm of afflictions is that it will lead to the creation of karma, creating more and greater karma.
+##### (2) The harm of afflictions 
 
-We already know that the essence of the six realms of samsara is suffering, to get rid of it, to get rid of samsara is to get rid of suffering;
+The harm of afflictions is that it will lead to the creation of karma, creating more and greater karma.
 
-And in order to get rid of suffering, we must find the root of suffering, and cut it off.
+We already know that the essence of the six realms of samsara is suffering, to get out of samsara is to get rid of suffering;
 
-So, what is this source? It is karma and afflictions. Sentient beings create karma because of afflictions, and the result of karma is suffering.
+And in order to get rid of suffering, we must find the root of suffering, and eliminate it.
 
-In the lower realms, we have learned that falling into the lower realms is the cause, the karma.
+So, what is this root? It is karma and afflictions. Sentient beings create karma because of afflictions, and the result of karma is suffering.
+
+In the training of the lower scope, We have learned that falling into the lower realms is due to karma.
 
 Since karma also arises because of afflictions, the cause of our rebirth is karma and afflictions, but compared with karma, afflictions are more harmful.
 
-Because karma is also driven by afflictions, it is afflictions that make me, we keep creating karma.
+Because karma is also driven by afflictions, it is afflictions that make us continue to create karma.
 
 Moreover, afflictions are conditions, and past karma is the cause. Even though countless old karmas have been created in the past, if there are no afflictions, just like a seed cannot germinate without water, no new karma will be created.
 
-For example, after attaining the status of Arhat, although the past karma is still there, because the afflictions are eliminated, no new karma will be created.
+For example, after attaining the status of Arhat, although the past karma is still there, because the afflictions are eliminated, no new negative karma will be created.
 
 On the contrary, even if there is no karma created in the past, as long as there are afflictions, new karma may be created at any time, which will lead to samsara and suffering in the future.
 
-In The Theory of Emancipation:
+In The "Commentary on Valid Cognition" (Pramanavarttika):
 
-If there is love already saved, the remaining karma will not be able to lead, because it is born out of existence.
+If there is love already saved, 
 
-And said:
+the remaining karma will not be able to lead, 
 
-If there is a lover, it is even more for the sake of life.
+because it is born out of existence.
 
-That is to say, if you cut off the "being" and "love" of the twelve causal conditions, you won't be able to create new karma, because you have cut off all of them, and you will have troubles.
+It also says:
 
-If there is "love", it will still suffer from rebirth.
+If there is a lover, 
 
-Among the twelve karma, "being" is karma, and "love" is affliction.
+it is even more for the sake of life.
+
+That is to say, if you cut off the "becoming" and "craving" of the twelve causal links of dependent origination, you will not create new karma, because you have cut off the innate afflictions.
+
+If there is "craving", you will still suffer from rebirth.
+
+Among the twelve causal links of dependent origination, "becoming" is cause, and "craving" is affliction.
 
 Therefore, afflictions are the root of rebirth and are extremely harmful.
 
-(3) Types of afflictions Once you know the dangers of afflictions, you must cut off afflictions. First, you must recognize afflictions.
+##### (3) Types of afflictions 
 
-There are two types of afflictions: fundamental afflictions and secondary afflictions.
+Once you know the dangers of afflictions, you must eliminate them. First, you must recognize afflictions.
 
-Six Root Defilements There are six root afflictions: greed, hatred, delusion, arrogance, doubt, and wrong view.
-(1) Covetousness is greed for what one loves.
+There are two types of afflictions (known as hindrances): The "two hindrances" are the afflictive hindrances (煩惱障 kleśa-āvaraṇa) and cognitive hindrances (所知障 jñeya-āvaraṇa).
+
+OR fundamental afflictions and secondary afflictions.
+
+Cited from: The Yogācāra Two Hindrances and Their Reinterpretations in East Asia http://www.acmuller.net/articles/reinterpretations_of_the_hindrances.html#ixzz7cEnEPrYE
+
+Six Root Defilements (six primary afflictions)
+
+There are six root defilements: greed, hatred, delusion, arrogance (pride), doubt, and wrong view.
+
+##### (1) Covetousness is greed for what one loves.
 
 When there is greed, the mind will definitely be restless and uncomfortable.
 
-In the "Mahayana Abhidhamma Collection" written by the Bodhisattva Asanga, it is said: "greed, that is, the greed of the world, which is said to be inseparable from the object.", in the six root afflictions, "greed" is listed First, there is a reason.
+In the "Mahayana Abhidharma Collection" written by the Bodhisattva Asanga, it is said: 
 
-, The six root afflictions can be summarized into the three poisons of greed, hatred, and delusion, and the three poisons can be summarized into greed. Therefore, greed is the initial and root of all afflictions.
+Greed is the craving of the world, and it is said to be inseparable from the object. there is a reason why "greed" is listed first in the six root afflictions.
+
+The six root afflictions can be summarized into the Three Poisons of ignorance, attachment, and aversion (or greed, hate, and delusion, OR ignorance, craving and clinging) and the Three Poisons can be further summarized into greed. Therefore, greed is the initial and root of all afflictions.
 
 Greed is also the root cause of our suffering in samsara.
 
-According to the teaching of the twelve causes and conditions, after greed there will be "love", "acquisition", and then "being".
+According to the teaching of the Twelve Causal Links of Dependent Origination, after greed there will be "craving", "grasping", and then "becoming".
 
-Here "love" and "acquisition" are afflictions, and "being" is karma, and karma will be created when afflictions exist.
+Here "craving" and "grasping" are afflictions, and "becoming" is karma, and karma will be created when afflictions exist.
 
-After "being" there is rebirth, greed arises, and greed regenerates karma.
+After "becoming" there is rebirth, then greed arises, and greed regenerates karma.
 
-This will never stop, the troubles will become bigger and bigger, and the karma will become heavier and heavier.
+This will never stop, the afflictions will increase, and the karma will become heavier and heavier.
 
 So, if you cut off greed, you can get out of samsara.
 
-(2) Hatred is hatred and hatred, hating what one does not love, and hating what one does not love, things or beings.
+##### （2）Anger
 
-It is the mentality of having hatred and rudeness towards sentient beings, and wanting to hurt the right side.
+(2) Anger is hatred and regret, hating what one does not love, and hating things or beings one does not love.
 
-For example, seeing an enemy, a rival, etc., the heart becomes extremely violent, eager to hurt the other party.
+It is the mentality of having hatred and rudeness towards sentient beings, and wanting to hurt others.
 
-Sometimes there is also anger towards non-sentient beings, such as getting angry and smashing the cup.
+For example, on seeing an enemy or a rival, the mind becomes extremely violent and eager to hurt the other party.
 
-Among all the afflictions, anger is the worst kind, and it is the main culprit that destroys and destroys the roots of goodness and falls into the three evil realms.
+Sometimes there is also anger towards inanimate objects, such as getting angry and smashing a cup.
 
-When hatred arises, it is like oil on fire, and there is no time to stop it. Every hatred can destroy the good virtues and blessings of many kalpas. The fault is extremely serious.
+Among all the afflictions, hatred is the worst kind, and it is the main culprit that destroys the good roots and leads into the three evil realms.
 
-Most of the killings, people, and fights in the world are caused by hatred, or even caused by wars, causing more sentient beings to lose their lives.
+When hatred arises, it is like oil on fire, and there is no time to stop it. Every act of hatred can destroy the good virtues and blessings of many kalpas. The fault is extremely serious.
 
-How to stop anger? It is necessary to practice forbearance often.
+Most of the murders, and fights in the world are caused by hatred. It even starts wars, causing ever more sentient beings to lose their lives.
+
+How can we stop anger? It is necessary to practice forbearance often.
 
 In the Treatise on Entering Bodhisattva Actions, it says:
 
-A stubborn person is like an empty space, how can it be completely subdued, completely destroy this hatred, it is like breaking down all enemies.
+---
+
+A stubborn person is like an empty space, 
+
+how can it be completely subdued, 
+
+completely destroy this hatred, 
+
+it is like breaking down all enemies.
+
+---
 
 That is to say, there are so many stubborn sentient beings in the world that they are as numerous as emptiness and innumerable. How could it be possible to subdue them all? But, yes, if you can quench your inner hatred, it will be like annihilating all external enemies.
 
-And said:
+And it also says:
 
-There is nothing more sinful than anger, and nothing more than forbearance.
+---
 
-Therefore, hatred is extremely harmful, and one must cultivate tolerance.
+There is nothing more sinful than anger, 
 
-In addition, we can also cut off the hatred by thinking about the main body or the body that caused the hatred.
+and nothing more than forbearance.
+
+Therefore, hatred is extremely harmful, 
+
+and one must cultivate tolerance.
+
+---
+
+In addition, we can also break the hatred by thinking about the subject that caused the hatred.
 
 47
 
-For example, after being scolded by others, I feel anger and hatred, and I have to think: What do I hate about him? If you hate this person, do you hate his body or his heart? Or hate what he said? , If you hate his body, his body is just a body, not to mention, it is not his body that drives him to scold me.
+For example, after being scolded by others, we feel anger and hatred, and we have to think: What do I hate about him? If you hate this person, do you hate his body or his mind? Or hate what he said? If you hate his body, his body is just a body, not to mention, it is not his body that drives him to scold me.
 
-If he hates his heart, his heart is actually unfree, influenced by afflictions, and becomes a slave to afflictions.
+If you hate his mind? In fact, his mind is not free. It is influenced by afflictions, and becomes a slave to afflictions.
 
-If you hate what he said, although he scolds me, when he scolds me, his heart drives his mouth, and his heart is driven by his troubles;
+If you hate what he said, when he scolds you, his mind drives his mouth, and his mind is driven by his afflictions;
 
-Moreover, he was swayed by his own troubles without knowing it, and he was also very pitiful.
+Moreover, he was swayed by his own afflictions without knowing it, and he is to be pitied.
 
-Therefore, if you want to hate, you should hate him, his troubles, not him.
+Therefore, if you want to hate, you should hate his afflictions, not him.
 
-It's like being beaten with a stick, it's the stick that really hits us, we should be angry with the stick, no, we should be angry with him.
+It's like being beaten with a stick, it's the stick that really hits us, we should be angry with the stick, not with the one who holds the stick.
 
-But how can we be angry with a stick? In the same way, the same reason, his troubles that make us feel resentful, and, where is it?
+But how can we be angry with a stick? In the same way, for the same reason, it is his afflictions that make us feel resentful, and where are they?
 
-In this way, we search one by one, and finally we will find that the main body that really makes us arouse hatred does not exist! Everyone is a slave to afflictions, and their hearts are bound by afflictions and cannot be at ease.
+In this way, we search one by one, and finally we will find that the root that really arouses hatred does not exist! Everyone is a slave to afflictions, and their minds are bound by afflictions and cannot be at ease.
 
-, and is also driven by afflictions to create karma, which is very pitiful.
+We are also driven by afflictions to create karma, which is very pitiful.
 
 Thinking of this, it's not easy to feel resentment.
 
 48
 
-If you think like this often, you will gradually cut off your hatred.
+If you think like this often, you will gradually eliminate your hatred.
 
-(3) Chichi is also known as ignorance, not knowing the true nature of everything is ignorance.
+##### （3）Delusion
 
-Not understanding the emptiness of dependent origination, not understanding the causes and conditions of the six realms of samsara, afflictions, and suffering, not understanding that human beings have no ego, and dharmas have no ego, all belong to the afflictions of ignorance.
+(3) （3）Delusion is also known as ignorance, not knowing the true nature of everything is ignorance.
 
-For example, when it was about to get dark, I saw a roll of rope, mistakenly thought it was a snake, so I was very scared. This is a typical example of the troubles of ignorance.
+Not understanding the emptiness of dependent origination, not understanding the causes and conditions of the six realms of samsara, afflictions, and suffering, not understanding that human beings have no independent self, and that objects have no self, all of these belong to the afflictions of ignorance.
 
-Because there is no understanding of the true face of things (rope), ego attachment (snake) arises. Once attached, a lot of troubles and pain (fear) arise. As the ego grows, the stronger the ego, the more karma, and the more troubles and sufferings that follow.
+For example, when it is almost dark, and you see a coil of rope, but mistakenly think it is a snake, you get a great fright. This is a typical example of the afflictions of ignorance.
 
-Delusion is divided into two parts: ego enforcement and law enforcement.
+Because there is no understanding of the true face of things (rope), attachment to self (snake) arises. Once attached, a lot of problems and pain (fear) arise. As the ego grows, the stronger the ego, the more karma is created, and the more afflictions and sufferings that follow.
 
-Once the ego attachment and the law attachment are broken, other afflictions will be cut off naturally. Therefore, ignorance is the source of afflictions.
+Delusion is divided into two parts: attachment to self and attachment to phenomena.
 
-(4) Slowly it is arrogance, that is, arrogance and complacency, looking down on others.
+Once the attachment to self or ego and the attachment to phenomena are broken, other afflictions will be eliminated naturally. Therefore, ignorance is the source of afflictions.
 
-For example, if I have a little bit of culture, I feel great, and I feel complacent and very proud.
+##### （4）Pride
+
+Pride is arrogance, that is, arrogance and self-satisfaction, looking down on others.
+
+For example, if I have a little bit of culture, I feel great, and I feel self-satisfied and very proud.
 
 49
 
 Or if you have a little money, you take your own money very seriously. These are all expressions of arrogance.
 
-For another example, during the conversation, someone said, "So-and-so can understand Buddha and Dharma very well."
+For another example, during the conversation, someone said, "So-and-so can understand the Dharma very well."
 
-If that person also feels that he has a relatively good, deep understanding of the Buddhadharma, this is also arrogant, because the Buddhadharma is very difficult and easy to understand.
+If that person also feels that he has a relatively good, deep understanding of the Buddhadharma, this is also arrogant, because the Buddhadharma is not easy to understand.
 
-The root of arrogance is also egoism. To combat arrogance, we must pay attention to being humble in life.
+The root of arrogance is also attachment to self or ego. To combat arrogance, we must pay attention to being humble in life.
 
-In addition, frequent prostrations and obeisance to Buddhas and Bodhisattvas can also effectively combat arrogance.
+Frequent prostrations and obeisance to Buddhas and Bodhisattvas can also effectively combat arrogance.
 
-A person is often arrogant, and the retribution in the later life will be very bad, and he may become a slave, a servant, and someone who serves others.
+If a person is often arrogant, the retribution in a later life will be very bad, and he may become a slave, a servant, and someone who serves others.
 
-Every slave and maid is a slave, or a servant or a servant, because the previous karma has been created in the previous life, and it falls into the evil realm and is reborn.
+Every slave and maid is a slave, or a servant or a maid, due to previous karma created in  previous lives, and they could be reborn in the evil realms.
 
-A servant who looks miserable now must be the most arrogant person in a certain life.
+A servant who looks miserable now must have been the most arrogant person in a certain life.
 
-(5) Doubt is doubt or unbelief, including the inability to believe in the truth of Buddhism, the power of good and evil karma, and all the facts in the world, which leads to blocking, blocking good doors, breeding wrong views, and creating right and wrong karma.
+##### (5) Doubt 
+
+Doubt or unbelief, including the inability to believe in the truth of Buddhism, the power of good and evil karma, and all the facts in the world, which leads to blocking, blocking good doors, breeding wrong views, and creating right and wrong karma.
 
 Doubt is the biggest obstacle to achievement.
 
@@ -1455,41 +1615,45 @@ Even if the practice is very diligent, but because doubts gradually arise in the
 
 50
 
-After doing good deeds, one wonders whether there is such a great reward as the Buddhist scriptures say, and whether doing evil deeds really has evil rewards, etc. It will make it difficult for the roots of good deeds to arise, and the practice will become more and more difficult, and it cannot be achieved. .
+After doing good deeds, one wonders whether there is such a great reward as the Buddhist scriptures say, and whether doing evil deeds really has evil rewards, etc. It will make it difficult for the roots of good deeds to arise, and the practice will become more and more difficult, and it cannot be successful.
 
-The big doubt is to doubt the Three Jewels, to doubt the cause and effect.
+The big doubt is to doubt the Three Jewels, to doubt the truth of cause and effect.
 
 Many beginners and Buddhists have had this kind of thought.
 
 In the past, there was a teacher named Zunzhi Sangge, who practiced very well and met Manjushri Bodhisattva at the age of sixteen.
 
-He was very poor at that time, and sometimes it was difficult to maintain three meals a day. Only some corals and corals left by his family were more valuable.
+He was very poor at that time, and sometimes it was difficult to maintain three meals a day. Some corals and shells left by his family were his only valuable.
 
-Once, when he saw Manjushri Bodhisattva again, he asked the Bodhisattva: "Manjushri Bodhisattva, I am so poor, I can't guarantee three meals a day, how can I practice in the future?" Manjushri Bodhisattva said: "You first put Sell ​​the coral and make offerings to the Three Jewels, and then I will take you there to find the treasure."
+Once, when he saw Manjushri Bodhisattva again, he asked the Bodhisattva: "Manjushri Bodhisattva, I am so poor, I can't guarantee three meals a day, how can I practice in the future?" 
 
-After listening to the words of Manjushri, he sold the coral, took the money, and offered it to the monk.
+Manjushri Bodhisattva said: "First sell ​​the coral and make offerings to the Three Jewels, and then I will take you to find a great treasure."
 
-Then he was taken to a cave by Manjushri Bodhisattva, and the Bodhisattva said: "This is the treasure, you can practice here well, that's all.
+After hearing the words of Manjushri, he sold the coral, took the money, and offered it to a monk.
 
-"He listened to the Bodhisattva's words and practiced in the cave with peace of mind.
+Then he was taken to a cave by Manjushri Bodhisattva, and the Bodhisattva said: "This is the treasure, you can practice well here, that's all."
 
-After insisting on this for a few months, I don't know why, but slowly, everyone at the foot of the mountain knew that there was a master here who was in retreat, and he kept feeding him and supporting him.
+He listened to the Bodhisattva's words and practiced in the cave with peace of mind.
 
-He thought it was very strange, so he asked Wen-shu Bodhisattva: "My practice in the past was also good, why am I still so poor? Why do people make offerings to me after offering sacrifices to the monks?" Wen-shu Bodhisattva said: "Your He was also a practitioner in his previous life, but he lived by stealing things, and even stealing things while reciting the Manjushri mantra.
+After insisting on this for a few months, no one knows why, but slowly, everyone living at the foot of the mountain knew that there was a master here who was in retreat, and they kept feeding him and supporting him.
 
-Good and evil, the karma is not bad at all, if you stole in the past life, you will be poor in this life;
+He thought it was very strange, so he asked Manjushri Bodhisattva: "My practice in the past was also good, why am I still so poor? Why do people make offerings to me after offering sacrifices to the monks?"
+
+ Manjushri Bodhisattva said: "You were also a practitioner in his previous life, but you lived by stealing things, and even stealing things while reciting the Manjushri mantra.
+
+Good or evil, the karma is not bad at all, if you stole in a past life, you will be poor in this life;
 
 If you recite a lot of Manjushri mantras, you will be able to see Manjushri in person.
 
-However, even if you can see me, I can't make you no longer poor, I can only teach you to sell the coral and make offerings to the monks, your blessings will increase, and naturally someone will come to support you. "
+However, even if you can see me, I can't make you no rich, I can only teach you to sell the coral and make offerings to the monks, your blessings will increase, and naturally someone will come to support you. "
 
-A master who can see Manjushri is so poor that he can't eat, and he is full of three meals. How can this happen? It is because the blessings are different. Master Zunzhi Sanger has the blessing of practicing the Dharma, but not the blessing of abundance.
+A master who can see Manjushri is so poor that he can't eat, and then he is full of three meals. How can this happen? It is because the merits are different. Master Zunzhi Sanger has the merit of practicing the Dharma, but not the reward of abundance.
 
 The causes and conditions of each kind of result are different. The causes of Dharma practice, the causes of abundance, the causes of longevity, and the causes of health all exist separately.
 
-Some people will live a long life, but will lack wealth all their lives, because there is no, the reason for getting rich;
+Some people will live a long life, but will lack wealth all their lives, because the reason for getting rich is not there;
 
-Some people are very rich, but they are short-lived, because there is no reason for longevity;
+Some people are very rich, but they have short lives, because there is no reason for longevity;
 
 Some people are rich and healthy, but they are stupid because they have no wisdom.
 
@@ -5489,7 +5653,7 @@ Three o'clock every day, three hundred cans of food,
 
 However, it is not as long as a moment, and I can cultivate a point of kindness.
 
-All heaven and man are loving, they are always guarding,
+All heavenly beings are loving, they are always guarding,
 
 Joy is much more comfortable, and poisonous knives cannot penetrate.
 
