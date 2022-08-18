@@ -294,11 +294,15 @@ Introduction to Tuole Monastery
 ...
 
 >
->If you do not put effort into contemplating true sufferings—the faults of cyclic existence—
+>If you do not put effort into contemplating true sufferings—
+>
+>the faults of cyclic existence—
 >
 >You will not develop the wish for liberation.
 >
->If you do not contemplate true origins – the steps for entering cyclic existence—
+>If you do not contemplate true origins – 
+>
+>the steps for entering cyclic existence—
 >
 >You will not understand how to cut the roots of cyclic existence.
 >
@@ -1684,13 +1688,6 @@ After realizing emptiness, even if it is not the actual realization, but the act
 53
 
 The "Dharmakaya" says:
-
-
-
- 
-
- 
-
 
 >
 >Of all those things that from a cause arise,  
@@ -4109,9 +4106,13 @@ With bodhicitta, great karma can be eliminated in an instant.
 Therefore, it is also said in "On Entrying into the Bodhisattva's Actions":
 
 >
->This is like a fire at the end of a calamity that can burn that great evil karma to ashes in an instant.
+>This is like a fire at the end of a calamity 
 >
->At the end of the world, seven suns will appear in the sky, and the heat will burn up Mount Sumeru.
+>that can burn that great evil karma to ashes in an instant.
+>
+>At the end of the world, seven suns will appear in the sky, 
+>
+>and the heat will burn up Mount Sumeru.
 >
 
 The same is true of Bodhicitta. Like the end of a kalpa, a great fire can completely burn all our karmic obstacles.
@@ -8533,19 +8534,19 @@ Then, from the perspective of existence, it is reasonable to say that if there i
 
 Once it is determined that the false self does not exist, the false self we imagined in the past will be empty, and the mind will naturally enter the emptiness. The meaning of emptiness does not exist.
 
-Because all things and ten thousand things are the realization of the mind, ten thousand things are all things of false appearance, all things of false appearance are empty, everything in the mind will be empty, and it will enter into emptiness.
+Because all things and phenomena are the realization of the mind, ten thousand things are all things of false appearance, all things of false appearance are empty, everything in the mind will be empty, and it will enter into emptiness.
 
 Stay in the air for as long as you can, and when you come out, you will understand: Oh, this is the real me! All things, the real face turned out to be like this!
 
-This situation is more difficult to understand. For example, for example, someone we always thought was our closest friend, turns out to be our most sinister opponent.
+This situation is more difficult to understand. For example, someone we always thought was our closest friend, turns out to be our most sinister opponent.
 
-At this time, everything about him in our hearts collapsed suddenly, the image of our close friend was in our hearts, and our hearts were empty, and we saw his true face.
+At this time, everything about him in our mind collapsed suddenly, the image of our close friend was in our mind, and our mind was empty, and we saw his true face.
 
 That person has always existed in the image of a friend, but we have not seen his true colors before.
 
 In the same way, all things and all dharmas have always existed, but we do not understand their true colors.
 
-All things that we have come to know are all false things.
+All things that we have come to know are all imaginary things.
 
 When one realizes emptiness, the original understanding of all dharmas and all things in the mind becomes empty, and then one sees the true face of all things, all things and all dharmas.
 
