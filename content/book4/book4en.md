@@ -6790,13 +6790,15 @@ The main reason why bodhicitta is difficult to arise from exchanging with others
 
 Once, Master Gazang Qusong talked about the exchange of bodhicitta, and he talked for seven days.
 
-He said: "Self-interest, love, I respect my thoughts, which are ghosts and demons. When you have such thoughts, you must think about how many times you have been harmed by this kind of thoughts, and you must be afraid of these thoughts and thoughts. , and to beat it.
+He said: "Self-interest, love, I respect my thoughts, which are ghosts and demons. When you have such thoughts, you must think about how many times you have been harmed by this kind of thoughts, and you must be afraid of these thoughts and thoughts, and to beat it.
 
 When the heart of loving him and respecting him arises, praise yourself: 'Oh, that's right to think so'. "
 
 Think again, why do Buddhas and Bodhisattvas have so many extraordinary merits and virtues? It is because Buddhas and Bodhisattvas respect all beings, love all beings, have interests, and have the hearts of all beings.
 
-The Buddhist scriptures say, "What kind of karma is created, what kind of fruit is produced." Respecting others will also be loved and respected by others. This is a causal relationship.
+The Buddhist scriptures say, "What kind of karma is created, what kind of fruit is produced." 
+
+Respecting others will also be loved and respected by others. This is a causal relationship.
 
 Why does everyone naturally respect Buddhas and Bodhisattvas? It is also because Buddhas and Bodhisattvas love and respect all beings.
 
@@ -6883,7 +6885,7 @@ When meditating, visualize the above-mentioned happiness, wisdom, blessings, etc
 
 Then visualize the karma and afflictions of the above-mentioned beings in the six realms, etc., all of which turn into black air, flow out from the right nostril of the six realms, inhale it through your left nostril, and visualize hitting your ego and destroy it. ego.
 
-This is the meditation method of exchanging bodhicitta with others.
+This is the meditation method of exchanging self with others.
 
 If you often meditate in this way, you will feel that you have accepted the karma and illness of others.
 
@@ -6891,9 +6893,9 @@ After accepting this, the body will get sick, but because of the power of bodhic
 
 In the past, very, very few people in Tibet had serious illnesses such as cancer. It was because there were many masters with relatively great achievements who often practiced and exchanged bodhicitta with others, and exchanged the suffering of sentient beings, which prevented many people from getting cancer.
 
-There used to be a tumor disease in Tibetan areas, that is, a tumor growing on the neck, especially in Guide County, Qinghai. This disease is common and widespread.
+There used to be a tumor disease in Tibetan areas, that is, a tumor growing on the neck, especially in Gui de County, in Qinghai. This disease was common and widespread.
 
-Later, Guide produced a great siddhi master Taxiu. He often exchanged bodhicitta from him and sucked the tumors of all living beings. Finally, a large tumor grew on his neck. Since then, there will be no more tumors there. This disease has never occurred.
+Later, Gui de produced a great siddhi master Taxiu. He often exchanged bodhicitta from him and sucked the tumors of all living beings. Finally, a large tumor grew on his neck. Since then, there will be no more tumors there. This disease has never reoccurred.
 
 Master Taxiu practiced for a few more years, and after a few years, his illness gradually recovered. This is the power of self-exchange of bodhicitta.
 
@@ -6905,13 +6907,13 @@ Master Langri Tangba's face was dark every day, all day long, with a sad look.
 
 Someone asked: "Why does the master do this every day?" He said: "I have to exchange the troubles of sentient beings every day, how can I not frown? In fact, I am very happy."
 
-, Geshe Chekwa, a disciple of the master of Kadampa Xayavar, in the west, Tibet is known as the Dharma King of Leprosy.
+Geshe Chekawa, a disciple of the master of Kadampa Sharawa, in the west of Tibet is known as the Dharma King of Leprosy.
 
-In the past, there was no cure for leprosy. Later, Geshe Che Kawa taught these lepers to practice the Three Ways and Self, and he exchanged bodhicitta.
+In the past, there was no cure for leprosy. Later, Geshe Chekawa taught these lepers to practice the Three Ways and Self, and he exchanged bodhicitta.
 
-For the newly arrived leper, Geshe Che Kawa, exchanged with him, and he would have acne on his body, and the patient would just, well, everyone thinks this master's method is to cure leprosy.
+For the newly arrived leper, Geshe Chekawa, exchanged with him, and he would have acne on his body, and the patient would just, well, everyone thinks this master's method is to cure leprosy.
 
-In fact, what Geshe Che Kawa taught them was the Three Ways, especially the Bodhicitta of Self-exchange in the Three Ways.
+In fact, what Geshe Chekawa taught them was the Three Ways, especially the Bodhicitta of Self-exchange in the Three Ways.
 
 After the lepers recovered, they continued to practice self-exchange bodhicitta. In the end, most of them were accomplished.
 
@@ -6925,7 +6927,7 @@ Zhiba Genle was also a great siddhis. When he learned that Zhe and Tanjie Chinpa
 
 When exorcising demons, in general, after reciting the exorcism, rituals, and sending Doma outside, it ends.
 
-However, this time, it was different. Zhiba Genle took the Doma and went outside for a while, and then brought the Doma back and said to Zhe, Tanjie Chinpa, "I can't find any demons outside. , the devil should be in your heart, it is the inner devil."
+However, this time, it was different. Zhiba Genle took the torma and went outside for a while, and then brought the Doma back and said to Zhe, Tanjie Chinpa, "I can't find any demons outside. , the devil should be in your mind, it is the inner devil."
 
 Then throw this big torma on the stomach of Tse-Tanje Chinpa.
 
@@ -6941,9 +6943,9 @@ Nv Zahu is a businessman. This time he wants to go to sea to do business, but hi
 
 His mother begged him, but he didn't listen. Finally, he made up his mind, stepped over his mother's body, and left.
 
-The boat overturned after going to sea, he grabbed a board and floated to the sea.
+The boat overturned after going to sea, he grabbed a board and drifted to the shore.
 
-After going ashore, I saw a big house, and there was a "humming" sound from inside. After opening the door, I saw a tall, big man with an iron wheel stuck in his head, and he kept going. During the turn, blood and brains flowed out, but this person did not die, and was still eating these things.
+After going ashore, he saw a big house, and there was a "humming" sound from inside. After opening the door, I saw a tall, big man with an iron wheel stuck in his head, and he kept going. During the turn, blood and brains flowed out, but this person did not die, and was still eating these things.
 
 He was almost scared to death when he saw it. At this time, a voice came from the air: "Whoever comes here will suffer."
 
@@ -6977,23 +6979,46 @@ The above is about generating bodhicitta.
 
 219
 
-Section 2 After the ten paramitas have aroused bodhicitta, they are bodhisattvas.
+### Section 2 - Ten Paramitas
 
-What a bodhisattva wants to cultivate is the six degrees and four absorptions, and the six degrees are also called the six paramitas, including: cloth, paramita of application, paramita of keeping precepts, paramita of tolerance, paramita, essence, paramita of meditation, paramita of meditation, and paramita of wisdom.
+After the ten paramitas have aroused bodhicitta, they are bodhisattvas.
 
-For example, if you add the Paramita of Wish, Paramita of Convenience, Paramita of Strength, and Paramita of Wisdom.
+What a bodhisattva wants to cultivate is the six degrees and four absorptions, and the six degrees are also called the six paramitas, including: 
 
-It's ten degrees.
+cloth paramita of application,
+ paramita of keeping precepts, paramita of tolerance, 
+ 
+ paramita, essence, paramita of meditation, 
+ 
+ paramita of meditation, and 
+ 
+ paramita of wisdom.
 
-Paramito is a transliteration, meaning "to the other shore", and also meaning, translated as "degree", and degree means crossing.
+For example, if you add the 
+
+Paramita of Wish, 
+
+Paramita of Convenience, 
+
+Paramita of Strength, and 
+
+Paramita of Wisdom.
+
+IThat makes ten perfections.
+
+Paramita is a transliteration, meaning "to the other shore", and also meaning, translated as "degree", and degree means crossing.
 
 The so-called "other shore" means the "nirvana shore" that sentient beings reach after liberation.
 
-1. Giving Paramita The essence of giving is equanimity. Giving without the spirit of equanimity is not considered as real giving, so pay attention to cultivating this kind of heart.
+##### 1. Giving Paramita 
+
+The essence of giving is equanimity. Giving without the spirit of equanimity is not considered as real giving, so pay attention to cultivating this kind of heart.
 
 There are three kinds of giving packages: Dharma giving, wealth giving, and fearless giving.
 
-(1) Wealth cloth uses wealth to help sentient beings, thereby accumulating his own blessings, food, and wealth giving.
+##### (1) Wealth 
+
+cloth uses wealth to help sentient beings, thereby accumulating his own blessings, food, and wealth giving.
 
 When sentient beings need wealth, we have to give, no matter what the object is, giving will have merit.
 
@@ -7005,17 +7030,17 @@ Wealth giving includes making offerings to the Three Jewels, giving to the poor,
 
 Doing wealth and giving is the real meaning of wealth, and it can also accumulate great blessings.
 
-For example, if you donate to build a Buddha statue, as long as the Buddha statue exists, it can produce good fortune day, night, and night for as long as possible. Even if the person who donated it dies, but because the Buddha statue is still there, it will accumulate good fortune in the next life. .
+For example, if you donate to build a Buddha statue, as long as the Buddha statue exists, it can produce good fortune day, night, and night for as long as possible. Even if the person who donated it dies, but because the Buddha statue is still there, it will accumulate good fortune in the next life. 
 
 The same goes for monks.
 
-When the three masters including Bodova of Kadampa practiced generosity, one often offered incense and burned incense;
+When the three masters including Bodowa of Kadampa practiced generosity, one often offered incense and burned incense;
 
 One builds temples, builds, Buddha statues;
 
 The other one often makes offerings to the monks. These are the best three ways to make money and give.
 
-Then Master Bodova said: "Some people's money was burned (offering incense);
+Then Master Bodowa said: "Some people's money was burned (offering incense);
 
 Some people's money has become a house (built a temple);
 
@@ -7025,7 +7050,7 @@ This, the Tibetan text of the paragraph sounds very interesting.
 
 What the master meant was that the blessings of offering to monks surpassed other blessings, because offering monks had two kinds of merit, virtue, merit of offering and merit of receiving.
 
-Although everyone's life in this life is determined by the karma of the previous life, it can be changed in this life.
+Although everyone's life is determined by the karma of the previous life, it can be changed in this life.
 
 221
 
@@ -7035,7 +7060,9 @@ Therefore, we should do more good deeds, deeds, and charity.
 
 Seeing where there is a disaster, even a small donation is a good donation.
 
-(2) Dharma Dharma printed scriptures, Dharma books, CD-ROMs printed and taught, and Dharma requests are all Dharma Dharma offerings.
+##### (2) Dharma 
+
+Dharma printed scriptures, Dharma books, CD-ROMs printed and taught, and Dharma requests are all Dharma Dharma offerings.
 
 When you have the ability to preach the scriptures, you can teach the scriptures and spread the Dharma. This is also Dharma giving.
 
@@ -7045,7 +7072,9 @@ For example, in front of you, visualize Sakyamuni, and Buddha Muni's heart emits
 
 This is done with the practice of visualization, Dharma giving.
 
-(3) Fearless giving to sentient beings has all kinds of horrors. To save sentient beings from fear is nothingness, fearless giving, and the result of fearless giving is health and longevity.
+##### (3) Fearless giving
+
+Fearless giving to sentient beings has all kinds of horrors. To save sentient beings from fear is nothingness, fearless giving, and the result of fearless giving is health and longevity.
 
 For example, releasing life is fearless giving, and it is the best fearless giving.
 
@@ -7071,7 +7100,9 @@ Performing the three kinds of generosity will get different results.
 
 If you practice wealth, you will get wealth, if you practice Dharma, you will gain wisdom. If you practice fearlessly, you will live a long and healthy life.
 
-(4) The Six Right and Six Degrees of Giving When giving paramitas, it is very important to have the six right and six qualities.
+##### (4) The Six Right and Six Degrees of Giving 
+
+When giving paramitas, it is very important to have the six right and six qualities.
 
 223
 
@@ -7087,6 +7118,8 @@ No matter what kind of almsgiving you perform, it must penetrate the wisdom of b
 
 Don't be attached to the wealth you donate, and don't be attached to the Dharma, or the object of the donation.
 
+##### 5. Dedication of merit
+
 Dedication is dedicating the merit of giving to liberation and becoming a Buddha, which is devotion to right.
 After performing almsgiving, one should not only dedicate "self and family members to health and longevity", but also to "six sentient beings liberated and attained Buddhahood, free from suffering and attained happiness".
 
@@ -7094,14 +7127,17 @@ If the devotion is not right, the merit will be reduced.
 
 For example, if you dedicate merit to your family, if there are five or six people in your family, you will get as much merit.
 
-However, if you dedicate your devotion to sentient beings in the six realms, there are innumerable sentient beings in the six realms, and the resulting merits are immeasurable, and after devoting the devotion to sentient beings, the merits and virtues obtained by your family members will not decrease.
+However, if you dedicate your merit to sentient beings in the six realms, there are innumerable sentient beings in the six realms, and the resulting merits are immeasurable, and after devoting the devotion to sentient beings, the merits and virtues obtained by your family members will not decrease.
+
+##### 6. Purity of giving
 
 To purify the righteousness of giving is to break the obstacles of affliction and knowledge, that is, to purify the righteousness.
+
 The above are the six principles of generosity.
 
 The Six Righteousness and Six Degrees of Giving means that when one performs almsgiving, one must possess the Six Righteousness and at the same time possess the Six Degrees of Righteousness.
 
-Six degrees is what we usually call six degrees, that is, six paramitas, many.
+Six degrees is what we usually call six degrees, that is, six paramitas.
 
 When performing almsgiving, the precepts must be pure, and words and deeds must not be disordered;
 
@@ -7121,7 +7157,7 @@ The almsgiving with the six perfections and six perfections is Paramita. Without
 
 The six righteousness and six degrees of generosity are very important. When I was cultivating the three monks and Taoism, I forgot to cultivate this part, so I continued to cultivate the next part.
 
-In the evening, I had a dream. In the dream, Master Bodova said to me, "You, there is a part of you that you haven't cultivated."
+In the evening, I had a dream. In the dream, Master Bodowa said to me, "You, there is a part of you that you haven't cultivated."
 
 I said, "No, right?" The master said again, "Bu, you forgot about the six perfections and six degrees of Shi."
 
@@ -7129,7 +7165,9 @@ I just remembered.
 
 The same is true when cultivating other paramitas. When keeping the precepts, you should pay attention to the six perfections and six perfections. When practicing forbearance, you also need six perfections and six perfections.
 
-(5) The dharma door of Xian Zong of loving kindness and generosity teaches three kinds of generosity, while the method of Tantric Buddhism teaches four kinds of generosity, and there is one kind of generosity.
+##### (5) Charity
+
+The dharma door of Mahayana of loving kindness and generosity teaches three kinds of generosity, while the method of Tantric Buddhism teaches four kinds of generosity, and there is one kind of generosity.
 
 Loving charity is giving, giving loving kindness, and often giving loving kindness to sentient beings in the six realms.
 
@@ -7141,13 +7179,17 @@ Then visualize each sentient being and get a wish-fulfilling jewel, and the wish
 
 Finally, visualize every sentient being as wishful and full of joy. This is charitable giving.
 
-2. The essence of keeping the Paramita precepts is the heart to renounce evil.
+##### 2. Perfection of Precepts
+
+The essence of keeping the Paramita precepts is the heart to renounce evil.
 
 If you don't have the will and consciousness to cut off evil, even if you don't do evil, it's not considered to be keeping the precepts.
 
 There are three kinds of precepts: forbidden precepts, precepts of benefiting sentient beings, and precepts of taking good deeds.
 
-(1) Abstinence Abstinence refers to what you want to forbid in body, speech, and mind, which will lead to creation.
+##### (1) Abstinence 
+
+Abstinence refers to what you want to forbid in body, speech, and mind, which will lead to creation.
 
 Wicked words, deeds and thoughts.
 
@@ -7226,10 +7268,10 @@ Manjusri Bodhisattva has a special pea wisdom method, because during the solar e
 
 There are many similar methods. When practicing the methods of breathing, increasing, and cherishing, especially the method of cultivating love, when you practice during a solar eclipse, a lunar eclipse, or during auspicious days, the achievement will be faster.
 
-(2) Benefiting sentient beings and precepts of benefiting sentient beings are the precepts of benefiting sentient beings. There are eleven rules:
+##### (2) Benefiting sentient beings and precepts of benefiting sentient beings are the precepts of benefiting sentient beings. There are eleven rules:
 
 Give help to those in need, and help those in need.
-For example, yes, if we need financial help, if we have the financial ability, we must help each other financially;
+For example, if we need financial help, if we have the financial ability, we must help each other financially;
 
 When someone else is ill, they need to pay to help him.
 
@@ -7335,7 +7377,9 @@ From then on, Master Tsongkhapa set the rules, not to be chaotic, to show supern
 
 These are the precepts for benefiting all living beings.
 
-(3) What are the Dharma Precepts of Preserving Goodness? Doing all good deeds is regarded as a precept, a discipline, which is called the precept of good deeds.
+##### (3) What are the Dharma Precepts of Preserving Goodness? 
+
+Doing all good deeds is regarded as a precept, a discipline, which is called the precept of good deeds.
 
 The Dharma Precepts of Receiving Good include the good precepts and the Bodhisattva Precepts among the six paramitas.
 
@@ -7355,7 +7399,9 @@ When you want to take the precepts, you must yourself, you must think clearly, i
 
 The following is a detailed explanation of the Bodhisattva Precepts in Tibetan Buddhism.
 
-Tibetan Buddhism Bodhisattva Precepts, (1) Self-praise and destroy him in order to gain the offerings and respect of others. If a person often praises himself, he will easily lie, and also, it will damage other merits, and even go crazy.
+Tibetan Buddhism Bodhisattva Precepts, 
+
+(1) Self-praise and destroy him in order to gain the offerings and respect of others. If a person often praises himself, he will easily lie, and also, it will damage other merits, and even go crazy.
 Therefore, self-praise has become a commandment.
 
 The reason to destroy him is to gain support and respect from him and others. However, if you fabricate someone else's fault and make him bear his sins, it is also called destroying him, such as wrongfully accusing others of breaking precepts.
@@ -7396,13 +7442,13 @@ As stated in the tantric Essays:
 
 Tathagata's leftovers are used to eliminate karma.
 
-(6) The slandering of the Dharma 
+##### (6) Disparaging the Dharma 
 
 slandered the Theravada people's selfless wisdom and the thirty-seven dharmas of the convenient and harmonious method, the Mahayana wisdom of emptiness and compassion, and other convenient and perfect methods, the method of fusion, the tantric emptiness and the unique wisdom and harmony. The four great joys are convenient for the Dharma door of perfection and harmony, and slandering any kind of Dharma door of perfection and harmony is a violation of this, precept.
 
 Slandering one of the wisdom and convenient methods is not a violation of this precept, but there is a crime of slandering the method.
 
-Eighty-four thousand dharmas are all preached by Buddha Shakyamuni, and the Buddhist teachings of the Southern, Tibetan, and Chinese traditions are also taught by Buddha Shakyamuni, and none of them can be slandered.
+Eighty-four thousand dharmas were taught by Buddha Shakyamuni, and the Buddhist teachings of the Southern, Tibetan, and Chinese traditions are also taught by Buddha Shakyamuni, and none of them can be slandered.
 
 If some people do things wrong, it's a human problem, not a law problem.
 
@@ -7410,7 +7456,7 @@ For example, some people in Theravada are not doing it right, it may be because 
 
 We need to follow the law rather than people, and we need to distinguish between people and the law.
 
-If some masters did wrong, it doesn't mean that Buddhism is wrong.
+If some masters do wrong, it doesn't mean that Buddhism is wrong.
 
 For example, in Tibetan Buddhism, some monks have done something wrong, which does not mean Tibetan Buddhism is wrong;
 
@@ -7426,13 +7472,13 @@ This phenomenon is almost gone now. In the past, when the Buddha was alive, some
 
 In the past, some poor people in India saw the cassocks worn by monks, and they would rob them if they were good, so they had the commandment against stealing cassocks.
 
-(8) Five unrelenting sins 
+##### (8) Five inexpiable sins 
 
-The five unrelenting sins are killing the father, mother, an Arhat, breaking the harmony, merging with the Sangha, and spitting out the blood of the Buddha's body with disgust.
+The five inexpiable sins are killing the father, mother, an Arhat, breaking the harmony, merging with the Sangha, and spitting out the blood of the Buddha's body with disgust.
 
-If you commit the five uninterrupted sins, you will commit this precept.
+If you commit the five inexpiable sins, you will have broken this precept.
 
-(9) Wrong view 
+##### (9) Wrong view 
 
 Wrong view refers to not believing in cause and effect, rebirth, and the Three Jewels. Of these three, any one of the wrong views violates this precept.
 
@@ -7440,13 +7486,13 @@ Other wrong views are generally inverted concepts, for example, what is original
 
 What originally exists thinks it does not exist, does not exist, and what exists thinks it exists, etc.
 
-(10) Destruction of a village, etc. 
+##### (10) Destruction of a village, etc. 
 
 Destroying the living place of more than four households is a ruined village. Doing so will break this precept. As for other people's residences, if we are able, we must do our best to help them build and maintain them without destroying them.
 
 If there is demolition, it is reasonable and lawful to help him relocate, comfort him with kind words, and resettle him well.
 
-(11) Showing emptiness to immaturity 
+##### (11) Showing emptiness to immaturity 
 
 If you know that someone is an immature root of emptiness, it is still true. He preaches emptiness, which makes him suspicious of the Three Jewels.
 
@@ -7458,9 +7504,9 @@ After clinging to this wrong view, you will not recognize cause and effect, rebi
 
 In this way, greed, hatred, and delusion will be driven to destroy all good virtues and increase all evil deeds, which is very scary.
 
-After Venerable Atisha went to the Tibetan area, he saw that almost everyone in the Tibetan area would recite the Heart Sutra.
+After Venerable Atisha went to Tibet, he saw that almost everyone in Tibet would recite the Heart Sutra.
 
-Later I gradually learned that Tibetans don’t understand emptiness at all.
+Later he gradually learned that Tibetans don’t understand emptiness at all.
 
 No, the Indians at that time were like this. Their brains were very flexible. When reciting the Heart Sutra, when they saw the Heart Sutra saying, "No eye, ear, nose, tongue, body, mind, no color, sound, smell, touch, and Dharma," they would think: "No eye? That's not right. , the eyes clearly exist, but the Heart Sutra says that it does not exist, this must be an evil law.”
 
@@ -7470,15 +7516,15 @@ Tibetans don’t have so many ideas. People say it’s the Buddhadharma, so they
 
 Therefore, after Venerable Atisha learned about Tibet, he said, "Oh, ah, like Tibetans, they are very simple, their minds are very simple, and there is nothing wrong with talking about emptiness.
 
-Indians can't do it. Talk to them about emptiness and sex. He will use his own 'intelligence' to analyze it. If he can't analyze it, he falls into stubborn emptiness. "
+Indians can't do it. Talk to them about emptiness and form. He will use his own 'intelligence' to analyze it. If he can't analyze it, he falls into stubborn emptiness. "
 
-(12) After persuading someone from Bodhi to learn and practice Mahayana Buddhism, if they say to them: "Becoming a Buddha is very difficult, it takes a long time, and you need to practice many dharmas.
+##### (12) After persuading someone from Bodhi to learn and practice Mahayana Buddhism, if they say to them: "Becoming a Buddha is very difficult, it takes a long time, and you need to practice many dharmas.
 
 I think you do it, just practice the Theravada method and become an Arhat. "
 
 Similar to this, this kind of talk belongs to persuading others to retreat from the heart of attaining Mahayana Bodhi, and thus breaking the Bodhisattva Precepts.
 
-(13) Abandoning the precepts of renunciation and liberation. 
+##### (13) Abandoning the precepts of renunciation and liberation. 
 
 Some people who have studied Mahayana, look down on the lesser vehicles, abandon and abandon the precepts of renunciation and liberation, and they have violated this precept.
 
@@ -7486,27 +7532,27 @@ As a monk, one must cultivate the Bodhisattva vows on the basis of the monk's pr
 
 243
 
-(14) To slander the voice-hearers 
+##### (14) To slander the voice-hearers 
 
 To slander the voice-hearers is to slander the Arhats and cannot get rid of the afflictions such as greed, and deny the realization of the Hinayana.
 
 Yes, people say that an Arhat does not cut off his afflictions, that his ability and compassion are not perfect, etc., etc., saying that this Arhat is not good, that Arhat is not good, these are all slandering the voice-hearers.
 
-(15) False talk 
+##### (15) False talk 
 
 The false talk here refers to the teaching of the Dharma of the Supreme Being, which refers to the self-proclaimed enlightened person in order to seek, gain fame and gain, as mentioned earlier.
 
-(16) Taking the treasures of the Three Jewels
+##### (16) Taking the treasures of the Three Jewels
 
  refers to the powerful people who rely on power to extort the wealth and things of the Three Jewels.
 
 Including the property of the Sangha, the monks from the four directions, the pagoda and the temple, and the personal property of the monks.
 
-(17) The monks who have the power to control evil precepts formulate a system to distribute the property owned and deserved by monks who retreat, practice, and meditate to others, and monks break the precepts.
+##### (17) The monks who have the power to control evil precepts formulate a system to distribute the property owned and deserved by monks who retreat, practice, and meditate to others, and monks break the precepts.
 
 Lay people make use of their power to prescribe doing certain kinds of bad deeds as precepts, such as asking to do something to kill a living being, etc., which also belong to the precepts for restraining evil, but they are not precepts for restraining evil.
 
-(18) When the bodhicitta of renunciation of vows encounters obstacles, and the bodhicitta of renunciation of vows is abandoned, it is a violation of the bodhisattva and precepts.
+##### (18) When the bodhicitta of renunciation of vows encounters obstacles, and the bodhicitta of renunciation of vows is abandoned, it is a violation of the bodhisattva and precepts.
 
 After attaining bodhicitta, one should always pay attention to cultivating bodhichitta, and no matter what hardships are encountered, never give up bodhicitta.
 
@@ -7524,7 +7570,7 @@ Those who have never received the Bodhisattva Precepts before, should consider c
 
 If you feel that you can't do it, don't take it for the time being, and you can wait until the opportunity is ripe before taking the ordination.
 
-3. What is the nature of tolerating Paramita's humiliation? 
+##### 3. What is the nature of tolerating Paramita's humiliation? 
 
 Forbearance includes internal causes and external conditions, and an unshakable attitude towards internal and external causes and conditions is tolerance for humiliation.
 
@@ -7532,7 +7578,7 @@ For example, when you are scolded, you can be calm, not angry, and not resentful
 
 There are three types of humiliation: injury tolerance, suffering tolerance, and Dharma tolerance.
 
-(1) Hurts and tolerance 
+##### (1) Hurts and tolerance 
 
 We must endure being hurt, beaten, scolded, and wronged by others.
 
@@ -7548,9 +7594,13 @@ In this way, from the age of twenty to more than fifty years old, the wife gave 
 
 The wife wants to get a divorce, but she can't leave.
 
-In the end, the wife had no choice, so she ran to Master Yongzeng, son, and wanted to become a monk, the Dharma King said, "Did you become a monk to avoid your family? If so, you can endure it for another two years, and your husband will, It's better for you." She came back after hearing this.
+In the end, the wife had no choice, so she ran to Master Yongzeng, son, and wanted to become a monk, the Dharma King said, "Did you become a monk to avoid your family? If so, you can endure it for another two years, and your husband will, It's better for you." 
 
-Two years later, one day, my wife was working, and suddenly my husband came to my wife and said, "Oh, my wife, I'm sorry, I've been beating and scolding you all my life, I'm sorry!" The husband wanted to change the method and play tricks on her, so she was even more afraid.
+She came back after hearing this.
+
+Two years later, one day, my wife was working, and suddenly my husband came to my wife and said, "Oh, my wife, I'm sorry, I've been beating and scolding you all my life, I'm sorry!" 
+
+The husband wanted to change the method and play tricks on her, so she was even more afraid.
 
 In fact, on that day, the karma between them for so many years was almost finished.
 
@@ -7560,7 +7610,7 @@ From that day on, her husband treated her very, very well.
 
 Why is this? Queen Yong Zengfa said that in the past life of this couple, his wife was a man, and he bought a calf, and this calf was her current husband.
 
-After two years of good raising, the calf grew up and could plow the fields, so I beat it and scold it every day and let it work.
+After two years of good raising, the calf grew up and could plow the fields, so I beat it and scold it every day and made it work.
 
 Because two people had fate in the past life, the present life is compared, and it is easy to come together.
 
@@ -7594,13 +7644,13 @@ And now that the retribution is very, well, this karma has been eliminated in th
 
 Thinking this way, you will be very happy, and the pain will be very small.
 
-(2) Suffering must be endured when encountering any difficulties, the heart must not be troubled, and it must be stable.
+##### (2) Suffering must be endured when encountering any difficulties, the heart must not be troubled, and it must be stable.
 
 It is suffering.
 
 When encountering stress, the mind should be calm, the feeling will be different, and it will be less easy to cause troubles in the future.
 
-(3) Cultivation of Dharma-Forbearance 
+##### (3) Cultivation of Dharma-Forbearance 
 
 In the process of cultivating the Dharma, one must endure all kinds of pain, that is, Dharma-forbearance.
 
@@ -7642,7 +7692,7 @@ Only then did I slowly relax. During the process of cultivating and learning, I 
 
 Once you have cultivated the Dharma to a certain level of forbearance, you will naturally be very happy. It may seem like a lot of hard work to others, but in fact you are very happy.
 
-4. Diligent Paramita
+##### 4. Diligent Paramita
 
 The desire for good karma, the yearning for good deeds, and the enterprising mind is diligence.
 
@@ -7652,13 +7702,13 @@ For example, some people who are still in this world are very dedicated to their
 
 There are three types of diligence: diligence in armor, diligence in acquiring goodness, diligence in benefiting others, and diligence in producing.
 
-(1) When wearing armor and diligently doing good deeds, doing good deeds, or learning and cultivating the Dharma, just like a soldier wearing armor on the battlefield, he is not afraid of dangers and injuries, and he moves forward bravely to break all obstacles. Such diligence is called diligence in armor.
+##### (1) When wearing armor and diligently doing good deeds, doing good deeds, or learning and cultivating the Dharma, just like a soldier wearing armor on the battlefield, he is not afraid of dangers and injuries, and he moves forward bravely to break all obstacles. Such diligence is called diligence in armor.
 
-(2) Harmony Diligence 
+##### (2) Harmony Diligence 
 
 Diligently practising on the six paramitas is called Harmony Diligence.
 
-(3) Benefiting sentient beings 
+##### (3) Benefiting sentient beings 
 
 making progress to benefit sentient beings is a precept, and diligence in the aspect of benefiting sentient beings means making progress for the benefit of sentient beings.
 
@@ -7668,19 +7718,19 @@ When studying and diligently practicing paramita, one should start from the view
 
 If you understand the principle of impermanence, and the concept of the impermanence of life  arises in your heart, you will naturally be diligent.
 
-5. Meditation Paramita 
+##### 5. Meditation Paramita 
 
 There are many ways to practice meditation Paramita.
 
 The Middle Path talks about precepts, and Hui Shi has talked a lot about this, and I will add it here.
 
-(1) Types of Meditation 
+##### (1) Types of Meditation 
 
 There are many kinds of meditation, which can be simply divided into three types according to the function of meditation: 
 
 Meditation for the benefit of all living beings, Meditation for physical and mental well-being, and Meditation for cultivating merit.
 
-(2) The sufficiency of Meditation
+##### (2) The sufficiency of Meditation
 
  to practice meditation requires a certain amount of resources. If you don’t have the resources to practice, you will not be able to get meditation for hundreds of years. It is very important to have the resources to practice meditation.
 
@@ -7712,14 +7762,15 @@ Keeping the mind away from chores means that the mind should not have distractin
 
 Four Sunnahs 
 
-(1) Food and drink must be adequately prepared when practicing meditation.
+##### (1) Food and drink must be adequately prepared when practicing meditation.
+
 It is not required to have a good diet, as long as it can satisfy food and clothing, and there should be no excessive requirements for diet.
 
-(2) Clothes should meet the needs of clothing and should be prepared adequately.
+##### (2) Clothes should meet the needs of clothing and should be prepared adequately.
 
 In the process of meditation, it is generally necessary to retreat for a period of time. If, due to changing seasons and other reasons, one finds that the clothes are not adequately prepared, and has to go out to prepare clothes, it will disrupt the meditation.
 
-(3) Choose a quiet place to live in a place that satisfies you when you meditate.
+##### (3) Choose a quiet place to live in a place that satisfies you when you meditate.
 
 In a house with no sound for four or four weeks, concentrate on meditating.
 
@@ -7727,7 +7778,7 @@ In the city, yes, but too noisy around is not suitable.
 
 In addition, before the meditation practice is successful, try not to change it as much as possible. Changing the place of residence and moving from place to place will also become an obstacle to the practice of meditation.
 
-(4) The body and mind like tranquility. 
+##### (4) The body and mind like tranquility. 
 
 The mind and body like tranquility means to get rid of greed and other evil thoughts, no greed for profit and nourishment.
 
@@ -7749,21 +7800,21 @@ He practiced earnestly, and finally attained meditation.
 
 After he achieved meditation, Master Pabongka taught meditation later, and he often took him by his side to demonstrate the breathing of meditation, etc. After that, everyone came to see and learn.
 
-(3) How to practice meditation
+##### (3) How to practice meditation
 
 The method of practising meditation 
 
 The way, the method of practising meditation has already been discussed in the Taoist Taoism when he talked about precepts, concentration and wisdom, and I will simply repeat it here.
 
-First choose a location.
+First choose an object of meditation.
 
-We generally take the Buddha as the fixed place, which is to visualize the sitting Buddha Sakyamuni.
+We generally take the Buddha as the object of meditation, which is to visualize the sitting Buddha Sakyamuni.
 
 It is the size of a thumb or a pea or a bean, and the minimum size is not less than a grain of rice. Choose a good location, and then keep your mind fixed on it.
 
 When breathing, the breath in the nostrils has different sizes. At the beginning, you can't distinguish it during the practice. As the mind becomes more and more calm, you can gradually feel the thickness and size of the breath.
 
-When the mind is truly still, the qi becomes very even.
+When the mind is truly still, the breathe becomes very even.
 
 Then, as the mind stays in concentration, the breath gradually becomes smaller and smaller.
 
@@ -7781,18 +7832,20 @@ It's like rubbing wood to make a fire. Always grind it for a while and then put 
 
 Once the meditation practice is successful, you can enter it at any time.
 
-After entering the concentration, you can exit the concentration by making a wish.
+After entering meditation, you can exit meditation by making a wish.
 
 For example, if you want to meditate for an hour, just make a wish: "I want to meditate for an hour."
 
-You can get out of concentration after an hour, this is meditation.
+You can get out of meditation after an hour, this is meditation.
 
-Five Faults and Eight Elements in Meditation 
+##### 2. Five Faults and Eight Elements in Meditation 
 
 In the process of practising meditation, one has to experience five faults and eight lines.
 The five faults refer to the five faults that will occur during the practice process, and the eight elements are the eight methods to counteract these five faults.
 
-(1) Wu Guo said in the "Discrimination of the Middle and Borders":
+(1) Wu Guo 
+
+said in the "Discrimination of the Middle and Borders":
 
 257
 
@@ -7810,7 +7863,7 @@ The first of the five mistakes is not to be lazy.
 
 Forgetting the methods and objects of visualization, forgetting to meditate, methods and tips taught by masters, etc., all belong to forgetting teachers.
 
-3) Sinking 
+3) Drowsiness 
 
 refers to the drowsy mind or the restless mind that occurs during meditation. These two types are obstacles to the mind.
 
@@ -7828,7 +7881,7 @@ Before obtaining the eighth stamina, there will always be drowsiness and letharg
 
 But at this time, if you are still observing yourself, whether you are sinking, and if you try to deal with it rashly, it will cause and hinder the mind, so it is also a kind of fault.
 
-Of the five faults, the first two will prevent practitioners from entering meditation, concentration, and the attainment of abiding mind;
+Of the five faults, the first two will prevent practitioners from entering meditation, concentration, and the attainment of the calm-abiding mind;
 
 The third type will destroy the essence and quality of meditation, especially the subtle drowsiness, which many practitioners will not notice.
 
@@ -7836,9 +7889,9 @@ The latter two can affect achievement meditation.
 
 Therefore, as practitioners we must recognize and try to remedy and remove these five faults.
 
-(2) The Eight Elements 
+##### (2) The Eight Elements 
 
- Eight Elements are the eight methods of dealing with the five faults.
+Eight Elements are the eight methods of dealing with the five faults.
 
 1) Faith means to develop firm confidence in the practice of meditation by understanding the merits of meditation.
 
@@ -7886,9 +7939,9 @@ Relying on the first four of the Eight Elements, Faith, Desire, Diligence, and P
 
 According to the teachings of Master Tsongkhapa, we take the Buddha as the object of visualization, and practice meditation with the Buddha as the object.
 
-Visualizing the Buddha can also accumulate blessings and purify obstacles.
+Visualizing the Buddha can also accumulate merit and purify obstacles.
 
-Mindfulness can counteract the "forgetting professor" among the five faults.
+Mindfulness can counteract the "absentminded professor" among the five faults.
 
 6) Right Knowing 
 
@@ -7900,9 +7953,11 @@ If you fail to detect it in time, over time, you will become drowsy or lose your
 
 Therefore, when practising meditation, one must have a mind of awareness, the main mind is fixed in the place of concentration, and there must also be a mind that follows the factors, which is intuitive, and observes the main mind.
 
-Mina Rinpoche is a highly accomplished master of the Gelug School. He had a disciple of the Nyingma School. He said that if you want to go back to practice meditation, you need to close for a year.
+Mina Rinpoche is a highly accomplished master of the Gelug School. He had a disciple of the Nyingma School. He said that if you want to go back to practice meditation, you need to go on retreat for a year.
 
-In the summer, this disciple asked his son to go to the pagoda and visit Mina Rinpoche at the monastery. Mina Rinpoche said to his son, "Your father said he wanted to practice meditation, why would he run on the streets of Guide, come here? Going to buy something?" His son said, "No, my dad is in retreat."
+In the summer, this disciple asked his son to go to the pagoda and visit Mina Rinpoche at the monastery. Mina Rinpoche said to his son, "Your father said he wanted to practice meditation, why would he run on the streets of Gui de, come here? Going to buy something?" 
+
+His son said, "No, my dad is in retreat."
 
 Mina Rinpoche said, "Then why do I see your father running around in the street?" His son went back and asked, and he said, "Oh, Master knows everything! I've been thinking about going to the street to buy things."
 
@@ -7918,25 +7973,25 @@ Zuosi means "thinking about doing things", thinking is thinking, thinking, and m
 
 Contemplation means to perceive the occurrence through right awareness, and after sinking, you cannot let it go, but contemplate and find a way to control and counteract it.
 
-When practising meditation, the mind should be relaxed but not too relaexed.
+When practising meditation, the mind should be relaxed but not too relaxed.
 
 Too loose will make you drowsy, too tight and you will fall out of concentration, and your mind will wander.
 
 Practice meditation with a mind that is neither loose nor tight.
 
-The drowsy antidote:
+The antidote to drowsiness:
 
 When observing the concentration with the mind of attachment, if the concentration becomes blurred, or although it is very clear, it is not as bright as before, that is, drowsiness occurs.
 
-At this time, the mind should be a little tighter, vigilant at all times, and the place should be very clear and bright, so that there will be no lethargic mind.
+At this time, the mind should be a little tighter, vigilant at all times, and the object of meditation should be very clear and bright, so that there will be no lethargy in the mind.
 
 The countermeasures of the fault:
 
 To lose is to lose the mind.
 
-Observing with the mind of the subordinate support, is the mind of the main mind settled? Does it run away? If it runs away, bring it back, come back, and re-settle at the fixed place.
+Observing with the mind of the subordinate support, is the main mind settled? Does it run away? If it runs away, bring it back, come back, and re-settle on the object of meditation.
 
-If you really can't bring it back, don't meditate, you can stand up, do prostrations, etc.
+If you really can't bring it back, stop meditating, you can stand up, do prostrations, etc.
 
 8) The meaning of equanimity is to say that when practicing meditation, for the first of the five faults, the five faults should be "controlled", and when there is no sinking, equanimity should be cultivated.
 
@@ -7946,7 +8001,7 @@ When you attain the eighth abiding mind through meditation, there will be no mor
 
 Therefore, at this time, it is no longer necessary to observe the mind, but to use "exercise equanimity" to make the mind gentle and upright, and keep the mind running freely.
 
-(4) Six Powers of Meditation 
+##### (4) Six Powers of Meditation 
 
 When practising meditation, in addition to paying attention to the five faults, and using the eight elements to treat them, you must also experience the mind of abiding, that is, the mind of nine abiding. In fact, Liuli has already talked about it before, so I will introduce it here.
 
@@ -7979,14 +8034,16 @@ Jiuzhu heart map
 
 Map of the 7 minds.
 
-Resting the mind can rest the mind in the place of concentration, that is, resting the mind.
-This stage mainly relies on the "hearing power" of the six powers, and the mind rests in the object, which is the concentration.
+##### 1. Peace of Mind
 
-At this stage, the mind can only be settled in a fixed place for a short time, it cannot last for a long time, so it cannot last.
+Resting the mind can rest the mind in the place of concentration, that is, resting the mind.
+This stage mainly relies on the "hearing power" of the six powers, and the mind rests on the object of meditation.
+
+At this stage, the mind can only be settled on the object of meditation for a short time, it cannot last for a long time, so it cannot last.
 
 At this time, you will find that there are more thoughts in your mind than when you don’t practice meditation. In fact, it’s not that there are more thoughts, but because you haven’t practiced meditation, your mind hasn’t calmed down, and you don’t know that your mind will produce so many different thoughts.
 
-Capturing the Mind 
+##### 2. Capturing the Mind
 
 When the mind reacts to an external object, it can bring the mind back, which is the Capturing the Mind.
 This stage mainly relies on the "thinking power" of the six powers.
@@ -7997,6 +8054,8 @@ At this time, you can experience that there are not so many thoughts in your hea
 
 In the stage of calming the mind and holding the mind, the time for the mind to be scattered should be longer than the time for resting, the time for sinking is more, and the time for resting is less.
 
+##### 3. Releasing the Mind
+
 When the mind is understood (understood separately) when it acts on external objects, it can make the mind quickly return to the place of concentration, which is the liberation of the mind.
 At this stage, the mind continues to rest in the samādhi.
 
@@ -8004,7 +8063,10 @@ Be careful, when the mind is occasionally scattered, and when it leaves the conc
 
 Compared with the previous two stages, the time of distraction is already very short, and part of mindfulness can arise.
 
+##### 4. Turning the Mind
+
 To turn the mind is to stop the mind of knowing and to be happy to be at rest.
+
 At this stage, since a relatively strong "mindfulness and power" has been generated, one can see that the thoughts of discrimination do not depart from the concentration, so from now on, the concentration will not be lost.
 
 But there has already been a comparison, stronger drowsiness and sluggishness.
@@ -8013,6 +8075,8 @@ The third and fourth abiding minds mainly rely on the "mindfulness, power" of th
 
 From then on, mindfulness matures.
 
+##### 5. Holding the mind
+
 The time of subduing the mind in meditation is too long. When the mind feels tired, it can subdue the tired mentality, which is to subdue the mind.
 At this stage, there is no gross lethargy and lethargy.
 
@@ -8020,7 +8084,10 @@ But because the control of the mind is too tight, it is possible to be drowsy.
 
 Therefore, we must generate the "right knowledge" in the six powers to observe, and at the same time, think about the merits of practicing meditation as mentioned in the "faith" in the eight elements, so that the mind will be more active and no longer drowsy.
 
+##### 6. Resting the mind
+
 When there is a moving thought in the mind, you can make the thought stop immediately, that is, rest, stop the mind.
+
 In the fifth stage, in order to avoid subtle lethargy, the mind must be activated. However, if the mind is too active, there is a danger of life and subtleties falling off.
 
 At this time, it is necessary to develop the "right knowledge" capable of knowing the subtle disturbances, and to perceive and eliminate the subtle disturbances in time.
@@ -8031,32 +8098,41 @@ The fifth and sixth abiding minds mainly rely on the "power of comprehension".
 
 If the abiding mind at this stage is complete, the power of right comprehension will also be complete.
 
+##### 7. Extinguishing the mind
+
 When the mind is extinguished, when it arises and sinks, it can be extinguished immediately, that is, the mind is extinguished.
+
 In the seventh stage, since the first six sedative minds have already been fully completed, there is basically no drowsiness and sluggishness at this time, but one must still be alert to sinking and slumping, and generate the "energy force" of the six powers, and thoroughly , break off the sink.
 
+##### 8. 性住心
+
 When the delusions stop, you can realize that the nature of the mind is original and pure, and then keep the natural tranquility.
+
 At this stage, as long as you pay a little attention at the beginning of meditation, you will be able to avoid sinking during the whole process.
 
-At this time, lethargy and sluggishness are like defeated enemies. From the beginning, they are strong and powerful, then gradually weaken, and finally disappear completely.
+At this time, lethargy and sluggishness are like defeated enemies. In the beginning, they are strong and powerful, then gradually weaken, and finally disappear completely.
 
 Therefore, starting from No. 8, the mind of eight dwellings, it is no longer necessary to bring up the power of right comprehension.
 
 The seventh and eighth abiding minds mainly rely on the "power of energy".
 
+##### 9. Calm-abiding
+
 After holding the mind to achieve meditation, you must practice it regularly, and you will naturally be able to live in meditation, and you will naturally be able to do good and stop evil.
+
 Due to the continuous practice of the eighth stage, this stage is already acceptable, so it can be achieved naturally without special effort.
 
 Therefore, at this time, it is possible to enter samadhi without the slightest effort.
 
 The ninth abiding mind mainly relies on the "training force" of the six forces.
 
-In the time of the Middle Path, he talked about the practice method of meditation;
+In the time of the Middle Path, we talked about the practice of meditation;
 
 The Dharma Master talks about the conditions that need to be met to achieve meditation, as well as the understanding and handling of the changes in the mind during the practice process.
 
 The combination of the two parts is the perfect method of meditation practice.
 
-6. Wisdom Paramita
+##### 6. Wisdom Paramita
 
 The essence of wisdom is the ability to discern the object of observation and the ability to distinguish between good and evil.
 
@@ -8064,9 +8140,9 @@ It is the ability to distinguish between black and white, good and evil, and so 
 
 It can be divided into: ultimate truth wisdom, mundane truth wisdom, wisdom, and benefiting sentient beings wisdom.
 
-(1) Types of Wisdom
+##### (1) Types of Wisdom
 
-Ultimate Truth Wisdom 
+##### 1. Ultimate Truth Wisdom 
 
 Ultimate Truth Wisdom speaks of emptiness, that is, the emptiness of dependent origination, yes, the essence and nature of all things.
 
@@ -8086,15 +8162,17 @@ Shakyamuni Buddha turned the wheel of Dharma three times, and Nagarjuna's six di
 
 Nagarjuna Bodhisattva is also known as Longmeng. In the history of Buddhism, he is recognized as a landed Bodhisattva. The Buddha once prophesied Nagarjuna Bodhisattva in the Langkavatara Sutra:
 
-The stele in the south reaches the country, with auspicious bhikkhus,
-
-His name is called the dragon, which can break through the boundless.
+>
+>The stele in the south reaches the country, with auspicious bhikkhus,
+>
+>His name is called the dragon, which can break through the boundless.
+>
 
 It means that at that time, in the southern country of Beida in India, there will be an auspicious monk named Longmeng in the future. After the Buddha's nirvana, when there is a dispute within Buddhism, he will stand up and promote the Mahayana, the right view, and the elimination of Boundless and boundless, interpreting the prajnaparamita method.
 
 In many other classics, such as the "Drum Sutra", "The Great Cloud Sutra", "Manjushri Root Tantra" and other Mahayana classics and tantras, there are also clear prophecies for Longmeng Bodhisattva and Sagittarius. Some say that he is a bodhisattvas in one place, some say he is a bodhisattva in seven places, and some say he has become a Buddha.
 
-In Tibetan Buddhism, Nagarjuna is known as one of the "two Victors and six solemnities";
+In Tibetan Buddhism, Nagarjuna is known as one of the "Two Victors and Six solemnities";
 
 In Chinese Buddhism and religion, Nagarjuna Bodhisattva is regarded as the founder of the mountain by the eight schools, that is, the common ancestor of the eight schools.
 
@@ -8106,13 +8184,13 @@ The most complete, full, and ultimate understanding of the Buddha's Dependent Or
 
 At that time, there were four major schools in Indian Buddhism, and there were also four major schools in Tibetan Buddhism. These schools were all the same in terms of convenient methods. The difference was that they had higher and lower right views.
 
-The difference in right view does not mean that there is a wrong view, but it refers to whether the understanding of the Buddha and of Dependent Origination of the Empty Right View is ultimate and complete.
+The difference in right view does not mean that there is a wrong view, but it refers to whether the understanding of the Buddha and of Dependent Origination of the Right View of Emptiness is ultimate and complete.
 
 For example, if you realize the right view of the Mind-Only School, you can get rid of many afflictions, but not all afflictions.
 
 In the same way, the realization of Madhyamika, the right view of the continuum, can only remove most of the afflictions.
 
-Therefore, the right views of the Mind-Only School and the Madhyamika Self-Continuing School are not ultimate, but no, they can be said to be wrong or right views.
+Therefore, the right views of the Mind-Only School and the Madhyamika Self-Continuing School are not ultimate, but they can be said to be wrong or right views.
 
 However, if you realize the right view of the Middle Way, you can get rid of all afflictions.
 
@@ -8124,17 +8202,17 @@ The Nyingma school talks about great circle, fullness, and emptiness;
 
 The right view of the Kagyu School is Mahamudra, which is also about emptiness.
 
-Although they all talk about emptiness, the way of talking about it and the perspectives are different. Emptiness from the perspective of people without self and from the perspective of law without self is different, the same.
+Although they all talk about emptiness, the way of talking about it and the perspectives are different. Emptiness from the perspective of people without self and from the perspective of phenomena without self is different, the same.
 
 In Master Tsongkhapa's writings, there are two thick explanations of Nagarjuna's Six Treatises and "Into the Middle". From any point of view, the explanation of emptiness is very complete and comprehensive.
 
-There were many schools in the Tibetan area before. The big ones were Nyingma, Kagyu, Kadam, Sakya, etc., and the small ones were Jeluo, Shishen, etc. Eighteen small schools appeared.
+There were many schools in Tibet before. The big ones were Nyingma, Kagyu, Kadam, Sakya, etc., and the small ones were Jeluo, Shishen, etc. Eighteen small schools appeared.
 
 Master Tsongkhapa founded the Gelug School. After the Gelug School was established, no new schools arose. Why? Because Master Tsongkhapa integrated the purest traditions, the most essential methods of other schools into the Gelug School.
 
 ----
 
-For example, in the Gelug School, Mahamudra and Dhysika Vajra are from the Kagyu School, the Five Great Treatises, Debating Sutras, San Shi Dao and other methods come from the Kadampa School, and the Victory Vajra, the Thirteen Golden Methods, etc. come from the Sakya School. , Matou Mingwang and others are from Nyingma School, Mahavira is the inheritance of Jeluoyu Master, Dorada Vajra Vajra transmission is inherited from Master Luo Zhe, the body-giving method is from Maji Lazhun, and the breath-judgment method is from Papa Master Dangba.
+For example, in the Gelug School, Mahamudra and Dhysika Vajra are from the Kagyu School, the Five Great Treatises, Debating Sutras, Three Principal Aspects of the Path and other methods come from the Kadampa School, and the Victory Vajra, the Thirteen Golden Methods, etc. come from the Sakya School. , Matou Mingwang and others are from Nyingma School, Mahavira is the inheritance of Jeluoyu Master, Dorada Vajra Vajra transmission is inherited from Master Luo Zhe, the body-giving method is from Maji Lazhun, and the breath-judgment method is from Papa Master Dangba.
 
 ----
 
@@ -8142,7 +8220,7 @@ The best methods of all schools are integrated into the Gelug School.
 
 Therefore, in the wisdom of the ultimate truth, that is, the Right View of the emptiness of dependent origination, it can be said that the Right View of the Gelug school has been fully integrated with the right views of other schools, the wisdom of the ultimate truth of the Gelug school, Wisdom and Right View are the most sublime, the most ultimate and the most complete.
 
-Worldly Truth Wisdom 
+##### 2. Worldly Truth Wisdom 
 
 Worldly Truth Wisdom speaks about the Five Great Laws and Ten Great Laws, wisdom.
 
@@ -8150,7 +8228,7 @@ For example, medicine, technology, science, philosophy, etc., these are the wisd
 
 If you want to become a Buddha, you must learn all the knowledge. The more you learn, the more beneficial it will be to save sentient beings.
 
-Wisdom of benefiting sentient beings 
+##### 3. Wisdom of benefiting sentient beings 
 
 Wisdom of benefiting sentient beings is to teach sentient beings in this life and the next life, the methods of accumulating blessings, doing good and breaking evil, eliminating karmic obstacles, etc., as well as the wisdom of serving and doing things for all sentient beings.
 Generally speaking, the wisdom paramita includes these three kinds of wisdom.
@@ -8161,19 +8239,21 @@ Not having wisdom is not only difficult to succeed, but also difficult to make s
 
 The Hundred Treatises on Wisdom says:
 
-Visible and invisible merit, 
-
-the source is wisdom
-
-In order to cultivate the two merits, 
-
-mastering wisdom is essential.
+>
+>Visible and invisible merit, 
+>
+>the source is wisdom
+>
+>In order to cultivate the two merits, 
+>
+>mastering wisdom is essential.
+>
 
 The root of success or failure is wisdom. What kind of merit and virtue you want to achieve, whether you can achieve it or not, depends on wisdom.
 
-(2) Briefly analyze the Bodhgāra no-self. 
+##### (2) Brief Analysis of Bodhgāra's no-self. 
 
-We will talk about the three ways, and learn and cultivate the steps of the Bodhi path. The purpose is to obtain liberation.
+We will talk about the Three Principal Aspects of the Path, and learn and cultivate the steps of the Bodhi path. The purpose is to obtain liberation.
 
 To be liberated, we must break the two attachments to self and the Dharma;
 
@@ -8274,13 +8354,15 @@ and Negative Reasoning.
 These nine logics are described in Madhyamika theory. If you can thoroughly understand these nine logics, it will be easier to understand emptiness. This time, I will use the four-element reasoning method to talk about emptiness.
 
 The four main points of reasoning are: 
-identify the object to be denied, 
+identify the object to be negated, 
 identify, determine the coverage of the concept,
 identify non-oneness, 
 
 and identify non-differential.
 
-(1) To identify the object of negation, we must first understand that the object of negation we want to identify is the ego.
+##### （1）Identify the object of negation
+
+To identify the object of negation, we must first understand that the object of negation we want to identify is the ego.
 
 To break the ego, we must know the I who wants to break.
 
@@ -8340,7 +8422,9 @@ The master heard it and said, "I can't tame you, I'll introduce you to a master,
 
 So, the bodhisattva of the worldly relatives went to another master of the School of scriptures.
 
-He asked again, "Who am I? Where am I?" The master said, "Consciousness is I."
+He asked again, "Who am I? Where am I?" 
+
+The master said, "Consciousness is I."
 
 Shiqin Bodhisattva thought, "Oh, that's right, it is this consciousness that is reborn from generation to generation.
 
@@ -8356,7 +8440,7 @@ The Madhyamika commentator said: "If the consciousness is I, then which one is t
 
 In the Madhyamika Self-Continuation, although the masters of the School have denied the Bodhisattva of the world, they are still at ease and cannot stand up to this self.
 
-Consciousness-only schools also deny that consciousness is I. They say, "Alaya, consciousness is I."
+The Mind-only school also deny that consciousness is I. They say, "Alaya, consciousness is I."
 
 The Mind-only school believes that consciousness includes many kinds, among them, there is the consciousness of defilement, and there is alaya consciousness.
 
@@ -8366,7 +8450,7 @@ After seeing it, the masters of the Madhyamika school said: "The nature of good 
 
 They are not bad in nature and have talked a lot.
 
-The masters of the Yingcheng School of Madhyamika said: "O Layye Shi is not me who is established by the Mind-only school, nor is the consciousness established by the Sutra School and the Madhyamika Self-Continuing School, nor is it me who is established by some schools. .
+The masters of the Yingcheng School of Madhyamika said: "O Layye Shi is not me who is established by the Mind-only school, nor is the consciousness established by the Sutra School and the Madhyamika Self-Continuing School, nor is it me who is established by some schools.
 
 I, should be, Pudgala, established in the five aggregates, and existing in the famous words;
 
@@ -8416,7 +8500,7 @@ After this is determined, if the false self exists, then we will find out whethe
 
 287
 
-(3) Determining non-oneness 
+##### (3) Determining non-oneness 
 
 If I and the five aggregates are "one", the five aggregates and I should be the same.
 
@@ -8426,7 +8510,7 @@ If you think that I have only one, one, then the five aggregates will also becom
 
 The two aspects cannot be explained, so the self and the five aggregates, who think that the false appearance is "one", cannot be settled.
 
-(4) Determining non-differentiation 
+##### (4) Determining non-differentiation 
 
 If the false self and the five aggregates are "different", that is, if the self and the five aggregates are aliens, this is divided into two cases.
 
