@@ -3750,9 +3750,9 @@ Likewise, yes, ear-consciousness, nose-consciousness, tongue-consciousness, and 
 
 So is consciousness not me? Everyone suspects that consciousness should be me.
 
-There are four major schools of Buddhism: Youbu School, Jingbu School, Wei, Consciousness School, and the Madhyamika School.
+There are four major schools of Buddhism: Sarvāstivāda, Sūtravādin, Yogācāra, and the Madhyamaka School.
 
-The Sutra School believes that consciousness is me, and the Madhyamika school will immediately say, if consciousness is me, then people have the consciousness of the past, the life, the consciousness of this life, and the consciousness of the next life. Which one is me? If all three are, I become three, which is impossible;
+The Sūtravādin School believes that consciousness is me, and the Madhyamika school will immediately say, if consciousness is me, then people have the consciousness of the past, the life, the consciousness of this life, and the consciousness of the next life. Which one is me? If all three are, I become three, which is impossible;
 
 If it is said that three consciousnesses become one, yes, it is unreasonable.
 
@@ -3768,13 +3768,15 @@ Does this I exist or not? After such an analysis, it will be understood that I e
 
 133
 
-The fourth section of the truth of extinction in general, there are two kinds of afflictions: one is the innate affliction, which is the kind of affliction brought by life after life, which is greed, hatred, and delusion;
+### Section 4 -  The Truth of the Cessation of Suffering
 
-The other is the afflictions of discrimination, which are the various afflictions that arise in this world.
+In general, there are two kinds of afflictions: one is the innate afflictions, which is the kind of affliction brought by life after life, whose roots are greed, hatred, and delusion;
 
-The antidote to afflictions is San Shi Dao.
+The other is the cognitive afflictions, which are the various afflictions that arise in this world.
 
-The whole San Shi Dao is the way to deal with afflictions. If you can practice diligently and think often, you can suppress afflictions.
+The antidote to afflictions is The Three Principal Aspects of the Path.
+
+The whole of The Three Principal Aspects of the Path is the way to deal with afflictions. If you can practice diligently and think often, you can suppress afflictions.
 
 Anxiety won't work, it seems like it doesn't. If you feel troubled, you will be very happy.
 
@@ -3786,7 +3788,9 @@ Just like a tree, if the roots are pulled out, the branches and leaves will no l
 
 A person has 84,000 afflictions, and if you cut off one affliction, you will increase by one, and you will share happiness. If you cut off 84,000 afflictions, the happiness of life for the entire Three Realms will not be comparable to this happiness! And this is the eternal great bliss, at this time, it is really happy to be free from suffering.
 
-1. Liberation Liberation is the release of the bondage of the circulation of life and death, free from the pain of samsara and rebirth.
+##### 1. Liberation 
+
+Liberation is the release of the bondage of the circulation of life and death, free from the pain of samsara and rebirth.
 
 The Sanskrit word for liberation is Nirvana.
 
@@ -3798,17 +3802,21 @@ The original meaning of death is to explain the state after liberation, and late
 
 There are three types of Nirvana: Nirvana with remainder, Nirvana without remainder, and Nirvana without abiding.
 
-(1) A practitioner of residual nirvana who is liberated before passing away is called residual nirvana, nirvana.
+##### （1）Nirvana with Remainder
+
+A practitioner of residual nirvana who is liberated before passing away is called residual nirvana.
 
 The passing away here refers to the death of the practitioner in this life.
 
 That is to say, the afflictions have been cut off, but the human being is still alive, the flesh and the body are still there, and the liberation at this time is called residual nirvana.
 
-For example, the saints such as Sari, Tzu, and Muggallana were ordinary people when they first met Buddha Shakyamuni. After the Buddha taught them the Dharma, they eliminated their afflictions through practice and attained the status of Arhat. .
+For example, the saints such as Sariputra, and Muggallana were ordinary people when they first met Buddha Shakyamuni. After the Buddha taught them the Dharma, they eliminated their afflictions through practice and attained the status of Arhat.
 
 From the day they become Arhats to the stage before passing away, it is called Nirvana.
 
-(2) Nirvana without remnants not only cuts off the afflictions and liberation, but also does not even have the body brought by the karma of the previous life, that is Nirvana without residue.
+##### (2) Nirvana without Remainder
+
+Nirvana without remainder not only cuts off the afflictions and liberation, but also does not even have the body brought by the karma of the previous life, that is Nirvana without residue.
 
 That is to say, after passing away, letting go of the physical body and walking away with the light body with wisdom consciousness is nirvana without remainder.
 
@@ -3832,11 +3840,13 @@ Some Arhats can live for hundreds of years because their physical bodies are sti
 
 If the Wisdom Light Body abandons the physical Arhat, it will enter into Nirvana without remainder.
 
-(3) Abstinence Nirvana Abstinence Nirvana is the Nirvana of the Mahayana, which is the Nirvana of the Buddha.
+(3) Non-abiding Nirvana 
+
+Non-abiding Nirvana is the Nirvana of the Mahayana, which is the Nirvana of the Buddha.
 
 I won't go into details here, I'll talk about it later.
 
-The above is the way of the zhongshi, also known as the way of liberation.
+The above is the way of the middle scope, also known as the way of liberation.
 
 The liberation method of the Middle Path can liberate and liberate many sentient beings, but it cannot save all sentient beings, because people who practice the liberation path do not have the ability to save all sentient beings.
 
@@ -3858,7 +3868,7 @@ Therefore, the abilities and supernatural powers of an Arhat are limited and can
 
 There was an old man named Hua Jie, who wanted to become a monk when he was in his 80s. He went and looked for the relic, who looked at it with his supernatural powers and said, "You don't have the fate to become a monk.
 
-"Mu Qianlian said the same thing after looking at it, and in the end, all five hundred Arhats said the same thing.
+"Mugallana said the same thing after looking at it, and in the end, all five hundred Arhats said the same thing.
 
 He thought, "I don't want me at home, and I don't want me in the monastery. My karma is really heavy, so I might as well die." He was about to commit suicide.
 
@@ -3884,29 +3894,33 @@ In addition, Arhats do not possess the Bodhi mind to save sentient beings, so th
 
 139
 
-...
+---
 
-The generation of the mind is the central post of the Mahayana path,
+>
+>The generation of the mind is the central post of the Mahayana path,
+>
+>The base and support of great waves of conduct,
+>
+>A philosopher’s stone transforming all into the two collections,
+>
+>A treasure of merit gathering infinite virtue.
+>
+>Having understood this, the heroic children of the conquerors
+>
+>Maintain deeply the pledges of the precious supreme mind.
+>
+>I, a yogi, practiced like this.
+>
+>You who desire liberation, should do likewise.
+>
 
-The base and support of great waves of conduct,
-
-A philosopher’s stone transforming all into the two collections,
-
-A treasure of merit gathering infinite virtue.
-
-Having understood this, the heroic children of the conquerors
-
-Maintain deeply the pledges of the precious supreme mind.
-
-I, a yogi, practiced like this.
-
-You who desire liberation, should do likewise.
-
-...
+---
 
 ——"A Hymn of Experience (Lam rim nyam gur)"
 
-Chapter 3 Shangshi Dao The purpose of our study of Buddhism is to liberate all sentient beings, not just for our own liberation.
+## Chapter 3 - The Training for Excellent Individuals 
+
+The purpose of our study of Buddhism is to liberate all sentient beings, not just for our own liberation.
 
 Therefore, the purpose of cultivating the Middle Way is not to obtain the fruit of Theravada, but to obtain renunciation, because renunciation is the foundation of bodhicitta.
 
@@ -3930,25 +3944,37 @@ Moreover, after completing the Hinayana path of liberation, one must eventually 
 
 More importantly, it is very, very difficult to meet the Mahayana gate, and it is possible to have enough blessings.
 
-In the Kaijing Verse it says:
+In the "Opening Verse" it says:
 
-The incomparably profound and subtle Dharma, which has been encountered in hundreds of thousands of eons, I have seen and heard now, and I have received it. I wish to understand the true meaning of the Tathagata.
+>
+>The Dharma is incomparably profound and subtle, 
+>
+>We may not encounter it in hundreds of thousands of kalpas, 
+>
+>Now that we hear, study, and follow it. 
+>
+>May we truly understand the true meaning of the Tathagata.
+>
 
-What Shang Shidao talks about is the Dharma door. It is a door that can only be encountered after going through hundreds of thousands of kalpas. It requires great blessings.
+---
+
+What The Training for Excellent Individuals talks about is the Dharma door. It is a door that can only be encountered after going through hundreds of thousands of kalpas. It requires great blessings.
 
 In the previous life, one must make offerings to the guru's Three Jewels, get close to the guru, and have heard the Mahayana teachings and Dharma. Only such people can have the opportunity to meet the Mahayana door.
 
-Knowing this, we can understand why we need to cultivate the upper School after the completion of the practice. Then, what is the content of the upper sage?
+Knowing this, we can understand why we need to cultivate The Training for Excellent Individuals after the completion of the practice. Then, what is the content of the The Training for Excellent Individuals?
 
-The main practice of Shangshidao is: Bodhicitta;
+The main practice of The Training for Excellent Individuals is: 
 
-ten paramitas;
+Bodhicitta;
+
+Ten Paramitas;
 
 Four shots.
 
 What we need to deal with is the hindrance of knowledge, so we must cultivate both blessings and wisdom.
 
-What we need to know is that all sentient beings in the six realms are their own fathers and mothers, even if they are not in this life, but in previous lives, such as the previous life, the previous life, and so on, they are all very kind to us.
+What we need to know is that all sentient beings in the six realms are our own fathers and mothers, even if they are not in this life, but in previous lives, such as the previous life, the previous life, and so on, they were all very kind to us.
 
 Therefore, for those who are kind and for our own parents, we can't just focus on our own liberation and allow them to suffer in the six realms, but we must initiate the heart that rescues them.
 
@@ -3956,21 +3982,25 @@ This kind of heart that saves sentient beings from suffering and achieves happin
 
 The root of Mahayana is Bodhicitta.
 
-Once you get bodhicitta, you will enter the door of the Mahayana. Therefore, the first thing you need to talk about is bodhicitta.
+Once you have bodhicitta, you will enter the door of the Mahayana. Therefore, the first thing we need to talk about is bodhicitta.
 
 143
 
-The first section of Bodhicitta is Bodhisattva. Bodhisattva is Bodhisattva. The abbreviation, "Bodhisattva" is the literal translation of Sanskrit. Bodhi means that you have fully realized emptiness and fundamentally cut off afflictions and obstacles. , intellectual disability;
+### Section 1 -  Bodhicitta 
 
-Satan means bravery, which means bravely saving sentient beings.
+Bodhisattva is Bodhisattva. The abbreviation, "Bodhisattva" is the literal translation of Sanskrit. Bodhi means that you have fully realized emptiness and fundamentally cut off afflictions and obstacles. , intellectual disability;
+
+Sattva means bravery, which means bravely saving sentient beings.
 
 Bodhicitta is divided into vow bodhicitta and action bodhichitta.
 
 In order to save all sentient beings, making a vow to attain great Bodhi is called vow Bodhicitta;
 
-On the basis of making a vow, practice the six degrees of ten thousand deeds to realize this vow, which is called Bodhisattva, the mind.
+On the basis of making a vow, practice the six degrees of ten thousand deeds to realize this vow, which is called Bodhisattva mind.
 
-Bodhicitta is further divided into twenty-two levels. The lowest level is called "earth bodhicitta". We see that the earth sometimes changes, and the earth and bodhicitta are also the same, sometimes regressing;
+Bodhicitta is further divided into twenty-two levels. 
+
+The lowest level is called "earth bodhicitta". We see that the earth sometimes changes, and the earth and bodhicitta are also the same, sometimes regressing;
 
 The second level of bodhicitta is called "Golden Bodhicitta". We know that the nature of gold is very stable. No matter how it is burned or cut with a knife, the essence of gold will not change. will go back.
 
@@ -3978,15 +4008,21 @@ We now feel that sometimes we have bodhicitta, and sometimes we do not, because 
 
 The present bodhicitta is false bodhicitta, also known as artificial bodhichitta.
 
-1. The merits and benefits of developing bodhicitta When talking about bodhicitta, we must first understand the merits and benefits of bodhicitta.
+##### 1. The merits and benefits of developing bodhicitta 
+
+When talking about bodhicitta, we must first understand the merits and benefits of bodhicitta.
 
 From the moment when a practitioner develops Bodhicitta, he can be called a Bodhisattva, a Sagittarius, or a son of Buddha. He will continue to receive the blessings of the Buddhas and Tathagatas, and obtain and achieve numerous extraordinary merits and benefits.
 
-(1) Entering the Mahayana door and obtaining bodhicitta means entering the Mahayana door. Before attaining bodhicitta, even if one has realized emptiness, or obtained merits such as renunciation, existence, and five supernatural powers, it is not considered to be a Mahayana path.
+##### (1) Entering the Mahayana door
+
+Obtaining bodhicitta means entering the Mahayana door. Before attaining bodhicitta, even if one has realized emptiness, or obtained merits such as renunciation, existence, and five supernatural powers, it is not considered to be a Mahayana path.
 
 Taking refuge is the door to Buddhism, getting close to the guru is the door to the three ways, obtaining renunciation is the door to the way of liberation, obtaining bodhicitta is the door to the great, the door to the road, and obtaining the empowerment of the tantric method is the door to the tantric vehicle.
 
-(2) Those who receive the name of Buddha's son are called Bodhisattva.
+##### (2) Bodhisattva
+
+Those who receive the name of Buddha's son are called Bodhisattva.
 
 If a king's son ascends the throne, all the people will respect him, because the prince is the kingdom and the king's heir.
 
@@ -3996,11 +4032,15 @@ Among the sentient beings in the six realms, if any one develops Bodhi and mind,
 
 A person who has aroused bodhicitta is a bodhisattva, regardless of race, status, or level. Whether he is a bodhisattva or not depends on whether he has bodhicitta or not.
 
-(3) A bodhisattva who surpassed Theravada Arhats who just developed Bodhicitta, surpassed sound in the convenient method, and surpassed Arhats and Hans in saving sentient beings.
+##### (3) Surpassed Theravada Arhats
 
-Since the Bodhisattva of the Seven Grounds, he has surpassed Arhats in wisdom.
+who just developed Bodhicitta, surpassed sound in the convenient method, and surpassed Arhats and Hans in saving sentient beings.
 
-(4) After receiving the blessings of the Buddhas and Tathagatas and attaining bodhicitta, one can quickly practice and become a Buddha, and it is difficult to achieve bodhicitta.
+Since the Bodhisattva of the Seventh Bhumi, he has surpassed Arhats in wisdom.
+
+##### (4) Receive the merit of Buddhas
+
+After receiving the blessings of the Buddhas and Tathagatas and attaining bodhicitta, one can quickly practice and become a Buddha, and it is difficult to achieve bodhicitta.
 
 The energy of bodhicitta is very great. If one cultivates bodhicitta, the thrones of all Buddhas and Tathagatas will vibrate. If they see the practitioner who has aroused bodhicitta, they will immediately come to bless him.
 
@@ -4008,19 +4048,37 @@ Nagarjuna Bodhisattva quoted the sutra in "The Essence of Mahayana Treasures" an
 
 Because the Bodhisattva is the successor of the Buddhas and Tathagatas, the sons of the Buddhas, and the Buddhas, the Tathagatas will continue to bless him, just like a child sitting in a carriage, his father and mother love him and will pull the carriage.
 
-(5) Accumulating blessings day and night and sending bodhicitta is the most excellent way to accumulate merit.
+##### (5) Accumulating blessings day and night 
 
-Tsong, Master Kaba said in the "Song of the Steps of the Bodhi Path":
+and sending bodhicitta is the most excellent way to accumulate merit.
 
-Exhaust the two grains, point gold and stones, and gather blessings in the boundless sea of ​​goodness.
+Master Tsongkhapa said in the "Song of the Steps of the Bodhi Path":
 
-All the masters of the Buddha see and know, the treasure of bodhicitta is the most important.
+Exhaust the two grains, 
+
+point gold and stones, 
+
+and gather blessings in the boundless sea of ​​goodness.
+
+All the masters of the Buddha see and know, 
+
+the treasure of bodhicitta is the most important.
+
+---
 
 It means that the altruistic power of bodhicitta is inconceivable, that is, the golden stone that increases the two resources of blessing and wisdom, is a treasure that can accumulate boundless virtues like the ocean.
 
 It is also stated in the Treatise on Entering the Bodhisattva:
 
-When is the time to end, there are boundless realms of love, resolve not to turn back, and are accepting and upholding that heart.
+When is the time to end, 
+
+there are boundless realms of love, 
+
+resolve not to turn back, 
+
+and are accepting and upholding that heart.
+
+---
 
 That is to say, from that time on, in sleep or relaxation, the meritorious power is constant, and the quantity and so on are produced in emptiness.
 
@@ -4028,7 +4086,9 @@ After receiving the Bodhisattva Precepts and attaining Bodhicitta, the blessings
 
 Even in sleep or in relaxation, there will be blessings as great as emptiness.
 
-(6) Elimination of karmic obstacles Bodhicitta has a very strong ability to eliminate karmic obstacles. From the moment of attaining bodhicitta, even if you do not recite sutras, repentance texts, or recite the Vajrasattva Hundred-Symbols, karmic obstacles will be eliminated.
+##### (6) Elimination of karmic obstacles 
+
+Bodhicitta has a very strong ability to eliminate karmic obstacles. From the moment of attaining bodhicitta, even if you do not recite sutras, repentance texts, or recite the Vajrasattva Hundred-Syllable Mantra, karmic obstacles will be eliminated.
 
 147
 
@@ -4036,21 +4096,29 @@ Day and night, karma will be eliminated, and what is eliminated are all big karm
 
 In the Treatise on Entering Bodhisattva Actions, it says:
 
-That kind of good deeds is small and eternal, and evil deeds are powerful and terrifying
+That kind of good deeds is small and eternal, 
 
-Besides perfecting bodhicitta, what kind of good deeds can overcome it?
+and evil deeds are powerful and terrifying
+
+Besides perfecting bodhicitta, 
+
+what kind of good deeds can overcome it?
 
 With bodhicitta, great karma can be eliminated in an instant.
 
 Therefore, it is also said in "On Entrying into the Bodhisattva's Actions":
 
-This is like a fire at the end of a calamity that can burn that great evil karma to ashes in an instant.
-
-At the end of the world, seven suns will appear in the sky, and the heat will burn up Mount Sumeru.
+>
+>This is like a fire at the end of a calamity that can burn that great evil karma to ashes in an instant.
+>
+>At the end of the world, seven suns will appear in the sky, and the heat will burn up Mount Sumeru.
+>
 
 The same is true of Bodhicitta. Like the end of a kalpa, a great fire can completely burn all our karmic obstacles.
 
-(7) According to the bodhicitta, the bodhisattva will be free from the disasters of earth, water, fire, and wind, and there will be no major plagues, natural disasters, etc.
+##### (7) According to Bodhicitta, one can achieve what one wishes
+
+According to the bodhicitta, the bodhisattva will be free from the disasters of earth, water, fire, and wind, and there will be no major plagues, natural disasters, etc.
 
 The power of bodhicitta can also quench disasters.
 
@@ -4060,7 +4128,7 @@ After attaining Bodhi, the heart of the Bodhisattva speaks this mantra, and the 
 
 If there is a great disaster, even if the Bodhisattva speaks a mantra, it will be eliminated.
 
-In the past, there were very few diseases in the human world, especially in Tibet, the diseases were especially rare.
+In the past, there were very few diseases in the human world, especially in Tibet, disease were especially rare.
 
 The main reason was that many people in Tibet at that time had attained Bodhi. The great achievers and Bodhisattvas of the mind were protecting sentient beings and quelling the difficulty of disease. This was the energy of Bodhicitta.
 
@@ -4086,7 +4154,9 @@ When Master Yeshe Gyatso was alive, there were many wolves in Tibet. If Master w
 
 One day, wolves began to eat sheep again, and some people said that maybe the master passed away, and that was the case later.
 
-(8) After developing bodhicitta without being disturbed by obstacles, in addition to receiving the blessings and upholdings of the Buddhas and Tathagatas, you will also receive offerings and respect from the earth gods, dragons, and heavenly protectors.
+##### （8）Not disturbed by obstacles
+
+After developing bodhicitta undisturbed by obstacles, in addition to receiving the blessings and upholdings of the Buddhas and Tathagatas, you will also receive offerings and respect from the earth gods, dragons, and heavenly protectors.
 
 From the day of attaining bodhicitta, one will receive the protection of the Dharma protector.
 
@@ -4106,7 +4176,10 @@ If you want to get out of the control of this mantra, you have to generate Bodhi
 
 However, after developing Bodhicitta, it will not harm sentient beings.
 
-(9) Rapid Achievement Everyone thinks that becoming a Buddha is difficult, but it is not.
+##### (9) Rapid Achievement 
+
+
+Everyone thinks that becoming a Buddha is difficult, but it is not.
 
 If you get bodhicitta, it will be very easy to accumulate blessings and eliminate karmic obstacles, and you will become a Buddha very quickly, so it is not difficult to become a Buddha.
 
@@ -4122,13 +4195,263 @@ Moreover, after attaining bodhicitta, even in rebirth, the merit and virtue of b
 
 Therefore, Master Tsongkhapa said: "Bodhicitta is the most special and successful cause of becoming a Buddha, it is the core of Mahayana Buddhism, it is what Buddhas and Bodhisattvas cultivate, and the heart is the most precious wishful treasure in the world and beyond the world. It is healing and greed. A panacea for madness."
 
-(10) The Huayan Sutra talks about the merits of bodhicitta. The Huayan Sutra talks about the merits and benefits of bodhicitta. There is an analogy:
+##### (10) The Huayan Sutra on the merits of bodhicitta. 
+
+The Huayan Sutra talks about the merits and benefits of bodhicitta. There is an analogy:
 
 221
 
-(1) Bodhicitta is like a seed. It can give birth to all Buddha Dharma. (2) Bodhicitta is like a fertile field. It can make sentient beings white and pure. (3) Bodhicitta is like the earth. Can hold all the worlds. (4) Bodhicitta is like pure water. It can wash away all troubles. (5) Bodhicitta is like a strong wind. There is no hindrance in the world. (6) Bodhicitta is like a fire. Can burn all the salaries. (7) Bodhicitta is like a pure sun. Illuminate all the worlds. (8) Bodhicitta is like a full moon. All pure and pure dharmas are perfect. (9) Bodhicitta is like a beacon. It can put all kinds of dharmas bright. (10) Bodhicitta is like a pure eye. See all dangers. (11) Bodhicitta is like the Great Way. Pu Ling had to enter Dazhi City. (12) Bodhicitta is like Zhengji. To keep him free from all evils. (13) Bodhicitta is like a cart. Universally able to carry all the Bodhisattvas. (14) Bodhicitta is like a door. Demonstrate the deeds of all Bodhisattvas. (15) Bodhicitta is like a palace. To live and practice the samadhi Dharma. (16) Bodhicitta is like a garden. In the game by the law of music. (17) Bodhicitta is like a house. Safe for all sentient beings. (18) Bodhicitta is the destination. Benefit all the world. (19) Bodhicitta is the basis for reliance. This is where all the bodhisattvas rely on. (20) Bodhicitta is like a loving father. To teach all the bodhisattvas. (21) Bodhicitta is like a loving mother. Because of the growth of all the bodhisattvas. (22) Bodhicitta is like a nursing mother. To nurture all the bodhisattvas. (23) Bodhicitta is like a good friend. To benefit all bodhisattvas. (24) Bodhicitta is like a monarch. Victory over all two-way people. (25) Bodhicitta is like a king. All wishes come true. (26) Bodhicitta is like the ocean. All merits and virtues go into it. (27) Bodhicitta is like Mount Sumeru. For all sentient beings to be equal. (28) Bodhicitta is like a mountain surrounded by iron. Capturing all the worlds. (29) Bodhicitta is like a snow mountain. Long nourish all wisdom medicine. (30) Bodhicitta is like a fragrant mountain. Born with all the merits and virtues. (31) Bodhicitta is like space. The wonderful virtues are boundless. (32) Bodhicitta is like a lotus flower. Not defiled by all worldly laws. (33) Bodhicitta is like adjusting the image of wisdom. His heart is kind and not violent. (34) Bodhicitta is like a good horse. Stay away from all evils. (35) Bodhicitta is like a tuner. Protect all the laws of Mahayana. (36) Bodhicitta is like good medicine. Can cure all troubles. (37) Bodhicitta is like a pit. Get rid of all evil laws. (38) Bodhicitta is like a diamond. Knowing that he can pierce through all dharmas. (39) Bodhicitta is like an incense stick. It can store all the merits and virtues. (40) Bodhicitta is like a wonderful flower. Everything the world is happy to see. (41) Bodhicitta is like white sandalwood. Eliminate the heat of desire and make it cool. (42) Bodhicitta is like black agarwood. Being able to smoke the Dharma world is known all over the world. (43) Bodhicitta is like the King of Medicine for Good View. Can break all troubles and illnesses. (44) Bodhicitta is like the medicine of Vigupta. It can pull out all the arrows of confusion. (45) Bodhicitta is like an emperor. The most honorable of all masters. (46) Bodhicitta is like Bishamon. To end all poverty and suffering. (47) Bodhicitta is like a heaven of merit. All virtues are solemn. (48) Bodhicitta is like a solemn device. So honor all the bodhisattvas. (49) Bodhicitta is like burning fire for kalpas. It can burn everything. (50) Bodhicitta is like no root medicine. To nurture all the Buddhadharma. (51) Bodhicitta is like a dragon ball. It can eliminate all troubles and poisons. (52) Bodhicitta is like a pearl of water. It can clear all troubles. (53) The wishful pearl of Bodhicitta. The week gives all the poor. (54) Bodhicitta is like a bottle of merit. Satisfy all sentient beings. (55) The wish-fulfilling tree of bodhicitta. It can rain everything solemn. (56) Bodhicitta is like a goose feather coat. Free from all life and death. (57) Bodhicitta is like a white thread. Pure nature from the beginning. (58) Bodhicitta is like a quick plow. It can cure all sentient beings. (59) Bodhicitta is like Narayan. It can destroy everything I see the enemy. (60) Bodhicitta is like a fast arrow. It can break all suffering. (61) Bodhicitta is like a sharp spear. It can wear all the troubles. (62) Bodhicitta is like strong armor. Can take care of everything. (63) Bodhicitta is like a sharp sword. It can cut off all troubles. (64) Bodhicitta is like a sharp sword. It can break all the armor of slowness. (65) Bodhicitta is like a banner of bravery. It can subdue all the demon armies. (66) Bodhicitta is like a sharp saw. It can cut off all trees of ignorance. (67) Bodhicitta is like a sharp axe. It can cut down all the bitter trees. (68) Bodhicitta is like a soldier. Can prevent all suffering. (69) Bodhicitta is like a good hand. Protect from all deaths. (70) Bodhicitta is like good feet. Set up all the merits and virtues. (71) Bodhicitta is like eye medicine. Eliminate all ignorance. (72) Bodhicitta is like a pair of tweezers. It can pull out all the thorns in the body. (73) Bodhicitta is like bedding. Relief from the toils of life and death. (74) Bodhicitta is like a good teacher. Can solve all the ties of life and death. (75) Bodhicitta is like a treasured treasure. Can eliminate all poverty incidents. (76) Bodhicitta is like a great teacher. Good knowledge of the Bodhisattva out of the main way. (77) Bodhicitta is like a terma. There is no shortage of merit and wealth. (78) Bodhicitta is like a spring. The water of wisdom is inexhaustible. (79) Bodhicitta is like a mirror. All Dharma gates are universally displayed. (80) Bodhicitta is like a lotus flower. Not stained with all the filth of sin. (81) Bodhicitta is like a great river. Flowing all the degrees of photography. (82) Bodhicitta is like a dragon king. It can rain all the wonderful ways of rain. (83) Bodhicitta is like the root of life. Renji Bodhisattva died of great compassion. (84) Bodhicitta is like nectar. It can make you live in the world of immortality. (85) Bodhicitta is like a big net. It covers all sentient beings. (86) Bodhicitta is like a thread. Ingest everything that should be transformed. (87) Bodhicitta is like a hook. There is no one who lives in the abyss. (88) Bodhicitta is like Agata medicine. Can make disease-free eternal peace. (89) Bodhicitta is like removing poison. All can put an end to greed and poison. (90) Bodhicitta is like a good mantra. It can remove all the upside-down poisons. (91) Bodhicitta is like a gust of wind. It can remove all obstacles. (92) Bodhicitta is like a great treasure continent. Birth is a treasure of all awareness. (93) Bodhicitta is like a good seed. Birth is all pure and pure. (94) Bodhicitta is like a house. All virtues and virtues are based on. (95) Bodhicitta is like a store. Bodhisattva merchants' trade deal. (96) Bodhicitta is like alchemy medicine. It can cure all troubles. (97) Bodhicitta is like honey. To complete all the merits and virtues. (98) Bodhicitta is like the right path. So that the bodhisattvas enter the city of wisdom. (99) Bodhicitta is like a good weapon. Can hold all the pure dharmas. (100) Bodhicitta is like the rain of time. It can eliminate all troubles. (101) Bodhicitta is the abode. Where all the bodhisattvas live. (102) Bodhicitta is the life practice. Not taking the fruit of liberation from the voice hearers. (103) Bodhicitta is like pure lapis lazuli. The self-nature is clear and pure without all impurities. (104) Bodhicitta is like an emperor's green treasure. Out of the world's second vehicle wisdom. (105) Bodhicitta is like a more leaked drum. I realize that all sentient beings are troubled and sleep. (106) Bodhicitta is like pure water. Nature is pure and free from turbidity. (107) Bodhicitta is like Jambujin. Reflecting everything for good. (108) Bodhicitta is like a mountain king. Beyond all worlds. (109) Bodhicitta is the destination. Not rejecting all who come. (110) Bodhicitta is righteousness. Can eliminate all troubles. (111) Bodhicitta is a wonderful treasure. It can make all hearts happy. (112) Bodhicitta is like a great charity. Filled with the hearts of all beings. (113) Bodhicitta is respected. All sentient beings have no equal in their hearts. (114) Bodhicitta is like a terma. It can capture all Buddha Dharma. (115) Bodhicitta is like Indra's net. It can suppress the troubles of Asura. (116) Bodhicitta is like the wind of Polou. Able to change everything. (117) Bodhicitta is like the fire of Indra. It can burn all delusions and habits. (118) Bodhicitta is like a Buddha. All things in the world should be offered. good man. Bodhicitta. Achievement is such an immeasurable virtue. Make a point. You should know about all the merits and virtues of the Dharma. why. Because of Bodhicitta. Birth of all bodhisattvas. The Three Worlds Tathagata. Born from bodhicitta, therefore. A good man. If one develops anuttara-samyaksabodhi mind, then. Infinite merit has been born. Universal access to all wisdom. (119) Good man. For example, there is someone who obtains the medicine of fearlessness and liberates from the five terrors.
+##### (1) Bodhicitta is like a seed. 
 
-What a five.
+It can give birth to all Buddha Dharma. 
+
+##### (2) Bodhicitta is like a fertile field. 
+
+It can make sentient beings white and pure. 
+
+##### (3) Bodhicitta is like the earth. 
+
+Can hold all the worlds. 
+
+##### (4) Bodhicitta is like pure water. 
+
+It can wash away all troubles. 
+
+(5) Bodhicitta is like a strong wind. 
+
+There is no hindrance in the world. 
+
+(6) Bodhicitta is like a fire. Can burn all the salaries. 
+
+(7) Bodhicitta is like a pure sun. Illuminate all the worlds. 
+
+(8) Bodhicitta is like a full moon. 
+
+All pure and pure dharmas are perfect. 
+
+(9) Bodhicitta is like a beacon. It can put all kinds of dharmas bright.
+
+(10) Bodhicitta is like a pure eye. See all dangers. 
+
+(11) Bodhicitta is like the Great Way. Pu Ling had to enter Dazhi City. 
+
+(12) Bodhicitta is like Zhengji. To keep him free from all evils. 
+
+(13) Bodhicitta is like a cart. Universally able to carry all the Bodhisattvas. 
+
+(14) Bodhicitta is like a door. Demonstrate the deeds of all Bodhisattvas. 
+
+(15) Bodhicitta is like a palace. To live and practice the samadhi Dharma. 
+
+(16) Bodhicitta is like a garden. In the game by the law of music. 
+
+(17) Bodhicitta is like a house. Safe for all sentient beings. 
+
+(18) Bodhicitta is the destination. Benefit all the world. 
+
+(19) Bodhicitta is the basis for reliance. This is where all the bodhisattvas rely on. 
+
+(20) Bodhicitta is like a loving father. To teach all the bodhisattvas. 
+
+(21) Bodhicitta is like a loving mother. Because of the growth of all the bodhisattvas. 
+
+(22) Bodhicitta is like a nursing mother. To nurture all the bodhisattvas. 
+
+(23) Bodhicitta is like a good friend. To benefit all bodhisattvas. 
+
+(24) Bodhicitta is like a monarch. Victory over all two-way people. 
+
+(25) Bodhicitta is like a king. All wishes come true. 
+
+(26) Bodhicitta is like the ocean. All merits and virtues go into it. 
+
+(27) Bodhicitta is like Mount Sumeru. For all sentient beings to be equal. 
+
+(28) Bodhicitta is like a mountain surrounded by iron. Capturing all the worlds. 
+
+(29) Bodhicitta is like a snow mountain. Long nourish all wisdom medicine. 
+
+(30) Bodhicitta is like a fragrant mountain. Born with all the merits and virtues. 
+
+(31) Bodhicitta is like space. The wonderful virtues are boundless. 
+
+(32) Bodhicitta is like a lotus flower. Not defiled by all worldly laws. 
+
+(33) Bodhicitta is like adjusting the image of wisdom. His heart is kind and not violent. 
+
+(34) Bodhicitta is like a good horse. Stay away from all evils. 
+
+(35) Bodhicitta is like a tuner. Protect all the laws of Mahayana. 
+
+(36) Bodhicitta is like good medicine. Can cure all troubles. 
+
+(37) Bodhicitta is like a pit. Get rid of all evil laws. 
+
+(38) Bodhicitta is like a diamond. Knowing that he can pierce through all dharmas. 
+
+(39) Bodhicitta is like an incense stick. It can store all the merits and virtues. 
+
+(40) Bodhicitta is like a wonderful flower. Everything the world is happy to see. 
+
+(41) Bodhicitta is like white sandalwood. Eliminate the heat of desire and make it cool. 
+
+(42) Bodhicitta is like black agarwood. Being able to smoke the Dharma world is known all over the world. 
+
+(43) Bodhicitta is like the King of Medicine for Good View. Can break all troubles and illnesses. 
+
+(44) Bodhicitta is like the medicine of Vigupta. It can pull out all the arrows of confusion. 
+
+(45) Bodhicitta is like an emperor. The most honorable of all masters. 
+
+(46) Bodhicitta is like Bishamon. To end all poverty and suffering. 
+
+(47) Bodhicitta is like a heaven of merit. All virtues are solemn. 
+
+(48) Bodhicitta is like a solemn device. So honor all the bodhisattvas. 
+
+(49) Bodhicitta is like burning fire for kalpas. It can burn everything. 
+
+(50) Bodhicitta is like no root medicine. To nurture all the Buddhadharma. 
+
+(51) Bodhicitta is like a dragon ball. It can eliminate all troubles and poisons. 
+
+(52) Bodhicitta is like a pearl of water. It can clear all troubles. 
+
+(53) The wishful pearl of Bodhicitta. The week gives all the poor. 
+
+(54) Bodhicitta is like a bottle of merit. Satisfy all sentient beings. 
+
+(55) The wish-fulfilling tree of bodhicitta. It can rain everything solemn. 
+
+(56) Bodhicitta is like a goose feather coat. Free from all life and death. 
+
+(57) Bodhicitta is like a white thread. Pure nature from the beginning. 
+
+(58) Bodhicitta is like a quick plow. It can cure all sentient beings. 
+
+(59) Bodhicitta is like Narayan. It can destroy everything I see the enemy. 
+
+(60) Bodhicitta is like a fast arrow. It can break all suffering. 
+
+(61) Bodhicitta is like a sharp spear. It can wear all the troubles. 
+
+(62) Bodhicitta is like strong armor. Can take care of everything. 
+
+(63) Bodhicitta is like a sharp sword. It can cut off all troubles. 
+
+(64) Bodhicitta is like a sharp sword. It can break all the armor of slowness. 
+
+(65) Bodhicitta is like a banner of bravery. It can subdue all the demon armies. 
+
+(66) Bodhicitta is like a sharp saw. It can cut off all trees of ignorance. 
+
+(67) Bodhicitta is like a sharp axe. It can cut down all the bitter trees. 
+
+(68) Bodhicitta is like a soldier. Can prevent all suffering. 
+
+(69) Bodhicitta is like a good hand. Protect from all deaths. 
+
+(70) Bodhicitta is like good feet. Set up all the merits and virtues. 
+
+(71) Bodhicitta is like eye medicine. Eliminate all ignorance. 
+
+(72) Bodhicitta is like a pair of tweezers. It can pull out all the thorns in the body. 
+
+(73) Bodhicitta is like bedding. Relief from the toils of life and death. 
+
+(74) Bodhicitta is like a good teacher. Can solve all the ties of life and death. 
+
+(75) Bodhicitta is like a treasured treasure. Can eliminate all poverty incidents. 
+
+(76) Bodhicitta is like a great teacher. Good knowledge of the Bodhisattva out of the main way. 
+
+(77) Bodhicitta is like a terma. There is no shortage of merit and wealth. 
+
+(78) Bodhicitta is like a spring. The water of wisdom is inexhaustible. 
+
+(79) Bodhicitta is like a mirror. All Dharma gates are universally displayed. 
+
+(80) Bodhicitta is like a lotus flower. Not stained with all the filth of sin. 
+
+(81) Bodhicitta is like a great river. Flowing all the degrees of photography. 
+
+(82) Bodhicitta is like a dragon king. It can rain all the wonderful ways of rain. 
+
+(83) Bodhicitta is like the root of life. Renji Bodhisattva died of great compassion. 
+
+(84) Bodhicitta is like nectar. It can make you live in the world of immortality. 
+
+(85) Bodhicitta is like a big net. It covers all sentient beings. 
+
+(86) Bodhicitta is like a thread. Ingest everything that should be transformed. 
+
+(87) Bodhicitta is like a hook. There is no one who lives in the abyss. 
+
+(88) Bodhicitta is like Agata medicine. Can make disease-free eternal peace. 
+
+(89) Bodhicitta is like removing poison. All can put an end to greed and poison. 
+
+(90) Bodhicitta is like a good mantra. It can remove all the upside-down poisons. 
+
+(91) Bodhicitta is like a gust of wind. It can remove all obstacles. 
+
+(92) Bodhicitta is like a great treasure continent. Birth is a treasure of all awareness. 
+
+(93) Bodhicitta is like a good seed. Birth is all pure and pure. 
+
+(94) Bodhicitta is like a house. All virtues and virtues are based on. 
+
+(95) Bodhicitta is like a store. Bodhisattva merchants' trade deal. 
+
+(96) Bodhicitta is like alchemy medicine. It can cure all troubles. 
+
+(97) Bodhicitta is like honey. To complete all the merits and virtues. 
+
+(98) Bodhicitta is like the right path. So that the bodhisattvas enter the city of wisdom. 
+
+(99) Bodhicitta is like a good weapon. Can hold all the pure dharmas. 
+
+(100) Bodhicitta is like the rain of time. It can eliminate all troubles. 
+
+(101) Bodhicitta is the abode. Where all the bodhisattvas live. 
+
+(102) Bodhicitta is the life practice. Not taking the fruit of liberation from the voice hearers. 
+
+(103) Bodhicitta is like pure lapis lazuli. The self-nature is clear and pure without all impurities. 
+
+(104) Bodhicitta is like an emperor's green treasure. Out of the world's second vehicle wisdom. 
+
+(105) Bodhicitta is like a more leaked drum. I realize that all sentient beings are troubled and sleep. 
+
+(106) Bodhicitta is like pure water. Nature is pure and free from turbidity. 
+
+(107) Bodhicitta is like Jambujin. Reflecting everything for good. 
+
+(108) Bodhicitta is like a mountain king. Beyond all worlds. 
+
+(109) Bodhicitta is the destination. Not rejecting all who come. 
+
+(110) Bodhicitta is righteousness. Can eliminate all troubles. 
+
+(111) Bodhicitta is a wonderful treasure. It can make all hearts happy. 
+
+(112) Bodhicitta is like a great charity. Filled with the hearts of all beings. 
+
+(113) Bodhicitta is respected. All sentient beings have no equal in their hearts. 
+
+(114) Bodhicitta is like a terma. It can capture all Buddha Dharma. 
+
+(115) Bodhicitta is like Indra's net. It can suppress the troubles of Asura. 
+
+(116) Bodhicitta is like the wind of Polou. Able to change everything. 
+
+(117) Bodhicitta is like the fire of Indra. It can burn all delusions and habits. 
+
+(118) Bodhicitta is like a Buddha. All things in the world should be offered. good man. Bodhicitta. Achievement is such an immeasurable virtue. Make a point. You should know about all the merits and virtues of the Dharma. why. Because of Bodhicitta. Birth of all bodhisattvas. The Three Worlds Tathagata. Born from bodhicitta, therefore. A good man. If one develops anuttara-samyaksabodhi mind, then. Infinite merit has been born. Universal access to all wisdom. 
+
+(119) Good man. For example, there is someone who obtains the medicine of fearlessness and liberates from the five terrors.
+
+What five?.
 
 The so-called fire can not burn.
 
@@ -5070,7 +5393,7 @@ Bodhisattva Mahasattva arouses Bodhicitta.
 
 The same is true.
 
-, All kinds of karma and afflictions are freed from the two vehicles.
+All kinds of karma and afflictions are freed from the two vehicles.
 
 If you see it for a while, it will be gone.
 
@@ -5318,7 +5641,7 @@ Not all Dharma can be accomplished.
 
 The name is Xiangzang.
 
-, if you burn this incense.
+if you burn this incense.
 
 The king's four kinds of soldiers all soared into the void.
 
@@ -5334,7 +5657,7 @@ Eternally out of the Three Realms, the Tathagata's Wisdom is inaction in the sky
 
 (203) Good man. For example, the vajra is born only from the vajra and the gold.
 
-, was born in a place other than Yu Bao.
+was born in a place other than Yu Bao.
 
 Bodhisattva Mahasattva Bodhi Heart Vajra.
 
@@ -5588,7 +5911,9 @@ Then you will be able to know and study the actions of the Bodhisattva.
 
 Learning has been accomplished, and there are countless merits.
 
-2. How to develop bodhicitta We have already understood the merits and benefits of bodhicitta. How to cultivate bodhicitta?
+##### 2. How to develop bodhicitta 
+
+We have already understood the merits and benefits of bodhicitta. How to cultivate bodhicitta?
 
 To cultivate according to the ritual, there is one who has achieved Bodhi, and the ritual of the heart. We recite this ritual every day:
 
@@ -5616,9 +5941,13 @@ The above mentioned are the rituals of cultivating bodhicitta. There are two way
 
 Among them, the bodhicitta generated by the seven branches of cause and effect does not include the bodhicitta generated by the self-exchange, and the bodhicitta generated by the self-exchange includes all the seven, and the bodhicitta generated by the cause and effect.
 
-(1) Seven branches of cause and effect generate bodhicitta. Seven branches of cause and effect generate bodhichitta, which is based on seven steps to generate bodhicitta.
+(1) Seven branches of cause and effect generate bodhicitta. 
 
-The sequence is: identify all beings as mothers, miss mother's kindness, repay mother's kindness, show kindness, show compassion, increase sense of responsibility, and show bodhicitta.
+Seven branches of cause and effect generate bodhichitta, which is based on seven steps to generate bodhicitta.
+
+The sequence is: 
+
+identify all beings as mothers, miss mother's kindness, repay mother's kindness, show kindness, show compassion, increase sense of responsibility, and show bodhicitta.
 
 177
 
@@ -5691,13 +6020,13 @@ There is a great siddhis named Shangpa Rinpoche. His achievements are very, very
 
 Every spring and autumn, Shangpa Rinpoche would lecture on the Three Ways, and every time he lectured, he would say: "Those who sincerely practice Mahayana Buddhism must first recognize that all sentient beings are mothers, and they must make great efforts in this regard.
 
-When you see a bug, or some other animal, you must immediately think of it, it is your mother, and when no one is there to cry, you can cry and say, 'Mother, you are so pitiful' and so on."
+When you see a bug, or some other animal, you must immediately think of it as your mother, and when no one is there to cry, you can cry and say, 'Mother, you are so pitiful' and so on."
 
-Once, when Venerable Atisha was teaching the scriptures, he suddenly said to a disciple, Tzu, "Go to the forest below immediately, your mother is going to be hanged."
+Once, when Venerable Atisha was teaching the scriptures, he suddenly said to a disciple, Tzu, "Go to the forest below immediately, your mother is going to hang herself."
 
 The disciple had bad legs, and said anxiously, "Oh, mother, why are you going to hang yourself?" He immediately ran into the forest, running around, looking for his mother with great difficulty.
 
-Later, I saw an old horse with its neck caught between two trees and was about to get stuck, so he rescued the horse.
+Later, he saw an old horse with its neck caught between two trees and was about to get stuck, so he rescued the horse.
 
 When he came back, he said to Venerable Atisha, "Sir, my mother is not in the forest.
 
@@ -5709,7 +6038,7 @@ When Venerable Atisha was about to pass away, many people came to say goodbye to
 
 Everyone cried very sadly, and everyone said, "His Holiness is going to pass away, and he will never be seen again!" It was very painful in their hearts.
 
-The Venerable then said to Master Zhongdunpa, "If someone in the future says that he has no good fortune and has never seen Atisha, don't think so.
+The Venerable then said to Master Dromtonpa, "If someone in the future says that he has no good fortune and has never seen Atisha, don't think so.
 
 The Dharma taught by Atisha is bodhicitta, and when one develops bodhicitta, it is like seeing Atisha in person. "
 
@@ -5735,7 +6064,7 @@ It is very, very important to recognize that all sentient beings are mothers.
 
 Shakyamu, Ni Buddha once said when he taught the Mahayana Dharma: "There is no one place for sentient beings that has not been born. Since beginningless, there has not been a single sentient being who has not been us. Mother, all sentient beings are our parents."
 
-When someone visited Venerable Atisha and saw flies in his house, they went to fight them.
+When someone visited Venerable Atisha and saw flies in his house, they went to swat them.
 
 His Holiness said: "Don't hit it, it is my mother."
 
@@ -5818,7 +6147,7 @@ After Master Tsongkhapa went to Tibet, he never returned to the Amdo area.
 
 The master's mother wrote him a letter saying, "My child, I want to see you."
 
-He took out another piece of white hair and sent it to Tsongkhapa, Master.
+She cut off a lock of white hair and sent it to Tsongkhapa, Master.
 
 Master Tsongkhapa has been preaching the Dharma in Tibet. At that time, he was at the peak of his teaching career. He taught a lot of sutras every day.
 
@@ -5828,17 +6157,19 @@ The master painted a thangka in a few days and asked a businessman named Norsan 
 
 When Norsang arrived in Amdo, he gave the thangka to the master's mother.
 
-As soon as this Thangka was opened, the image of Tsongkhapa in the Thangka said, "Hello, mother!" The mother's heart was relieved all of a sudden, she missed her son, and the pain of her son disappeared, just like seeing her son with her own eyes. .
+As soon as this Thangka was opened, the image of Tsongkhapa in the Thangka said, "Hello, mother!" The mother's heart was relieved all of a sudden, she missed her son, but the pain of missing her son disappeared, and it was just like seeing her son with her own eyes.
 
 The mother of the master hangs the thangka in her room and faces it when she has time. When the master Tsongkhapa on the thangka speaks, the statue of the master on the thangka will respond.
 
 Master Tsongkhapa himself painted two thangkas, one for his mother and the other for his sister.
 
-The Tang, the card for my mother is now in the Kadikawa Temple in Qinghai, and the one for my sister is in the Dajinwa Temple in the Ta'er Temple.
+The Thangka, the card for his mother is now in the Kadikawa Temple in Qinghai, and the one for his sister is in the Dajinwa Temple in Ta'er Monastery.
 
 When cultivating the kindness of missing your mother, you must first recognize that the sentient beings in the six realms are your own mothers. If you still can’t do this, you can start from thinking about the kindness of the present, the birth mother. become more and more extensive.
 
-Repaying Mother's Grace After I miss my mother's kindness, I think about how to repay my mother's kindness.
+##### 3. Repaying Mother's Kindness 
+
+After I miss my mother's kindness, I think about how to repay my mother's kindness.
 As for the mother in this life, if she is still alive, we can repay the mother's kindness with practical actions, such as taking care of her and honoring her.
 
 Honoring one's mother is the lowest degree of repayment for her kindness, and then introducing her to Buddhism and letting her practice the Dharma.
@@ -5865,12 +6196,18 @@ If there is really no way to help sentient beings, when we see poor sentient bei
 
 Doing this regularly will also help develop compassion.
 
+##### 4. Showing Mercy
+
 Loving kindness, also known as merciful kindness, is a state of mind that cherishes and cherishes each other.
-Master Bodova once said to an old grandmother: "Yue, yi ci is the kind of loving-kindness you have for your son."
+Master Bodowa once said to an old grandmother: 
+
+"Yue, yi ci is the kind of loving-kindness you have for your son."
 
 Treating all sentient beings as the children of our own will is the kindness and kindness that only Buddhas, Bodhisattvas, and Sagittarius have, and the kindness and kindness we want to get.
 
-(1) How to develop loving-kindness To practice loving-kindness, first of all, you must show loving-kindness to your own mother.
+##### (1) How to develop loving-kindness 
+
+To practice loving-kindness, first of all, you must show loving-kindness to your own mother.
 
 To develop loving-kindness towards a mother is not to crave the mother, but to have, true love.
 
@@ -5908,21 +6245,38 @@ If you are often jealous of others, you can try to blame yourself: I don’t hav
 
 In this way, the mentality will gradually change.
 
-(2) If the eight virtues of radiating loving-kindness can truly generate loving-kindness, the virtues will be enormous.
+##### (2) The eight virtues of loving kindness
+
+If the eight virtues of radiating loving-kindness can truly generate loving-kindness, the virtues will be enormous.
 
 It is stated in the "Bao Ga Lun":
 
-Three o'clock every day, three hundred cans of food,
-
-However, it is not as long as a moment, and I can cultivate a point of kindness.
-
-All heavenly beings are loving, they are always guarding,
-
-Joy is much more comfortable, and poisonous knives cannot penetrate.
-
-To accomplish nothing without labor, to be born in the world of Brahma,
-
-If you are unable to liberate, you will obtain the eight virtues of loving-kindness.
+>
+>Three o'clock every day, 
+>
+>three hundred jars of food,
+>
+>However, it is not as long as a moment, 
+>
+>and I can cultivate a point of kindness.
+>
+>All heavenly beings are loving, 
+>
+>they are always guarding,
+>
+>Joy is much more comfortable, 
+>
+>and poisonous knives cannot penetrate.
+>
+>To accomplish nothing without labor,
+>
+>to be born in the world of Brahma,
+>
+If you are unable to liberate, 
+>
+>you will obtain the eight virtues of loving-kindness.
+>
+---
 
 This means that if someone gives three hundred jars of food and drink to sentient beings three times a day, the merit is of course very, very great, but no, the merit of cultivating loving-kindness in an instant.
 
@@ -5936,29 +6290,33 @@ Because of the warmth in him that everyone can feel.
 
 191
 
-When Dharma King Yongzeng was alive, everyone was very happy to see him, even Muslims, because of his loving kindness.
+When Dharma Master Yongzeng was alive, everyone was very happy to see him, even Muslims, because of his loving kindness.
 
 Yeshe, no matter where Dharma King Gyatso goes, no matter what religion, religion, or nationality he encounters, everyone likes him very much and welcomes him.
 
-2) The heart will be very peaceful and happy. When Dharma King Yeshe Gyatso lectured on the sutras, he often said: "I have nothing, I have no special merit, I put my head on the pillow and fell asleep, this is my merit.
+##### 2) The heart will be very peaceful and happy. 
+
+When Dharma King Yeshe Gyatso lectured on the sutras, he often said: "I have nothing, I have no special merit, I put my head on the pillow and fell asleep, this is my merit.
 
 "This shows that he has a loving heart.
 
 It is not easy for those without loving-kindness to fall asleep, and even if they do not sleep well, they are always uneasy and worried.
 
-3) The swordsmen and poisonous demons cannot harm him. When Buddha Shakyamuni was about to become a Buddha, many emperors and demons came to hinder him. "
+##### 3) The swordsmen and poisonous demons cannot harm him. 
 
-The Son of Heaven Demon tempted the Buddha and said, "Stop practicing, Devadatta, if you want to be a king, he will harm all beings.
+When Buddha Shakyamuni was about to become a Buddha, many emperors and demons came to hinder him. "
+
+Mara tempted the Buddha and said, "Stop practicing, Devadatta, if you want to be a king, he will harm all beings.
 
 Buddha Shakyamuni ignored them, and they gave many reasons, such as "Your parents are sick" and so on.
 
 But the Buddha is motionless, always resting in loving-kindness concentration.
 
-The Son of Heaven Demon turned into a lot of beautiful women, but he still couldn't, disturbing the Buddha.
+The Son of Heaven Demon turned into a lot of beautiful women, but he still couldn't disturb the Buddha.
 
-In the end, the Emperor Demon had no choice, so he turned out a lot of knives and spears to slash the Buddha.
+In the end, Mara had no choice, so he turned out a lot of knives and spears to slash the Buddha.
 
-At this time, the Buddha sent out loving-kindness, and the sword and spear became a lotus. This is the energy of a benevolent heart.
+At this time, the Buddha sent out loving-kindness, and the swords and spears became a lotus. This is the energy of a benevolent heart.
 
 In the past, someone threw a poison to Master Jiamu-like Xieba of Labrang Monastery. After being poisoned, the master felt a little uncomfortable.
 
@@ -5982,21 +6340,29 @@ Tigers, lions and other beasts saw him, and the same was true.
 
 Once, there was a war, and the two sides in the war were in chaos, hacking and killing. Shanpa Rinpoche happened to pass by this place. When everyone saw him, they put down their swords and guns, and no longer wanted to kill.
 
-4) All things go well without hard work. People with loving-kindness will get the help of human beings and all beings. When doing things, they don’t have to work very hard, and they will naturally have their wishes.
+##### 4) All things go well without hard work. 
+
+People with loving-kindness will get the help of human beings and all beings. When doing things, they don’t have to work very hard, and they will naturally have their wishes.
 
 193
 
-5) Anyone who is free to be reborn in a pure land in another place can be reborn in another place, in a pure land at will, after the death of a person who has obtained loving-kindness.
+##### 5) Reborn in the Pure Land at will
 
-If they want to be reborn in the Western Pure Land, if ordinary people recite Ami, the Buddha may not be guaranteed to be reborn, but after receiving loving kindness, they can definitely be reborn in the Western Paradise.
+Anyone who is free to be reborn in a pure land in another place can be reborn in another place, in a pure land at will, after the death of a person who has obtained loving-kindness.
 
-(3) How to cultivate loving-kindness So, how do we cultivate loving-kindness? It can be cultivated by the method of visualization.
+If they want to be reborn in the Western Pure Land, if ordinary people recite Amitabha Buddha may not be guaranteed to be reborn, but after receiving loving kindness, they can definitely be reborn in the Western Paradise.
+
+##### (3) How to cultivate loving-kindness 
+
+So, how do we cultivate loving-kindness? It can be cultivated by the method of visualization.
 
 First of all, we must make our mind: May all sentient beings be blessed with happiness and the cause of happiness.
 
-Then, visualize your body becoming a wish-fulfilling jewel, and innumerable wish-fulfilling jewels appear in the wish-fulfilling jewel, and then visualize giving the wish-fulfilling jewel to every sentient being. Whatever sentient beings want, the wish-fulfilling jewel will manifest at will. .
+Then, visualize your body becoming a wish-fulfilling jewel, and innumerable wish-fulfilling jewels appear in the wish-fulfilling jewel, and then visualize giving the wish-fulfilling jewel to every sentient being. Whatever sentient beings want, the wish-fulfilling jewel will manifest at will. 
 
 Through this kind of visualization, all sentient beings in the six realms can obtain peace, happiness and the cause of happiness.
+
+##### 5. Generate Bodhicitta
 
 Compassion is to relieve suffering. Compassion is the heart that wishes all sentient beings to be free from suffering and the causes of suffering.
 Suffering is suffering, affliction is affliction;
@@ -6009,17 +6375,27 @@ Compassion is great compassion.
 
 The seven branches of the Mahayana cause Bodhi, and the most precious thing in the heart is compassion. With compassion, the ability to save people and life will become very, very great.
 
-(1) The importance of great compassion It is very, very important to have compassion.
+##### (1) The importance of great compassion
+
+It is very, very important to have compassion.
 
 First of all, having compassion and heart is one of the important differences between Buddhism and heresy.
 
 Secondly, compassion and heart are also the foundation of Mahayana Buddhist practice.
 
-Master Tsongkhapa specifically pointed out in the section of the judgment on the stages of cultivating bodhicitta in "The Extensive Treatise on the Stages of the Path of Bodhisattva", stating: "The root of the Mahayana path is great compassion", and "All, the remaining cause and effect is the truth of this cause and effect".
+Master Tsongkhapa specifically pointed out in the section of the judgment on the stages of cultivating bodhicitta in "The Extensive Treatise on the Stages of the Path of Bodhisattva", stating: 
+
+"The root of the Mahayana path is great compassion", 
+
+and 
+
+"All, the remaining cause and effect is the truth of this cause and effect".
 
 It means that all the fruits of Mahayana Buddhism all come from compassion.
 
-The "Zheng She Dharma Sutra" also says: "World Honored One, like the wheel-turning saint, wherever the King's Wheel Treasure arrives, all the armies arrive there.
+The "Zheng She Dharma Sutra" also says: 
+
+"World Honored One, like the wheel-turning saint, wherever the King's Wheel Treasure arrives, all the armies arrive there.
 
 World Honored One, such a Bodhisattva, where great compassion comes, all Buddhadharma comes to him. "
 
@@ -6041,9 +6417,15 @@ Therefore, in order to become a Buddha, the first and foremost thing is to culti
 
 The second verse that follows immediately says:
 
-Compassion is the great fruit of the Buddha, like a seed growing like water at first.
+Compassion is the great fruit of the Buddha, 
 
-If you can use it all the time, if it is mature, I will first praise the great compassion.
+like a seed growing like water at first.
+
+If you can use it all the time, 
+
+if it is mature, 
+
+I will first praise the great compassion.
 
 That is to say, in order to obtain such a vast blessing as a Buddha, when a bodhisattva first develops his mind, he needs to have a great compassion in order to induce bodhi, the seed of the heart, because bodhicitta is the cause of a bodhisattva, and great compassion is a bodhisattva.
 
@@ -6059,13 +6441,21 @@ Therefore, for becoming a Buddha, every moment of the first, middle, and last th
 
 It is also stated in the "Jing Zhuang Lun":
 
-Without the root of compassion, one cannot endure the suffering of practice,
+Without the root of compassion, 
 
-If you can't endure suffering, nothing will happen to benefit you.
+one cannot endure the suffering of practice,
 
-If you don't have the thought of benefiting your life, you won't make a wish to turn your body around.
+If you can't endure suffering, 
 
-If you don't turn around and have a good body, you can't lead sentient beings.
+nothing will happen to benefit you.
+
+If you don't have the thought of benefiting your life, 
+
+you won't make a wish to turn your body around.
+
+If you don't turn around and have a good body, 
+
+you can't lead sentient beings.
 
 What does that mean? That is to say: if a practitioner does not have compassion, and his heart is the root, he will not be able to endure the suffering of cultivation;
 
@@ -6135,12 +6525,20 @@ The compassion that only wishes to stay away from pain is the compassion of the 
 
 And the kind of compassion that sees the suffering of sentient beings, generates courage, and saves sentient beings is the compassion of the Mahayana, also known as the compassion of the father, and it is also the compassion that we need to generate.
 
-Increase the sense of responsibility The responsibility here refers to the responsibility and responsibility of guiding sentient beings in the six realms to get rid of suffering and achieve happiness.
+##### 6. Increase the sense of responsibility
+
+The responsibility here refers to the responsibility and responsibility of guiding sentient beings in the six realms to get rid of suffering and achieve happiness.
+
+
 After developing compassion and compassion, the next step is to increase the responsibility, mind: All beings in the six realms are their own parents, and who is responsible for guiding the living beings in the six realms, to get rid of suffering and achieve happiness? It's mine, it's our responsibility.
 
 We have to take on the responsibility of guiding sentient beings in the six realms to get rid of suffering and achieve happiness. The courage to take on this responsibility is to increase the sense of responsibility.
 
-Arouse Bodhicitta (1) When arousing bodhicitta and great compassion, he has not yet initiated the sense of responsibility to guide the people, to be free from suffering and achieve happiness.
+##### 7. Arouse Bodhicitta 
+
+##### (1) Generating Bodhicitta
+
+When arousing bodhicitta and great compassion, he has not yet initiated the sense of responsibility to guide the people, to be free from suffering and achieve happiness.
 Now, we have decided, this, the responsibility is ours.
 
 However, although I have the heart to take it, do I have the ability to take it? Think about it carefully, currently, there is no such ability.
@@ -6183,11 +6581,15 @@ There is no other way for sentient beings to be free from suffering and attain h
 
 So, what are the benefits of becoming a Buddha? This also needs to be clearly stated. If you don’t know what a Buddha is like, you will be obstructed and you will develop bodhicitta.
 
-(2) The merits of the four bodies of the Buddha The merits of the body, speech, and mind of the Buddha have been discussed before, so let's talk about the merits of the four bodies of the Buddha.
+##### (2) The merits of the four bodies of the Buddha 
+
+The merits of the body, speech, and mind of the Buddha have been discussed before, so let's talk about the merits of the four bodies of the Buddha.
 
 The Buddha has four bodies, namely, the body of retribution, the body of incarnation, the body of law, and the body of self-nature.
 
-1) The Buddha's Sambhogakaya The Buddha's Sambhogakaya is an eternal life, an immortal being with 32, 80, and 80 appearances.
+##### 1) The Buddha's Sambhogakaya 
+
+The Buddha's Sambhogakaya is an eternal life, an immortal being with 32, 80, and 80 appearances.
 
 Freed from birth, old age, sickness, and death, life is eternal, forever, and will not pass away.
 
@@ -6205,7 +6607,9 @@ Fourth, only the Mahayana Dharma is taught, not the Hinayana.
 
 Fifth, abide in the supreme tantric realm.
 
-2) Incarnation of Buddha 203
+##### 2) Incarnation of Buddha 
+
+203
 
 The incarnation is the incarnation of the sambhogakaya, and the sambhogakaya can be incarnated in many, many kinds of incarnations.
 
@@ -6309,11 +6713,16 @@ He put him in a cowhide bag and threw it into the Ganges River. When the bag slo
 
 The island was later called Zanza Island, and it still exists today.
 
-3) The Buddha's Dharma Body is the Buddha's great wisdom and all knowledge.
+##### 3) The Buddha's Dharma Body 
+
+Dharmakaya is the Buddha's great wisdom and all knowledge.
 
 Wisdom can be transformed into the body of a Buddha, so it is said that the wisdom of the Buddha is everywhere, and the Buddha is also everywhere.
 
-4) The Buddha's Self-Nature Body Self-Nature Body is the Buddha's true body, the original appearance of the mind.
+##### 4) The Buddha's Self-Nature Body
+
+
+Self-Nature Body is the Buddha's true body, the original appearance of the mind.
 
 Because the self-nature body is the ultimate nirvana in which the self-nature is pure and the guest dust is pure, so after being fully enlightened, after realizing the ultimate nirvana, you will truly obtain the self-nature body.
 
@@ -6321,17 +6730,28 @@ At the same time, the Buddha has the merits of the four bodies.
 
 After understanding the merits and virtues of the Buddha's four bodies, let's think about it again: Only when you become a Buddha can you have such merits and virtues, so as to motivate yourself to develop Bodhi, your mind will be more diligent, and you will get bodhicitta faster.
 
-(2) Bodhicitta is generated by exchanging with others. Above are the seven causal factors that generate bodhicitta. Now, we will talk about exchanging with others and generating bodhicitta.
+##### (2) Bodhicitta of exchanging with others. 
+
+Above are the seven causal factors that generate bodhicitta. Now, we will talk about exchanging with others and generating bodhicitta.
 
 Shantideva Bodhisattva said in the Treatise on Entering the Way of the Bodhisattva:
 
-If a person wants to get sick quickly, the rescue will be with him, and the secret formula should be cultivated, and the name will be replaced by him.
+If a person wants to get sick quickly,
+
+ the rescue will be with him, 
+ 
+ and the secret formula should be cultivated, 
+ 
+ and the name will be replaced by him.
 
 Compared with the seven-branch causal generation of bodhicitta, by cultivating self-exchange and generating bodhicitta, the awakening of bodhicitta is quicker and more courageous, and there are many, extraordinary merits and virtues.
 
 209
 
-Definition of Self-exchanged Bodhichitta What does it mean to "exchange" of self-exchanged Bodhichitta? , I don't mean to exchange with others, that's not what I mean.
+
+##### 1. Definition of Exchanging Self with Others Bodhichitta 
+
+What does it mean to "exchange" of self-exchanged Bodhichitta? , I don't mean to exchange with others, that's not what I mean.
 It is to exchange our self-interests that love me and respect me to those who love him and respect him, and altruistic hearts.
 
 Then change to increase the sense of responsibility, and then change to Bodhi, the mind, it is called the exchange of bodhicitta with others.
