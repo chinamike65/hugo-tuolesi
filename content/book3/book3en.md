@@ -194,19 +194,19 @@ August 8, 2015
 
 **Table of contents**
 
-Part 1 The Victor and the Teachings are excellent ………………. 3
+### Part I - The Victor and the Teachings are excellent ………………. 3
 
-Chapter 1 The Lineage of the Path ………………. 5
+#### Chapter 1 The Lineage of the Path ………………. 5
 
-Chapter 2 Perfection of the sequence of the Path ……………….11
+#### Chapter 2 Perfection of the sequence of the Path ……………….11
 
 Master Tsongkhapa……………….. 11
 
 Greatness of the "Great Treatise on the Stages of the Path of Enlightenment "... 17
 
-1. An extraordinary author ………….. …….17
+##### 1. An extraordinary author ………….. …….17
 
-2. Supreme Dharma ................................................ 18
+##### 2. Supreme Dharma ................................................ 18
 
 (1) Correct Nature …………. 18
 
@@ -214,25 +214,25 @@ Greatness of the "Great Treatise on the Stages of the Path of Enlightenment "...
 
 (3) Correct Order …………. 20
 
-3. Location ................................................................ 20
+##### 3. Location ................................................................ 20
 
-4. Best Advice ……………… 21
+##### 4. Best Advice ……………… 21
 
-5. The relatives are special……………… 23
+##### 5. The relatives are special……………… 23
 
-Section Three - Other writings on the Path ………….. 24
+#### Chapter 3 - Other writings on the Path ………….. 24
 
-1. Other writings on the Path... 24
+##### 1. Other writings on the Path... 24
 
-2. The Importance of the Sequence of the Paths ................................................ 26
+##### 2. The Importance of the Sequence of the Paths ................................................ 26
 
-Part 2: How to Learn The Three Principal Aspects of the Path ……………… 29
+### Part II - How to Learn The Three Principal Aspects of the Path ……………… 29
 
-Chapter 1 The root of the Path is to be close to the guru ………….. 31
+#### Chapter 1 The root of the Path is to be close to the guru ………….. 31
 
-Section 1 Requirements of a Guru... 34
+**Section 1 Requirements of a Guru... 34**
 
-1. Basic requirements of a guru... 34
+##### 1. Basic requirements of a guru... 34
 
 (1) Pure Morality ... 34
 
@@ -244,7 +244,7 @@ Section 1 Requirements of a Guru... 34
 
 (5) Understanding of Emptiness …………. 37
 
-2. Requirements for Ordained Masters …….. 38
+##### 2. Requirements for Ordained Masters …….. 38
 
 (1) Pure Morality . . . . 38
 
@@ -256,7 +256,7 @@ Section 1 Requirements of a Guru... 34
 
 (5) Knowing the timing . . . . 40
 
-3. Requirements for a Mahayana Guru …….. 40
+##### 3. Requirements for a Mahayana Guru …….. 40
 
 (1) Pure morality …………. 41
 
@@ -278,7 +278,7 @@ Section 1 Requirements of a Guru... 34
 
 (10) Patient …………. 46
 
-4. Requirements for a Tantric Guru... 46
+##### 4. Requirements for a Tantric Guru... 46
 
 (1) Uphold the Three Virtues. . . . 47
 
@@ -306,9 +306,9 @@ Section 1 Requirements of a Guru... 34
 
 (13) Purity …………. 56
 
-Session 2 - Getting Closer to the Guru……………… 58
+**Section 2 - Getting Closer to the Guru……………… 58**
 
-1. How to get close to the guru …………. 59
+##### 1. How to get close to the guru …………. 59
 
 (1) Making offerings to the guru …………. 60
 
@@ -316,7 +316,7 @@ Session 2 - Getting Closer to the Guru……………… 58
 
 (3) Follow the Dharma . . . . 61
 
-2. The merits of making offerings and serving ………….. 62
+##### 2. The merits of making offerings and serving ………….. 62
 
 (1) The merits of making offerings to the guru... 62
 
@@ -324,7 +324,7 @@ Session 2 - Getting Closer to the Guru……………… 58
 
 (3) With what kind of attitude do you serve the guru? .... 66
 
-3. The merits of piety and sincerity ................................ 74
+##### 3. The merits of piety and sincerity ................................ 74
 
 (1) Natural blessing... 74
 
@@ -332,15 +332,15 @@ Session 2 - Getting Closer to the Guru……………… 58
 
 (3) Accelerated achievement …………. 78
 
-4. The merits and virtues of visualising the image of the guru …….. 79
+##### 4. The merits and virtues of visualising the image of the guru …….. 79
 
-5. The merits of thinking and praying…………. 81
+##### 5. The merits of thinking and praying…………. 81
 
 (1) The merits of thinking of the guru. . . . 81
 
 (2) Prayer for the merits of the Guru. . . . 85
 
-6. The virtue of being a Buddha... 86
+##### 6. The virtue of being a Buddha... 86
 
 (1) The Guru is the Buddha... 86
 
@@ -350,15 +350,15 @@ Session 2 - Getting Closer to the Guru……………… 58
 
 Section 3 The sin of disrespecting the guru ………………. 93
 
-1. The sinful karma of the body ................................................ 93
+##### 1. The sinful karma of the body ................................................ 93
 
-2. The karma of language ……………….. 94
+##### 2. The karma of language ……………….. 94
 
 (1) The sin of slandering the guru... 95
 
 (2) The karma of not following the teacher's words ... 99
 
-3. The sinful karma of the mind ………………. 100
+##### 3. The sinful karma of the mind ………………. 100
 
 (1) Sinful karma of being angry with the guru... 101
 
@@ -374,9 +374,9 @@ Section 3 The sin of disrespecting the guru ………………. 93
 
 (7) An unbalanced view of the sinful karma of the guru... 116
 
-##### Section 4  - The Attitude of Being Close to the Guru  … 118
+**Section 4  - The Attitude of Being Close to the Guru  … 118**
 
-1. The merits of reciting teachers and building up confidence. . . . 118
+##### 1. The merits of reciting teachers and building up confidence. . . . 118
 
 (1) The transformation of Buddhas and Bodhisattvas is incredible... 119
 
@@ -384,7 +384,7 @@ Section 3 The sin of disrespecting the guru ………………. 93
 
 (3) The virtues of reciting teachers builds confidence... 126
 
-2. The kindness of reciting a teacher inspires respect. . . . 127
+##### 2. The kindness of reciting a teacher inspires respect. . . . 127
 
 (1) The kindness of the teacher surpasses the Buddha... 127
 
@@ -394,9 +394,9 @@ Section 3 The sin of disrespecting the guru ………………. 93
 
 (4) The kindness of reciting teachers inspires respect... 132
 
-Section 5 - How to Learn to Draw Close to the Guru 135
+**Section 5 - How to Learn to Draw Close to the Guru ....135**
 
-1. How to practice during regular practice ………… 135
+##### 1. How to practice during regular practice ………… 135
 
 (1) Moving forward ………………. 135
 
@@ -404,11 +404,11 @@ Section 5 - How to Learn to Draw Close to the Guru 135
 
 (3) Dedication ………………. 162
 
-2. How to meditate in daily life ………….. 162
+##### 2. How to meditate in daily life ………….. 162
 
-Section 6 - Disciples' Virtues and Requirements... 163
+**Section 6 - Disciples' Virtues and Requirements... 163**
 
-1. Disciple's Virtue ................................................. 163
+##### 1. Disciple's Virtue ................................................. 163
 
 (1) Pure heart ………… 163
 
@@ -416,13 +416,13 @@ Section 6 - Disciples' Virtues and Requirements... 163
 
 (3) Desire to progress ………….. 164
 
-2. Requirements for Discipleship ………… 164
+##### 2. Requirements for Discipleship ………… 164
 
 (1) Disciples who hear the Dharma should always seek the Dharma… 165
 
 (2) Disciples who hear the Dharma must eradicate the faults of the **three kinds of devices**... 166
 
-3. There are six kinds of thoughts that disciples who hear the Dharma should have... 168
+##### 3. There are six kinds of thoughts that disciples who hear the Dharma should have... 168
 
 (1) Think of yourself as a patient... 168
 
@@ -436,13 +436,13 @@ Section 6 - Disciples' Virtues and Requirements... 163
 
 (6) Constantly Contemplating the Dharma ... 169
 
-4. The Etiquette of Listening to the Dharma 170
+##### 4. The Etiquette of Listening to the Dharma 170
 
-Chapter 2 How to study after getting close to the guru………….. 173
+#### Chapter 2 How to study after getting close to the guru………….. 173
 
-Section 1 - Precious Human Life ……………….. 173
+**Section 1 - Precious Human Life ……………….. 173**
 
-1. What is a Precious Human Life? 174
+##### 1. What is a Precious Human Life? 174
 
 (1) Eight Immaculate Persons …………. 174
 
@@ -450,7 +450,7 @@ Section 1 - Precious Human Life ……………….. 173
 
 (3) The Ten Perfected Human Beings …….. 180
 
-2. The preciousness of the human body ... 185
+##### 2. The preciousness of the human body ... 185
 
 (1) Obtaining a precious human body can benefit the present life and the next.   185
 
@@ -464,7 +464,7 @@ Section 1 - Precious Human Life ……………….. 173
 
 (6) Compared with being born in the Land of Ultimate Bliss, the time spent in the cultivation of compassion and bodhicitta is short and the reward is great. … 190
 
-3. Conditions for obtaining a precious human body...... 190
+##### 3. Conditions for obtaining a precious human body...... 190
 
 (1) Purity of morals ... 191
 
@@ -472,7 +472,7 @@ Section 1 - Precious Human Life ……………….. 173
 
 (3) Make good wishes ………….. 192
 
-4. The Rareness of a Precious Human Body………….. 192
+##### 4. The Rareness of a Precious Human Body………….. 192
 
 (1) It is difficult to plant seeds  of a precious human life ... 196
 
@@ -480,23 +480,23 @@ Section 1 - Precious Human Life ……………….. 173
 
 (3) The fruits of a Precious Human Body are difficult to fully mature...197
 
-5. Cherish life in a Precious Human Body ………….. 198
+##### 5. Cherish life in a Precious Human Body ………….. 198
 
-Section 2 - Correctly understand the essence of the Buddhism...... 202
+**Section 2 - Correctly understand the essence of the Buddhism...... 202**
 
-1. The goal of The Three Principal Aspects of the Path ………….. 202
+##### 1. The goal of The Three Principal Aspects of the Path ………….. 202
 
-2. Common and Uncommon Paths.. 203
+##### 2. Common and Uncommon Paths.. 203
 
-3. The Three Principal Aspects of the Path Stages of Practice ………… 204
+##### 3. The Three Principal Aspects of the Path Stages of Practice ………… 204
 
-Part III - The Three Principal Aspects of the Path ……………………. 209
+### Part III - The Three Principal Aspects of the Path ……………………. 209
 
 Part 1 - Lower Path …………………… 211
 
-Chapter 1 - Impermanence of life ……………….. 211
+#### Chapter 1 - Impermanence of life ……………….. 211
 
-1. How to think about the impermanence of life ... 213
+##### 1. How to think about the impermanence of life ... 213
 
 (1) People are bound to die. . . . 213
 
@@ -504,19 +504,19 @@ Chapter 1 - Impermanence of life ……………….. 211
 
 (3) At the time of death, apart from the Dharma, nothing can help. … 226
 
-2. Dying Phases and Differences ... 229
+##### 2. Dying Phases and Differences ... 229
 
 (1) Dying phase... 229
 
 (2) The difference between studying Buddhism and not studying Buddhism ... 230
 
-3. How to realize the concept of impermanence in life... 233
+##### 3. How to realize the concept of impermanence in life... 233
 
-Section 2 - The Three Evil Realms of Suffering ……………….. 237
+**Section 2 - The Three Evil Realms of Suffering ……………….. 237**
 
-1. Reasons for falling into the Three Evil Realms 237
+##### 1. Reasons for falling into the Three Evil Realms 237
 
-2. The suffering of the three evil realms ……………… 239
+##### 2. The suffering of the three evil realms ……………… 239
 
 (1) Suffering in the hell realms ................................................ 239
 
@@ -524,11 +524,11 @@ Section 2 - The Three Evil Realms of Suffering ……………….. 237
 
 (3) Suffering of the animal realm …………. 260
 
-Section 3 - Refuge ……………… 265
+**Section 3 - Refuge ……………… 265**
 
-1. The reasons for taking refuge in the Three Jewels ................................................ 265
+##### 1. Reasons for taking refuge in the Three Jewels ................................................ 265
 
-2. Extent of Refuge ……………… 267
+##### 2. Extent of Refuge ……………… 267
 
 (1) Knowing the merits of the Three Jewels and taking refuge … 267
 
@@ -538,7 +538,7 @@ Section 3 - Refuge ……………… 265
 
 (4) Not taking refuge in anything other than the Three Jewels. 283
 
-3. How to study and practice after taking refuge... 285
+##### 3. How to study and practice after taking refuge... 285
 
 (1) The classified precepts that should be observed after taking refuge in the Three Jewels... 286
 
@@ -546,9 +546,9 @@ Section 3 - Refuge ……………… 265
 
 (3) The merits and benefits of taking refuge... 300
 
-Section 4 Cause and Effect ……………………. 306
+**Section 4 - Cause and Effect ……………………. 306**
 
-1. Recognizing cause and effect ................................................. 310
+##### 1. Recognizing cause and effect ................................................. 310
 
 (1) The inevitability of karma ...... 310
 
@@ -558,31 +558,31 @@ Section 4 Cause and Effect ……………………. 306
 
 (4) Innocence of Karma .... 321
 
-2. The Ten Paths of Karma ……………….. 325
+##### 2. The Ten Paths of Karma ……………….. 325
 
 (1) The results of the ten evil paths of karma ...... 326
 
 (2) How to Eliminate Karmic Obstacles….. 340
 
-Section 5: The Eight Blessed Personal Attributes ………………. 345
+**Section 5 - The Eight Blessed Personal Attributes ………………. 345**
 
-1. Longevity…………………….. 345
+##### 1. Longevity…………………….. 345
 
-2. Majestic appearance ………………. 345
+##### 2. Majestic appearance ………………. 345
 
-3. Born to be a noble ……………. 346
+##### 3. Born to be a noble ……………. 346
 
-4. Wealth and popularity ………… 346
+##### 4. Wealth and popularity ………… 346
 
-5. Possessing morality ……………….. 346
+##### 5. Possessing morality ……………….. 346
 
-6. A person with authority ………….. 347
+##### 6. A person with authority ………….. 347
 
-7. A Precious Human Life ... 347
+##### 7. A Precious Human Life ... 347
 
-8. Possessing power ………………. 347
+##### 8. Possessing power ………………. 347
 
-Section 6 - Summary of the Lower Path ………………. 349
+**Section 6 - Summary of the Lower Path ………………. 349**
 
 ![阿底峡尊者](/images/atisha3.png)
 
@@ -597,80 +597,94 @@ Tsongkhapa and three apprentices
 
 Creator and Dharma
 
-#### PART I
+### Part I
 
 ----
 
-I prostrate at the feet of Nagarjuna and Asanga,
-
-Ornaments of Jambudvipa
-
-Renowned throughout the three levels,
-
-Who composed commentaries, in accordance with the intention,
-
-On the Mother of the Conquerors so hard to fathom.
+>
+>I prostrate at the feet of Nagarjuna and Asanga,
+>
+>Ornaments of Jambudvipa
+>
+>Renowned throughout the three levels,
+>
+>Who composed commentaries, in accordance with the intention,
+>
+>On the Mother of the Conquerors so hard to fathom.
+>
 
 ---
 
-I bow to Dipamkara Atisha,
+>
+>I bow to Dipamkara Atisha,
 holder of the treasury of instructions
-
-That gathers together the important points, completely and unmistakenly,
-
-Of the paths of profound view and vast conduct,
-
-The excellent lineages descending from the two great charioteers.
-
----
-
-I prostrate respectfully to the spiritual teachers,
-
-Eyes that see all the infinite scriptures,
-
-Who with skillful means moved by compassion
-
-Clarify the supreme entryway for the fortunate traveling to liberation.
+>
+>That gathers together the important points, completely and unmistakenly,
+>
+>Of the paths of profound view and vast conduct,
+>
+>The excellent lineages descending from the two great charioteers.
+>
 
 ---
 
-The stages of the path to enlightenment
-
-Are the excellent lineage handed down from Nagarjuna and Asanga,
-
-Crown ornaments of the wise of Jambudvipa
-
-And banners of fame resplendent among transmigratory beings.
-
----
-
-This instruction, the king of powerful jewels,
-
-Fulfills all the desired aims of the nine types of beings;
-
-It is an ocean of glorious and excellent explanations
-
-Gathering the rivers of a thousand fine scriptures.
+>
+>I prostrate respectfully to the spiritual teachers,
+>
+>Eyes that see all the infinite scriptures,
+>
+>Who with skillful means moved by compassion
+>
+>Clarify the supreme entryway for the fortunate traveling to liberation.
+>
 
 ---
 
-Through it, you can realize that all the teachings are without contradiction,
-
-Understand all the scriptures as an instruction,
-
-Easily find the intention of the Conqueror,
-
-And be protected from the abyss of very faulty conduct.
+>
+>The stages of the path to enlightenment
+>
+>Are the excellent lineage handed down from Nagarjuna and Asanga,
+>
+>Crown ornaments of the wise of Jambudvipa
+>
+>And banners of fame resplendent among transmigratory beings.
+>
 
 ---
 
-Therefore, this supreme instruction is relied on by many fortunate ones,
+>
+>This instruction, the king of powerful jewels,
+>
+>Fulfills all the desired aims of the nine types of beings;
+>
+>It is an ocean of glorious and excellent explanations
+>
+>Gathering the rivers of a thousand fine scriptures.
+>
 
-The wise beings of India and Tibet.
+---
 
-What analytical person would not be captivated
+>
+>Through it, you can realize that all the teachings are without contradiction,
+>
+>Understand all the scriptures as an instruction,
+>
+>Easily find the intention of the Conqueror,
+>
+>And be protected from the abyss of very faulty conduct.
+>
 
-By the stages of the path of the three types of beings?
+---
+
+>
+>Therefore, this supreme instruction is relied on by many fortunate ones,
+>
+>The wise beings of India and Tibet.
+>
+>What analytical person would not be captivated
+>
+>By the stages of the path of the three types of beings?
+>
 
 ---
 
@@ -678,9 +692,9 @@ By the stages of the path of the three types of beings?
 
 by Je Tsongkhapa
 
-Chapter 1 - Lineage of the Paths
+##### Chapter 1 - Lineage of the Paths
 
-Now I will tell you about the Three Paths and the stages of the Path to Enlightenment.
+Now I will tell you about the Three Principal Aspects of the Path and the Stages of the Path to Enlightenment.
 
 First of all, we must understand the meaning of "Stages of the Path to Enlightenment".
 
@@ -698,7 +712,7 @@ Buddha Shakyamuni preached the "Prajna Paramita Sutra" at Vulture Peak. After th
 
 The "Prajna Paramita Sutra" explicitly teaches the profound order of the Path, while the hidden meaning teaches the vast order of the Path.
 
-The very deep Path sequence was passed on to Manjushri by the Buddha, and Manjushri passed it on to Nagarjuna, and later formed the deep insight sect Dao sequence; the vast Dao sequence was passed on by the Buddha to Maitreya Bodhisattva. He created Maitreya's Five Sutras, such as the "Abhisamaya-alaṅkāra sutra", also known as the Five Dharmas of Maitreya, as a teaching of the path to enlightenment, and passed it on to Asanga Bodhisattva. Later, the path of the Guangxing School was formed.
+The very deep Path sequence was passed on to Manjushri by the Buddha, and Manjushri passed it on to Nagarjuna, and later formed the deep insight sect **Dao** sequence; the vast **Dao** sequence was passed on by the Buddha to Maitreya Bodhisattva. He created Maitreya's Five Sutras, also known as the Five Dharmas of Maitreya, such as the "Abhisamaya-alaṅkāra sutra", as a teaching of the path to enlightenment, and passed it on to Asanga Bodhisattva. Later, the path of the Guangxing School was formed.
 
 In this way, in ancient India, two different lineages, deep insight and broad practice, were formed.
 

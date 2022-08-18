@@ -59,13 +59,15 @@ Master Tsongkhapa Master Tsongkhapa
 
 The fourth of the series "Treasures of the Fahai" in Tuole Temple
 
+Continued from Dharma Ocean Treasures (3)
+
 The Three Principal Aspects of the Path (Initial Level)
 
 Talks by Ngawang Gyatso Vajra Guru
 
 **Table of contents**
 
-#### Part III The Three Principal Aspects of the Path
+### Part III - The Three Principal Aspects of the Path
 
 #### Chapter 2 - Training for Individuals at the Middle Level
 
@@ -73,15 +75,15 @@ Talks by Ngawang Gyatso Vajra Guru
 
 ##### 1. Knowing Suffering
 
-(1) Five types of sufferings
+(1) Five types of suffering
 
 (2) Eight types of suffering
 
-(3) Three types of sufferings
+(3) Three types of suffering
 
 (4) The suffering of Asuras
 
-(5) The suffering of heaven
+(5) The suffering of Heaven
 
 **Section 2 - Definitions**
 
@@ -147,7 +149,7 @@ Talks by Ngawang Gyatso Vajra Guru
 
 **Section 4 - The Truth of Liberation**
 
-1. Liberation
+##### 1. Liberation
 
 (1) Nirvana with remainder
 
