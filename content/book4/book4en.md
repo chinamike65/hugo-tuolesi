@@ -119,11 +119,11 @@ Talks by Ngawang Gyatso Vajra Guru
 
 (4) Passing Away
 
-5. Living
+##### 5. Living
 
 **Section 3 - The Truth of the Path**
 
-1. Overview
+##### 1. Overview
 
 (1) The path of resources
 
@@ -135,9 +135,9 @@ Talks by Ngawang Gyatso Vajra Guru
 
 (5) The path of no more learning
 
-2. The Twelve Causal Links of Dependent Arising
+##### 2. The Twelve Causal Links of Dependent Arising
 
-3. Discipline, Concentration and Wisdom
+##### 3. Discipline, Concentration and Wisdom
 
 (1) Moral Discipline
 
