@@ -1685,121 +1685,142 @@ After realizing emptiness, even if it is not the actual realization, but the act
 
 The "Dharmakaya" says:
 
+
+
+ 
+
+ 
+
+
 >
->All dharmas arise from conditions, 
+>Of all those things that from a cause arise,  
 >
->all dharmas die from conditions,
+>Tathagata the cause thereof has told;
 >
->I, the great recluse of the Buddha,
+>And how they cease to be, that too he tells,
 >
->often say the same thing.
+>This is the doctrine of the Great Recluse.
 >
 
 The Buddha talks about dependent origination and emptiness, and believes that all dharmas are dependent origination, all are cause and effect.
 
-We all know that none of the myriad causes and myriad effects independently, but exist in an interdependent relationship.
+We all know that none of the myriad causes and myriad effects exist independently, but exist in an interdependent relationship.
 
-For example, a cup has many materials inside and outside. It is not unique. It is made of many materials.
+For example, a cup has many materials inside and outside. It is not independent. It is made of many materials.
 
-At the same time, all things are inherently empty, that is, without self-nature, impermanent.
+At the same time, all things are inherently empty, that is, without self-natureand are impermanent.
 
-It's changing every moment, it's just me, we can't see it.
+It's changing every moment, it's just that we can't see it.
 
-After realizing emptiness, all these will be clear and clear. If you realize the principle of impermanence, you will be very close to realizing emptiness.
+After realizing emptiness, all these will be understood. If you realize the truth of impermanence, you will be very close to realizing emptiness.
 
 The deeper and wider the understanding of cause and effect, the more helpful it is to understand emptiness.
 
 Therefore, those who truly understand the emptiness of dependent origination will not doubt cause and effect.
 
-People who don't really understand may have doubts if they encounter unsatisfactory things. Therefore, they should study diligently and understand more about emptiness, and they will be more suspicious.
+People who don't really understand may have doubts if they encounter things that are difficult to grasp. Therefore, they should study diligently and understand more about emptiness, and they will be able to get rid of any doubts.
 
-Small doubts are common doubts in daily life, and such doubts are also very harmful.
+Small doubts are common in daily life, but such doubts are also very harmful.
 
-Especially between relatives and friends, it will cause family and friendship to not last long.
+Especially between relatives and friends, it can cause break up of family relationships and friendship.
 
 54
 
-In particular, doubts between friends, teachers, and brothers can be very troublesome.
+In particular, doubts among friends, teachers, and brothers and sisters can be very troublesome.
 
-Because there is a kind of common liberation between brothers and friends, and when this kind of relationship exists, there is trust and responsibility between each other, and they feel that they are relying on each other.
+Because there is a kind of common goal of liberation between Dharma brothers and friends, and when this kind of relationship exists, there is trust and responsibility towards each other, and they feel that they are relying on each other.
 
-If the teacher and the brother are dissatisfied and suspicious because of a little thing, it will destroy the relationship.
+If there is dissatisfaction and unfounded suspicion between Dharma brothers and sisters because of a little thing, it will destroy this kind of relationship.
 
-There will be many difficulties on the way to becoming a Buddha. In practice, having good teachers and helpful friends will give us a lot of help and confidence. There is a scripture, so it goes like this:
+There will be many difficulties on the way to becoming a Buddha. In practice, having good teachers and helpful friends will give us a lot of help and confidence. There is a story, and it goes like this:
 
 Someone fell into a deep hole and cried out for a long time, hoping someone could save him.
 
-The other man heard it, came to the entrance of the cave, put down a rope, and the man in the cave grabbed the rope tightly.
+Another man heard the cries, came to the entrance of the cave, put down a rope, and the man in the cave grabbed the rope tightly.
 
-At this time, many people came, and they pulled the rope together with the people at the entrance of the cave, and rescued this person.
+At this time, many people came and they pulled the rope together, and rescued this person.
 
-In this allusion, the people who fell into the hole are us, the deep hole is equivalent to the evil way, the person at the entrance of the hole is the Buddha, the rope and the child are the Dharma, and the people who help pull the rope are the Dharma friends, Jin, Brother Gang.
+In this story, the person who fell into the hole is us. The deep hole is equivalent to the evil realms. The person at the mouth of the hole is the Buddha: The rope is the Dharma, and the people who help pull the rope are the Dharma friends and Vajra brothers.
 
-Therefore, we need to recognize the suffering of the three evil realms, but how to get rid of this kind of suffering is to follow the guidance of the Buddha, practice diligently, and practice the Buddhadharma. Free together with help.
+Therefore, we need to recognize the suffering of the three evil realms, and the way to get rid of this kind of suffering is to follow the guidance of the Buddha, practice diligently, and practice the Buddhadharma, and help each other to attain liberation.
 
-Once you recognize your doubts, you must deal with them.
+Once you identify your doubts, you must deal with them.
 
-When you have doubts, you should immediately realize that thinking in this way is a kind of doubt, and then warn yourself not to think wildly;
+When you have doubts, you should immediately realize that thinking in this way is a kind of doubt, and then warn yourself not to think confusedly;
 
-Or think more about the consequences of doubt, yes, it will also help to cure doubt.
+Or thinking more about the consequences of doubt will also help to cure doubt.
 
-When we get rid of doubts, we get rid of great troubles. The Buddha told us to be honest and open-minded.
+When we get rid of doubts, we get rid of great trouble. The Buddha told us to be honest and open-minded.
 
-A person who is paranoid all day long and can't do anything.
+A person who is in constant doubt all day long will not succeed at anything.
 
-(6) Non-right view Non-right view is also called evil view, which refers to views that violate Buddhist teachings, and can be divided into five types.
+##### (6) Incorrect view 
 
-1) Bad gathering is bad gathering, bad refers to the five aggregates of impermanence;
+Incorrect view is also called wrong view, which refers to views that violate Buddhist teachings, and can be divided into five types:
+
+##### 1）Mistaken concepts 
+
+Mistaken concepts refers to the five aggregates of impermanence;
 
 Collection means the concentration of the five aggregates;
 
-Seeing is a view that the five aggregates are "I". This view is not right view, and this kind of unright view is called bad aggregate view.
+Seeing is a view that the five aggregates are "I". This view is not the right view, and this kind of incorrect view is called a mistaken view of the aggregate.
 
-In other words, clinging to one's own body is the "I", and clinging to the false appearance of the "I" is the real self.
+In other words, clinging to one's own body is the "I", and clinging to the false appearance of the "I" as the real self.
 
-In fact, it has fallen into the common, the constant edge, also known as the view.
+In fact, one has fallen into the common view of permanence, also known as the eternalist view.
 
-Before the realization of emptiness, most people hold views or fall into it.
+Before the realization of emptiness, most people hold such views or fall into them.
 
-Until you understand emptiness, you will no longer fall into the two sides of detachment and constancy, and you will realize that the most correct thing is centeredness, insight.
+When you understand emptiness, you will no longer fall into the two extremes of nihilism and permanence, and you will realize that the most correct thing is insight into the Middle Way.
 
-2) Side-attachment to seeing and side refers to the permanent side or the broken side, and the attachment refers to the attachment to the permanent (eternal, eternal) or broken (non-existence) of all things.
+##### 2）Attachment to Extremes
 
-In the process of searching for emptiness, there will be two kinds of unrighteous views. One is that if everything exists, then everything must be eternal.
+Attachment to Extremes refers to the views of permanence or the nihilistic view, and the attachment refers to the attachment to the existence or non-existence of all things.
 
-This kind of view has fallen into the ordinary side, and it is called common.
+In the process of searching for emptiness, there will be two kinds of mistaken views. One is that if things exists, then everything must be eternal.
 
-Another kind of unrighteous view is: if everything is impermanent, then everything must not exist.
+This kind of view has fallen into the extreme of existence, and it is called the common view.
 
-Those who hold a judgmental view are prone to fall into stubborn emptiness, and if it is more serious, they will develop to the point of not recognizing past and future lives, rebirth and cause and effect, thinking that since all things and dharmas are empty, there is nothing.
+Another kind of wrong view is: if everything is impermanent, then nothing can exist. This kind of view goes to the extreme of non-existence, and is called the nihilist view.
 
-Therefore, the most harmful thing among the unrighteous views is the broken view.
+Those who hold a nihilist view are prone to fall into nihilism, and if it is more serious, they will develop to the point of not recognizing past and future lives, rebirth, and cause and effect, thinking that since all things and dharmas are empty, there is nothing at all.
 
-Boundary view is an unrighteous view.
+Therefore, the most harmful among the wrong views is the nihilist view.
 
-Our right view is the middle view, see, and take the middle way. To put it simply, it is: the universe and everything in the universe, and Luo is neither permanent nor non-existent;
+Extreme views are wrong views.
 
-Everything is impermanent, but it exists.
+Our right view is the middle view, and we take the Middle Way. To put it simply: the universe and everything in it, Pudgalo, are neither permanent nor non-existent;
+
+Everything is impermanent, but things exist.
 
 57
 
-3) Seeing Seeing Seeing as a kind of unrighteous view, it is only available to outsiders.
+---
+TODO
+
+##### 3）取见 
+
+Seeing as a kind of wrong view, it is only found in non-Buddhist religions.
 
 There are two kinds: one is forbidden to take the view, and the other is to be forbidden to take the view.
 
 【Referring to the prohibition】
 
-Some heretics believe that the Lord of the world is the King of Great Freedom, or the King of Brahma. In order to obtain liberation, one must devote allegiance to the Lord.
+Some non-Buddhist religions believe that the Lord of the world is the King of Great Freedom, or Lord Brahma. In order to attain liberation, one must devote allegiance to the Lord.
 
-The way to offer loyalty is to commit suicide, or kill one's own children, loved ones, or even one's own benefactors.
+The way to demonstrate loyalty is to sacrifice yourself, or kill one's own children or loved ones, or even one's own benefactors.
 
-This kind of precept is called abstinence from taking views, and a precept is formed based on wrong and delusional views. Such precepts are naturally evil precepts.
+This kind of precept is called prohibition, and is formed based on wrong and delusional views. Such beliefs are naturally evil.
 
-In the past, there were many such heretics in India. They used a three-pronged sword, the point of the sword stood upright, and jumped up to the sword, allowing the middle sword to pass from the buttocks to the top of the head, and the two sides to the shoulders, thinking that this would give loyalty and give Lord, and then freed.
+---
+TODO
 
-These are wrong views, a kind of wrong, right views.
+In the past, there were many such non-Buddhist religions in India. They used a three-pronged sword, the point of the sword stood upright, and jumped up to the sword, allowing the middle sword to pass from the buttocks to the top of the head, and the two sides to the shoulders, thinking that this would ensure loyalty to your Lord, and then you will be freed.
 
-Before Shakyamuni Buddha was born, heretics in India often came in waves one after another, and on the festival of the Heavenly King of Great Freedom, the sky jumped on the sword.
+These are wrong views, unrighteous views.
+
+Before Shakyamuni Buddha was born, non-Buddhist religions in India often came in waves one after another, and on the festival of the Heavenly King of Great Freedom, jumped on the sword.
 
 Whoever can dance correctly, everyone will worship him, thinking that he is freed.
 
@@ -1807,69 +1828,71 @@ If you can't jump, it's useless to jump on.
 
 58
 
-Although many heretics have good deeds and do good deeds, such as meeting, giving, saving people, not telling lies, and some not killing or eating meat, but every kind of heresy has unrighteous views.
+Although many non-Buddhist religions have good points and do good deeds, such as meeting together, charity, saving people, not telling lies, and some not killing animals or eating meat, but all non-Buddhist religions have wrong views.
 
-Most heretics believe that all things are created by a creator, not caused by cause and effect.
+Most non-Buddhist religions believe that all things are created by a creator, not arisen through cause and effect.
 
-Many sectarians in India believe that the creator of the world is the King of Great Freedom, and some people think that it is the King of Brahma.
+Many sectarians in India believe that the creator of the world is the Lord Indra, and some people think that it is the Lord Brahma.
 
-They believe that the four races of Indians were born from the four faces of the great, Brahma king.
+They believe that the four races of Indians were born from the four faces of the great Brahma king.
 
-There are also some heretics who believe that yes, they are born from the four parts of the body of the Brahma: the Brahmin caste is born from the forehead of the Brahma;
+There are also some who believe that it is true that they are born from the four parts of the body of the Brahma:
 
-Kshatriya was born from the heart of Brahma, the king;
+The Brahmin caste is born from the Brahma's forehead;
 
-The commoner Vaishya was born from the navel of the Great Brahma;
+Kshatriya (warrior caste) were born from the heart of Lord Brahma;
 
-The lowest-ranked Sudra was born from the anus of the Great Brahma.
+The commoner Vaishya was born from the navel of Brahma;
 
-They were all created by the Great Brahma Heavenly King, and this is not right view.
+The lowest-ranked Sudra were born from the anus of Brahma.
 
-Po, the Romans believe that all things were created by the Great Brahma King, and the earth was also created by the Great Brahma King;
+They were all created by Brahma, and this is not a right view.
+
+Brahmanism believes that everything was created by the Brahma King, and the earth was also created by Brahma;
 
 Catholics believe that the earth and all things were created by God.
 
-In short, heretics believe that all things are created by a single master, and do not recognize cause and effect.
+In short, non-Buddhists believe that all things were created by a single master, and do not recognize cause and effect.
 
 Cause and effect clearly exist, so if you plant melons, you will get melons, if you plant beans, you will get beans, and if you plant them, they will grow.
 
-If you want to give birth to a person, as long as the two get married, they can have a child, and it is not created by the Great Brahma. This is easy to understand.
-
-However, people cannot understand when their wrong views are profound. These are all unrighteous views, and they are all troubles.
+However, when people have profoundly cannot wrong views they are unable to see it. These are all wrong views, and they are all afflictions.
 
 59
 
 In addition, from the perspective of Tantra, it is not allowed to harm the body at will after holding an unrighteous view.
 
-Because when cultivating the qi meridian, the injured part of the body will have obstacles, so it is necessary to protect and maintain the body.
+Because when cultivating the qi meridians, injured part of the body will have blockages, so it is necessary to protect and maintain the body.
 
-If you don't practice Tantra, but only practice Xianzong, there may be some sayings about giving the body and so on in the method of Xianzong.
+If you don't practice Tantra, but only practice Mahayana, there may be some sayings about giving up the body and so on in the Mahayana sutras.
 
-In order to express confidence in Buddhas and Bodhisattvas, some disciples burn lamps with their fingers to make offerings to Buddhas, which is not allowed in Tantric Buddhism.
+In order to express confidence in Buddhas and Bodhisattvas, some disciples light lamps with their fingers to make offerings to Buddhas, which is not allowed in Tantric Buddhism.
 
-In Tantra, there is also the practice of giving to the body, but you must cultivate to a certain level, and you can only be above the Bodhisattva.
+In Tantra, there is also the practice of giving up the body, but you must train to a certain level, and only be above the level of a Bodhisattva.
 
 【Forbidden to take and see】
 
-The prohibition of taking opinions refers to some misunderstandings and behaviors of foreigners in their behavior.
+The prohibition of taking opinions refers to some misunderstandings and behaviors of non-Buddhists in their behavior.
 
-For example, some heretics think that being naked is the only way to get rid of it, so just stay naked all day long;
+For example, some heretics think that being naked is the only way to be liberated, so just stay naked all day long;
 
-There are some outsiders who stand on one leg all day, from sunrise to sunset, looking at the sun all the time, thinking that this will lead to liberation.
+There are some non-Buddhists who stand on one leg all day, from sunrise to sunset, looking at the sun all the time, thinking that this will lead to liberation.
 
-There are also some heretics who hold the ox precept, the dog precept, the chicken precept, etc., because they have some supernatural powers, and when they see some chickens and dogs die and ascend to heaven, they think they are freed, and they are very envious.
+There are also some non-Buddhists who hold the ox precept, the dog precept, the chicken precept, etc., because they have some supernatural powers, and when they see some chickens and dogs die and ascend to heaven, they think they are freed, and they are very envious.
 
 60
 
 But they don't understand that these animals ascend to heaven because of their own karma.
 
-I thought it was because of their behavior and habits that were different from human beings, so I demanded myself according to the life characteristics of these animals. For example, those who held chicken precepts stood on one leg like chickens every day;
+They thought it was because of their behavior and habits that were different from human beings, so they behave themselves according to the life characteristics of these animals. For example, those who held chicken precepts stand on one leg like chickens all day;
 
-Those who hold the ox precept will imitate cows to bow their heads and eat grass, etc.
+Those who hold the ox precept will imitate cows bowing their heads and eat grass, etc.
 
 These are all prohibitions.
 
-4) Wrong views are incorrect views. For example, not believing in the right Dharma and the cause, effect, good and evil are all wrong views.
+4) Wrong views are incorrect views.
+
+For example, not believing in the Dharma or in cause and effect, or good and evil are all wrong views.
 
 5) The first view refers to the above-mentioned "bad view, side-attached view, and wrong view".
 
@@ -1877,12 +1900,19 @@ Clinging is attachment and not letting go, which is a wrong view that is true to
 
 This view is also called "not-fruit-planning-fruit", which is the illusion that one has not yet attained the holy fruit, but is delusional about having obtained the holy fruit.
 
-Twenty Suffering Defilements Supplementary Defilements are also called Sui-sleep Defilements and Sui Defilements, which are defilements that arise along with the root defilements.
+Twenty Secondary Defilements
+
+Supplementary Defilements are also called Cogitive Defilements or Cognitive Hindrances, which are defilements that arise along with the six root defilements.
+
 61
 
-There are twenty kinds of afflictions that follow: anger, hatred, anger, harm, jealousy, slander, flattery, arrogance, arrogance, no shame, no shame, unbelief, laziness, laziness, drowsiness, forgetfulness, distraction, and delusion , Unrighteous knowledge.
+There are twenty kinds of hindrances that follow: rage, resentment, slyness-concealment, spitefulness, jealousy, miserliness, deceit, dishonesty, self-satisfaction, intention to harm, lack of shame, lack of propriety, lethargy, excitement, lack of faith, laziness, carelessness, forgetfulness, inattentiveness, distraction.
 
-(1) Anger is anger. The object is the opposite of one's own heart, and the situation, such as an unpleasant person, object, environment, event, etc., makes him lose his temper.
+##### （1）Rage 
+
+ Rage, or fury, is anger. 
+ 
+ The object is the opposite of one's own heart, and the situation, such as an unpleasant person, object, environment, event, etc., makes him lose his temper.
 
 How to deal with anger? After getting angry, think more about losing your temper, the fault of your anger, or dealing with anger by practicing forbearance. Make a vow first, for example, get up early every day and make a vow: I will practice forbearance today, and if people scold me or blame me, I will not lose my temper. This vow, too, will effectively deal with anger.
 
@@ -1892,7 +1922,9 @@ But when some people are angry, others remind them to regenerate. If they are an
 
 There are nine objects of hatred, divided into three categories.
 
-(2) Hate 62
+##### （2）Hatred 
+
+Hatred, or resentment.
 
 The first category is to hate those who have hurt me before, are hurting me now, and will hurt me in the future.
 
@@ -1926,6 +1958,7 @@ When you realize that hatred is what it is, the hatred mentality disappears, and
 
 Therefore, hatred will make our body and mind uncomfortable, stressful, angry for no reason, and more likely to get sick because of it, which is not good for ourselves.
 
+##### （3）Annoyance 
 (3) Annoyance is hot annoyance, which is a state of being irritable, hot, and restless about the situation in front of you that makes you unhappy.
 
 Sometimes, the mentality of anger and hatred continues to enlarge, and the more you think about it, the more uncomfortable it becomes, the more you feel at ease, the faster your heart beats, and the more you start to get irritable, and it will also become irritable.
@@ -1934,7 +1967,11 @@ Even being angry enough to throw things, scold or hit people, also adds trouble 
 
 Cultivation of forbearance can cure anger.
 
-(4) To harm is to harm sentient beings.
+##### （4）Harm
+
+To harm is to harm sentient beings.
+
+malice, hostility, cruelty, intention to harm
 
 64
 
@@ -1954,9 +1991,11 @@ The above four subordinate afflictions are all part of the six root afflictions,
 
 As we have said, we need to cultivate forbearance to deal with anger. Therefore, for these four afflictions, the way to deal with them is also to cultivate forbearance.
 
-(5) jealous 65
+##### （5）Jealousy 
 
-Seeing other people's beauty, health, wealth, happiness, success, merit, etc. surpassing one's own, the heart feels uncomfortable and unbalanced, this kind of mentality is jealous.
+envy, jealousy
+
+Seeing other people's beauty, health, wealth, happiness, success, merit, etc. surpassing one's own, the mind feels uncomfortable and unbalanced, this kind of mentality is jealous.
 
 For those who are inferior to oneself, the afflictions that are easy to arise are arrogance and heart, and those who are better than themselves are easy to be jealous.
 
@@ -1974,7 +2013,9 @@ If you are jealous and often jealous of others, you will gradually lose your lov
 
 Jealousy is a kind of random affliction that is easy to arise. If not, if it is dealt with, jealousy will also cause other random afflictions. Then it will lead to "hate" and even "harm".
 
-(6) False 66
+##### （6）Deceit
+
+pretense, deceit
 
 There are two kinds of falsehood, one is false exaggeration;
 
@@ -1990,7 +2031,12 @@ No supernatural powers, fake, with supernatural powers;
 
 If you don't know how to teach the scriptures and teach the Dharma, and pretend to be able to teach the Dharma, doing so is a great sin.
 
-(7) Flattery is to flatter others in order to win their trust, and to hide their own faults so as to avoid damage to fame and fortune.
+##### （7）Flattery
+
+hypocrisy, dishonesty
+
+
+Flattery is to flatter others in order to win their trust, and to hide their own faults so as to avoid damage to fame and fortune.
 
 To put it simply, flattery means being flattering and flattering others for the sake of fame and fortune.
 
@@ -2004,7 +2050,9 @@ When doing things, you can use some convenient methods, but you must be honest.
 
 Especially in front of people with great wisdom, being upright and talented, gaining the recognition of the other party, and being a good person are also the foundation of learning Buddhism well.
 
-(8) Overlay 67
+##### （8）Concealment
+
+concealment, slyness-concealment
 
 To cover is to hide sin.
 
@@ -2024,7 +2072,11 @@ The answer is to hide one's own fault, do not want to be known by others, but ha
 
 Flattery is knowing that the other party can bring benefits to oneself, deliberately hiding one's own mistakes, in order to gain the other party's trust, thereby increasing fame and fortune.
 
-(9) To be arrogant means to think that one's appearance, identity, wealth, knowledge, status, etc. are superior to others.
+##### （9）Pride
+
+Pride, arrogance conceit
+
+To be arrogant means to think that one's appearance, identity, wealth, knowledge, status, etc. are superior to others.
 
 When you have this kind of mentality, you will look down on others, and you will not see the merits of others. It is easy to slander, teach the Dharma and the saints.
 
@@ -2038,7 +2090,11 @@ There are many richer people, more learned people, and people with higher status
 
 To be slow is to hold your heart high by comparing yourself with others and comparing yourself with others.
 
-(10) To save is to be stingy.
+##### （10）Stinginess
+
+stinginess, avarice, miserliness
+
+To save is to be stingy.
 
 Saving is formed by greed, but saving and greed are also different.
 
@@ -2064,17 +2120,29 @@ Don't spend what you shouldn't spend.
 
 Money should be spent meaningfully. Doing charity, making offerings to the Three Jewels, and releasing life are all good deeds that should be done. Don’t be stingy at this time. Doing so has great merit and is equivalent to burying a treasure that can be used in this life and in the next life.
 
-(11) Shameless means no shame for one's own faults, no, self-respect, and dare to do evil things.
+##### （11）Lack of Shame
+
+lack of shame, lack of conscience, shamelessness
+
+Shameless means no shame for one's own faults, no, self-respect, and dare to do evil things.
 
 As Buddhist disciples, we should respect ourselves and love ourselves. We should always examine ourselves. If there are any mistakes, we should repent in time.
 
-(12) Worthy and Worthy is when one’s faults are criticized and criticized by others, they are not ashamed, and they are not afraid of being sorry to others.
+##### （12）Lack of Propiety 
+
+lack of propriety, disregard, shamelessness
+
+Worthy and Worthy is when one’s faults are criticized and criticized by others, they are not ashamed, and they are not afraid of being sorry to others.
 
 People who are worthy of shame and who don't care about their face will be looked down upon by everyone, and they will also lose the possibility of repenting their bad karma.
 
 70
 
-(13) Unbelief or unbelief refers to unbelief caused by an impure mind and inability to correctly understand the Three Jewels, Cause and Effect, and the Six Paths of rebirth.
+##### （13）Lack of Belief
+
+lack of faith, lack of trust
+
+Unbelief or disbelief refers to unbelief caused by an impure mind and inability to correctly understand the Three Jewels, Cause and Effect, and the Six Paths of rebirth.
 
 Unbelief is different from "doubt" in the six root afflictions. Doubt refers to doubts about cause and effect and whether samsara exists or not, and is uncertain.
 
@@ -2150,7 +2218,11 @@ Only by believing in cause and effect can we truly understand the cause.
 
 In the process of learning Buddhism, in the process of generating bodhicitta, learning and cultivating the three ways, in the process of really starting to practice, even nightmares, headaches are all eliminating karmic obstacles. We must understand this, not talk about learning If you become a Buddha, you will not get sick. That is impossible, and it is also a misunderstanding of the Master, the Three Jewels, and the cause and effect.
 
-(14) Laziness Laziness is laziness. Laziness is divided into two aspects: for good deeds, unwillingness to do it is a kind of laziness;
+##### （14）Laziness
+
+laziness, slothfulness
+
+Laziness Laziness is laziness. Laziness is divided into two aspects: for good deeds, unwillingness to do it is a kind of laziness;
 
 To be unwilling to put an end to evil is another kind of slack.
 
@@ -2174,7 +2246,10 @@ Falling into the abyss and losing freedom, who will save it then?
 
 Therefore, while you have obtained a human body in leisure and haven't fallen into the evil realm, you should seize the time to save yourself and practice diligently.
 
-(15) Laissez-faire is chaos, the mentality of not caring about anything.
+##### （15）Carelessness
+
+heedlessness, carelessness, unconcern
+Laissez-faire is chaos, the mentality of not caring about anything.
 
 For example, seeing someone very happy after a relapse, I am very eager and go, and I have the feeling, "Everyone else has relapsed, and I don't care.
 
@@ -2198,7 +2273,11 @@ Those who are particularly lethargic should take the initiative to educate them,
 
 For those who cannot convert to Buddhism temporarily, they can receive traditional education first, and then learn the Dharma.
 
-(16) Drowsiness is a state of mind of wanting to sleep. 
+##### （16）Lethargy
+
+lethargy, gloominess, Drowsiness
+
+Drowsiness is a state of mind of wanting to sleep. 
 
 When studying, there is not enough mental energy to keep the content of meditation clear and confused, which will hinder achievement.
 
@@ -2216,7 +2295,8 @@ This master's father was very strict. When Dharma King Yongzeng was teaching the
 
 These are examples that we should learn from.
 
-(17) Losing one's mind 
+##### （17）Forgetfulness
+
 
 Losing one's mind is also called forgetting, which means to lose mindfulness, that is, forgetting and remembering good dharma.
 
@@ -2234,6 +2314,9 @@ Compared with drowsiness, the common denominator is the inability to clearly con
 
 When he is drowsy, he is delirious, confused, and doesn't know anything.
 
+##### （18）Distraction 
+
+distraction, desultoriness
 (18) Scattered thoughts
 
 Distraction is a state of mind in which thoughts are scattered, delusional, swirling and never resting on the object of meditation.
@@ -2250,6 +2333,9 @@ Especially the communication tools such as mobile phones of modern people have b
 
 Serious distraction will not only make it impossible to practice meditation, but it will be very difficult to even study and think. This is what we need to pay attention to. Distraction is a big, very, and serious kind of affliction.
 
+##### （19）Inattentiveness 
+
+non-alertness, inattentiveness
 (19) To be swayed is to be unsettled, to be confused, and to run from east to west
 
 Seven up and eight down.
@@ -2266,9 +2352,9 @@ Nor do they think of dealing with them, because many people don’t even know ab
 
 When abjection occurs, think more about the three evil realms and the six realms of rebirth. The suffering will be greatly reduced, and the mind will slowly return to meditation.
 
-(20) Non-right knowledge
+##### （20）Wrong View
 
-non-right knowledge means that the way of thinking is very unclear when doing things, and the thinking is chaotic.
+Wrong View means that the way of thinking is very unclear when doing things, and the thinking is chaotic.
 
 In the process of doing things, some people often do not know what they are doing. Such a state is called unrighteous knowledge.
 
@@ -2290,11 +2376,11 @@ The main point of the sergeant is to cut off troubles, think more about how to d
 
 Master Bodova said: "When a person is young, his body is strong, his wisdom is strong, and his antidote is strong. After entering old age, his memory and antidote become worse and worse, but troubles do not grow old, so it is difficult to deal with them already."
 
-(4) The source of afflictions 
+##### (4) The source of afflictions
 
 The six root afflictions and all other afflictions are produced by bad gathering views and ego-clinging.
 
-Different factions have different understandings, and there are some differences.
+Different schools have different understandings, and there are some differences.
 
 Consciousness-only schools believe that ignorance (here, not referring to the afflictions of ignorance) with the unclear nature of the five aggregates produces bad aggregate views, and bad aggregate views arise, all afflictions.
 
@@ -2356,16 +2442,23 @@ This requires the ability to temporarily suppress the afflictions, insist on cha
 
 Diligently cultivate afflictions and treat them, such as cultivating compassion, forbearance, rejoicing, and so on.
 
-(5) Causes and conditions of afflictions 
+##### (5) Causes  of afflictions 
+
 
 There are six kinds of causes and conditions of afflictions, including seeds of afflictions, conditions, influence of bad people, external teachings, habit of habitual afflictions, and thoughts, love and hatred.
 
-The seeds of afflictions The seeds of afflictions are the root causes of afflictions. It can be said that the false self is the seeds of afflictions. This is the root cause, and it is the inner factor that arises and causes afflictions.
+##### 1. The seeds of afflictions
+
+
+The seeds of afflictions are the root causes of afflictions. It can be said that the false self is the seed of afflictions. This is the root cause, and it is the inner factor that causes afflictions to arise.
 Our greed for money is for me, and our tantrums are for me, all for this false self.
 
 As long as there is a seed, defilements will arise whenever the opportunity arises.
 
+##### 2. External factors that cause defilements
+
 Defilement conditions Defilement conditions refer to the external factors that cause defilements.
+
 83
 
 It is stated in the Kosher:
@@ -2394,14 +2487,16 @@ When the level of practice is a little better and the countermeasures are strong
 
 Sometimes it even needs a specific predicament to deal with a certain kind of trouble.
 
-The influence of bad people When interacting with bad people, it is easy to cause troubles under the influence of bad people.
+##### 3. The influence of bad people
+
+When interacting with bad people, it is easy to cause troubles under the influence of bad people.
 84
 
 The "bad guy" here refers to a bad friend.
 
 Refers to those who will hinder our practice, not necessarily really bad people.
 
-For example, people who like, eat and drink, talk about right and wrong, etc., are all bad friends.
+For example, people who like to eat and drink and argue, etc., are all bad friends.
 
 The words and deeds of evil friends are easy to cause confusion, or make people reappear in the world, the blessings are less than the practice;
 
@@ -2410,6 +2505,8 @@ Or cause people to fall into troubles that could have been avoided, unable to ex
 Therefore, you must break up or stay away from bad friends.
 
 At the very least, don't listen to them and do what they want.
+
+##### 4. External Teaching
 
 What does external teaching mean? Listen to the voice of malaise, look down on things that are not good, and even the east and west of evil books and heresy, evil cults and evil methods.
 Affected by these bad influences, it is easy to cause troubles.
@@ -2422,6 +2519,8 @@ Seeing how the great virtues are diligently cultivating the Dharma will also ins
 
 Seeing how the great virtues cultivated forbearance, I would also make progress in practicing forbearance.
 
+##### 5. Habitual afflictions
+
 The habit of learning troubles
 
 The habit of affliction refers to the habitual psychology of obedience to afflictions formed from life to generation, and everyone has a lot of afflictions.
@@ -2432,6 +2531,8 @@ For example, if the behavior of greed is often neglected, and the habit of greed
 
 At this time, it is not necessarily necessary, if the object of greed appears, greed can also arise;
 
+##### 6. Thinking of love and hate
+
 The object of anger generally refers to people or things that do not go according to one's wishes. However, some people who are angry and serious, even if the walking person glances at him and doesn't speak, he will be very angry and even make trouble. out of life.
 
 Thinking of love and hatred often imaginatively strengthens love and hatred for a certain object of greed and hatred, and so on, and naturally it is easy to cause troubles.
@@ -2441,17 +2542,24 @@ For example, when you see someone you hate, if you keep thinking about how bad t
 
 86
 
-(6) The faults of afflictions 
+##### （6）The faults of afflictions
+ 
 
-We have already learned that afflictions are the main cause of the circulation of samsara, and the cause is extremely harmful.
+We have already learned that afflictions are the main cause of the cycle of samsara, and the cause is extremely harmful.
 
 Not only that, but even for the present world, troubles, and afflictions, there are serious faults.
 
 It is stated in the "Jing Zhuang Lun":
 
-Anxiety is bad, self-defeating, he breaks the pure precepts, retreats, loses, benefits, Dharma protector
+Anxiety is bad, self-defeating, 
 
-Dou Zheng is notorious for his life, and he has no time in his life.
+he breaks the pure precepts, retreats, loses, benefits, Dharma protector
+
+Dou Zheng is notorious for his life,
+
+and he has no time in his life.
+
+--- 
 
 Having troubles will not only make oneself suffer in this life and the future, but also annoy others, destroy all the good roots and merits of oneself, and even break the precepts;
 
@@ -2463,6 +2571,8 @@ Not only will there often be troubles, the trouble of gain and loss, but also ca
 
 All these boundless faults are caused by afflictions. Therefore, it is said in the Treatise on Entering Bodhisattva Actions:
 
+---
+
 All gods are not gods, and if they are enemies with me, they cannot make me fall into the endless fire.
 
 87
@@ -2471,13 +2581,27 @@ This mighty force confuses the enemy and throws me at hell fire, and if Sumeru e
 
 If all the gods and asuras are our enemies, they can only hurt our flesh, but cannot break our hearts, so there is no way to send us into the endless hell.
 
+---
+
+
 However, not only can afflictions be easy, but they can also send us to hell. Even if Mount Sumeru encounters affliction fires, it will be burned to the point of not leaving ashes.
 
-Therefore, afflictions are the most sinister, and the enemy should always be vigilant to deal with them. The Kadampa sages also said: "For afflictions, we should put on a fighting stance and try our best to fight them;
+Therefore, afflictions are the most sinister, and the enemy should always be vigilant to deal with them. 
 
-To all sentient beings, we should open our minds and try our best to benefit them. "
+The Kadampa sages also said: 
 
-Second, karmic afflictions will lead to bad karma, renunciation of the following good intentions will create good karma, these two kinds of good and evil karma will bring sentient beings into samsara.
+---
+
+For afflictions, we should put on a fighting stance and try our best to fight them;
+
+To all sentient beings, we should open our minds and try our best to benefit them.
+
+---
+
+#### 2. Karma 
+
+
+Karmic afflictions will lead to bad karma, renunciation of the following good intentions will create good karma, these two kinds of good and evil karma will bring sentient beings into samsara.
 
 Concentrate, evil karma will fall into the evil realm, and thus experience a lot of suffering;
 
@@ -2493,17 +2617,20 @@ The good deeds that are not based on renunciation and bodhicitta, the result is 
 
 The karma created by greed is not necessarily bad karma. For example, greed, liberation, liberation, greed to be reborn in the Pure Land, diligently reciting Amitabha Buddha, making offerings to Buddha, etc., are good karma. However, karma created by greed must be bad karma.
 
-3. Death 
+#### 3. Death 
 
-(1) The predestined relationship of death is not the same for all living beings.
+##### (1) Causes of Death
+
+The predestined relationship of death is not the same for all living beings.
 
 Some are caused by the exhaustion of life, some are caused by the exhaustion of blessings, and some are caused by obstacles.
 
 There are many causes of human death, including death from illness, death due to disasters, death due to demonic obstacles, and so on.
 
-(2) Triggers of karma 
+##### (2) Triggers of karma
+ 
 
-When people are dying, they will remember the good and bad karma they have done in the past.
+When people are dying, they will remember the good and bad deeds they have done in the past.
 
 At the same time, the good and bad karma accumulated over the beginningless kalpa, including the good and bad karma accumulated in this life, will be triggered.
 
@@ -2543,9 +2670,11 @@ Generally speaking, a peaceful demeanor at death is a good omen.
 
 But some people create karma in their lifetime, but die very peacefully. It is very likely that they have exhausted their blessings in life and life. After the blessings are exhausted, only karma is left, so they will definitely go to hell after death.
 
+##### (3) Precautions before and after death
+
 (3) Precautions before and after death
 
- Before death, if someone recites sutras, such as the Diamond Sutra, the Heart Sutra, or the Buddha's name, these will be helpful.
+Before death, if someone recites sutras, such as the Diamond Sutra, the Heart Sutra, or the Buddha's name, these will be helpful.
 
 However, when reciting and reciting sutras, one should pay attention to observation, so as not to annoy him.
 
@@ -2577,11 +2706,15 @@ In Tibetan areas, when a person is about to pass away, everyone is around to wat
 
 You can't move until you knock. This is a very important cause for the deceased.
 
-4. After a person in the bardo dies, they enter the bardo, also known as the yin body. 
+
+
+##### 4. Bardo - Intermediate State
+
+After a person in the bardo dies, they enter the bardo, also known as the yin body. 
 
 Before reincarnating, they are all in the bardo state. At this time, they are called the middle and yin body. This state can last for the longest time. Forty-nine days.
 
-(1) The state of the bardo
+##### (1) The state of the bardo
 
 The body of the bardo body is as tall as a seven- or eight-year-old child, and it has all the five sense organs of the eyes, ears, nose, tongue and body.
 
@@ -2613,7 +2746,7 @@ When it comes to eating and drinking, the bardo body is like a sentient being wh
 
 Therefore, doing the kisai smoke offering can prevent the bardo body from suffering from hunger, and the blessing of wiping the saiyan sutra can also transcend the bardo body, which is of great help to the bardo body.
 
-(2) The bardo body 
+##### (2) The Bardo Body 
 
 When you experience the bardo body, there is a lot of pain. When you think about where your body will go, you will not be able to settle down in one place, so you are always panicked.
 
@@ -2645,9 +2778,9 @@ However, for those who have great blessings or who did good deeds during their l
 
 94
 
-(3) How to transcend the bardo body
+##### (3) How to transcend the bardo body
 
- The state of the bardo body can only be maintained for seven to forty-nine days. First, the seven days are very important.
+The state of the bardo body can only be maintained for between seven to forty-nine days. The first seven days are very important.
 
 Because the first seven days are very easy and easy to overtake, and it is the easiest and most critical period to overtake.
 
@@ -2676,6 +2809,8 @@ After death, if the first seven days cannot be reborn, the second, seven days ma
 From the third to the seventh seven, heaven, the bardo body will definitely find the mother body to reincarnate.
 
 Forty-nine days later, although I don't know where to go to the six realms, I can be sure that this bardo body has been reborn and is no longer in the bardo state.
+
+##### （四）Rebirth 
 
 (4) If you were a practitioner during your rebirth, you can see your own deity in the bardo body, and then follow the deity to be reborn in the Pure Land.
 
@@ -2709,9 +2844,12 @@ There are also people who committed great evils and went straight to hell during
 
 There are also those who have been reborn in the Formless Realm, and these do not need to go through, the bardo body.
 
-5. Living beings have four births:
 
- womb birth, egg birth, wet birth, and transformation birth.
+#### 5. Birth
+
+Living beings have four births:
+
+womb birth, egg birth, wet birth, and transformation birth.
 
 Humanity is womb, heaven and hell are metamorphosis, birds, etc.
 
@@ -2729,21 +2867,32 @@ Metamorphosis is born from greed for abode, for example, hot hell is born from c
 
 97
 
-The third section of the truth 
+## Section 3 - The Truth of the Path 
 
-1. In general, the real method of liberation is to cultivate the Dharma. The cultivation of the Dharma is divided into five stages and stages, and there are five paths: the path of accumulation, the path of addition, the path of seeing, the path of cultivation, and the path of learning.
 
-(1) In order to achieve liberation, it is necessary to accumulate a lot of resources and blessings. 
+##### 1. Overview
 
-This stage is called the path of resources.
+In general, the true method of liberation is to cultivate the Dharma. The cultivation of the Dharma is divided into five stages. 
 
-There are three kinds of material ways: 
+There are five paths: 
 
-high-grade material road, 
+1. The path of accumulation
 
-middle-grade material road, 
+2. The path of joining
 
-and low-grade material road.
+3. The path of seeing
+
+4. The path of meditation
+
+5. The path of no-more-learning
+
+##### (1) Path of Accumulation
+
+In order to achieve liberation, it is necessary to accumulate a lot of resources and blessings. 
+
+This stage is called the path of accumulation.
+
+The path of accumulation is divided into lesser, intermediate and greater stages.
 
 Once you get the renunciation, you will achieve the path of inferior resources;
 
@@ -2753,27 +2902,27 @@ Continue to practice, begin to realize, part of emptiness, and realize that part
 
 The Dharma of Accumulation is the first Dharma. At this time, practitioners have already started, and they have magical powers and some abilities.
 
-How to cultivate the way of resources? In other words, it is the practice of the four mindfulness.
+How to cultivate the way of resources? In other words, it is the practice of the four applications of mindfulness.
 
-Four Mindfulness
+##### 1. Four Applications of Mindfulness
 
 Mindfulness is a kind of wisdom that understands not-self;
 
 Abiding is a kind of meditation. Not only do you need to understand that people have no ego, but you also need to be able to settle down in the state of no ego. Come, you will gain mindfulness.
 
-The four mindfulness refers to mindfulness of body, mindfulness of feeling, mindfulness of mind, and mindfulness of Dharma.
+The four applications of mindfulness refers to application of mindfulness to the body, application of mindfulness to feelings, application of mindfulness to mind, and application of mindfulness to phenomena (dharma).
 
 To deal with the six root afflictions, one needs to cultivate the four mindfulness-based meditations.
 
-(1) Mindfulness of the body
+##### (1) Application of mindfulness to the body
 
- Mindfulness of the body is to contemplate the impurity of the body.
+Applying mindfulness of the body is to contemplate the impurity of the body.
 
-The purpose is to combat greed, and not to be greedy for color, sound, smell, taste, touch, and Dharma.
+The purpose is to combat attachment, and develop non-craving for form, sound, smell, taste, touch, and phenomena.
 
 Those who are greedy need to cultivate themselves with mindfulness.
 
-For example, if you are too greedy for someone and suffer, you can deal with it through self-cultivation and mindfulness.
+For example, if it is painful to be too attached to someone, it can be dealt with through self-cultivation and mindfulness.
 
 First, visualize a Sanskrit word "ah" (ah) on the forehead of the object of craving, and then visualize "ah". The word slowly turns into a bubble, which is a big pimple, and then visualize the pimple. A lot of pimples grew out of it, and finally, visualize, the face of the craving object is full of pimples.
 
@@ -2785,29 +2934,35 @@ In this way, with this kind of visualization, the Dharma door is used to combat 
 
 In the past, there was a king in India. He loved a concubine very much, and he was never away from this concubine.
 
-Once, to go to war, I had to leave Concubine Ai at home.
+Once, having gone to war, he had to leave his beloved concubine at home.
 
 99
 
-The day after he left, Ai, the concubine died, and the courtiers were very afraid, worried that they would not be able to explain to the king.
+The day after he left, the concubine died, and the courtiers were very afraid, worried about how they would explain it to the king.
 
-A wise minister said: "I have a solution, we will send a letter to the king tomorrow, and first tell the king that there is a pimple on the forehead of the concubine Ai.
+A wise minister said: "I have a solution. We will send a letter to the king tomorrow, and first tell the king that there is a pimple on the forehead of his concubine.
 
-After seeing the letter, the king was very worried: "Oh, ah, there is a pimple on Concubine Ai's head. If it wasn't for the war, I would definitely go back to see her." "A few days later, another messenger came, and the king asked, "How is Concubine Ai? The person who reported the letter said, "Concubine Ai has a lot of acne on her head. "The king was very surprised when he heard this.
+After reading the letter, the king was very worried: "Oh, ah, there is a pimple on my beloved concubine's face. If it wasn't for the war, I would definitely go back to see her." 
 
-The next time, the reporter said: "Your beloved concubine now has pimples all over her face.
+A few days later, another messenger came, and the king asked, "How is my beloved concubine? The person who delivered the letter said, "Your beloved concubine has a lot of acne on her face."
 
-"The king felt that his concubine was helpless.
+The king was very surprised when he heard this.
 
-When I reported the letter again, the messenger said, "Now I have acne all over my body.
+The next time, the messenger said: "Your beloved concubine now has pimples all over her face."
+
+The king felt that his concubine was helpless.
+
+On delivering another letter, the messenger said, "Now she has pimples and blisters all over her body.
 
 Then the king thought, "I don't want to see her anymore."
 
-"In this way, it is broken step by step, the king's greed.
+In this way, the king's attachment was broken little by little.
 
-If he had just started reporting truthfully, the king would have been very angry, and he might have killed the left-behind ministers and those who took care of his beloved concubine. The king's greed would be cut off, and everyone would be at peace with each other.
+If he had just been told the truth from the start, the king would have been very angry, and he might have killed the ministers he had left behind and those who took care of his beloved concubine. 
 
-If you are too greedy for a certain opposite sex or child, you can use this method to deal with it.
+Instead the king's attachment was gradually cut off, and everyone was at peace with one another.
+
+If you are too greedy for a certain member of the opposite sex or a child, you can use this method to deal with it.
 
 Or visualize the earth, all sentient beings have become white bones;
 
@@ -2817,11 +2972,11 @@ Or contemplate the dangers of greed. For example, the greed of money, because th
 
 Only the money that is not greedy is the real wealth.
 
-These methods will make people slowly and cut off their greed.
+These methods will make people slowly cut off their greed.
 
-(2) Feeling mindfulness 
+##### (2) Application of mindfulness to feelings 
 
-Feeling mindfulness is contemplating feeling as suffering.
+mindfulness to feelings is contemplating feeling as suffering.
 
 It is necessary to understand the various feelings of the six faculties. The feelings are actually the suffering of actions. Sentient beings cannot control these feelings, and the feeling of happiness will soon become suffering.
 
@@ -2835,7 +2990,7 @@ Don't complain when you suffer, accept it willingly, or see it as eliminating ka
 
 Feelings of suffering and happiness should be treated peacefully. For example, if you are so peaceful that everything you see is happy, and there is no pain at all, you will see that everyone is a good person, everything is a good thing, and there are scenery everywhere.
 
-(3) Mindfulness 
+##### (3) Application of mindfulness to mind
 
 Mindfulness is observing the impermanence of mind.
 
@@ -2851,17 +3006,19 @@ The mind is fickle, and not eternal.
 
 It takes decades for our body to slow down and grow old slowly, but we don’t know how much the mind changes for one second. No, the changed self does not exist, so the Buddha taught us to observe, the mind is impermanent, not to Perseverance.
 
-(4) Dharma mindfulness 
+##### (4) Application of mindfulness to phenomena 
 
 Dharma mindfulness is the contemplation of Dharma without self.
 
 The purpose is to get rid of the attachment to the ego, the attachment to the law, the attachment to the ego and the law is the most difficult to break, and it must rely on the wisdom of emptiness.
 
-The practice of the four mindfulness must begin with contemplating the impurity of the body, then contemplation of feelings, suffering, impermanence of mind, and finally contemplation of dharma without self.
+The practice of the four applications of mindfulness must begin with contemplating the impurity of the body, then contemplation of feelings, suffering, impermanence of mind, and finally contemplation of dharma without self.
 
 Because the activities of the body are the most gross, the feelings are more subtle, and the mind is more subtle, and the Dharma is the most subtle, and it can only be eliminated by practicing in order.
 
-(2) After completing the Accomplishment Path, one enters the Path of Accomplishment. At this time, there is already the possibility of realizing emptiness.
+
+##### （2) Path of Joining
+After completing the Path of Accumulation, one enters the Path of Joing. At this time, there is already the possibility of realizing emptiness.
 
 add line means move forward
 
@@ -2869,10 +3026,19 @@ It is the way forward before the realization of emptiness in the present, prepar
 
 There are four levels of additional lanes:
 
+
+
+##### 1. Stage of Warmth
+
 Warming the ground is like drilling wood to make a fire. Everyone knows that before the fire starts, it must reach a certain temperature.
+
 Warm ground means that, in order to ignite the fire of realizing emptiness in the present, it is necessary to first reach the temperature of proportion and realization of emptiness.
 
+##### 2. Stage of Summit
+
 Top to bottom is the most extraordinary state of merit in the world.
+
+##### 3. Stage of Acceptance
 
 Endurance begins with endure, and the fear of emptiness is eliminated.
 
@@ -2894,7 +3060,9 @@ Then there will be no fear, and will understand: I have now entered emptiness, w
 
 The other is the person who has practiced the emptiness method in the previous life. Because there are seeds of emptiness in the past, they are not afraid. When they enter emptiness, they will be very happy, very happy, just like the treasure that was lost before when they found themselves again.
 
-The first place in the world is also known as the Way of Victory and Accomplishment. It is the most extraordinary of the Way of Accomplishment. Cultivation, when you reach this level, you can enter the Way of Seeing in an instant.
+##### 4. Stage of Supreme Attribute
+
+The stage of supreme attribute is also known as the Way of Victory and Accomplishment. It is the most extraordinary of the Way of Accomplishment. Cultivation, when you reach this level, you can enter the Way of Seeing in an instant.
 From the time of entering the Jiaxing Road, the achievement of practice has been very, high.
 
 At this time, the practitioner's body will be very clean, there will be no dirt, and he will practice even in his sleep.
@@ -2917,7 +3085,9 @@ Someone once asked when Master Bodova was teaching the Dharma, what are the meri
 
 Boduo, Master Wa replied, I am now talking about the merits of the Bodhisattva of the Jiaxingdao. If I talk about the merits of the Shravaka, everyone will think it is impossible, thinking, and they will think that entering the Jiaxingdao means becoming a Buddha. There is a difference between the merits of Jiaxingdao and the merits of Buddhas.
 
-(3) After seeing the Dharma and practicing the Dharma, and continuing to practice, one enters the Seeing Dharma.
+##### （3）Path of Seeing
+
+After seeing the Dharma and practicing the Dharma, and continuing to practice, one enters the Path of Seeing.
 
 When he entered the position of seeing the Dharma, he had already realized emptiness.
 
@@ -2943,7 +3113,9 @@ After the Hinayana practice reaches the position of seeing the Dharma, and after
 
 After leaving the concentration, if you continue to enter the concentration of emptiness, you will not see the Dao level, but you will enter the Dao level.
 
-(4) When cultivating the Dao and cultivating the Dao position, continue to cultivate emptiness. At this time, it is the co-birth and afflictions that must be cut off.
+##### （4) Path of Meditation
+
+When cultivating the Dao and cultivating the Dao position, continue to cultivate emptiness. At this time, it is the co-birth and afflictions that must be cut off.
 
 Practitioners must also enter at least nine times of emptiness, because we have nine innate afflictions: three large, medium and small, each of which is divided into nine.
 
@@ -2955,7 +3127,10 @@ The smallest afflictions are the most subtle afflictions, the seeds of afflictio
 
 Once all the afflictions are cut off, they will be liberated and become an Arhat, and then they will enter the path of non-learning.
 
-(5) Unlearned Theravada Arhats who are liberated are called the Unlearned Dao, because from the perspective of eliminating afflictions and afflictions, it is no longer necessary to continue studying at this level.
+##### （5）Path of no-more-learning
+
+
+Theravada Arhats who are liberated are called the Unlearned Dao, because from the perspective of eliminating afflictions and afflictions, it is no longer necessary to continue studying at this level.
 
 But from the perspective of the Mahayana eradicating the barriers to knowledge, there is actually a way to learn, and one needs to learn it.
 
@@ -2971,7 +3146,9 @@ In terms of ability, ability is complete.
 
 This is the unlearned way of Mahayana, and the unlearned way of Mahayana is the real unlearned way.
 
-2. The Twelve Dependent Origination is in the zhongshi part. We have already understood that in the six realms of sentient beings, every sentient being has immeasurable and boundless suffering.
+### 2. Twelve Links of Dependent Origination
+
+The Twelve Dependent Origination is in the zhongshi part. We have already understood that in the six realms of sentient beings, every sentient being has immeasurable and boundless suffering.
 
 Wherever you are born is suffering, whatever you live with is suffering, and whoever you are with is suffering.
 
@@ -2979,124 +3156,151 @@ The root of suffering is the affliction of ignorance. If you want to get rid of 
 
 So, how can we stop worrying? To be repaired, Dao.
 
-By practising the Twelve Dependent Origination or Precepts, Concentration and Wisdom, liberation from suffering.
+By practising the Twelve Links of Dependent Origination or Precepts, Concentration and Wisdom, liberation from suffering.
 
 The Hinayana liberation path includes conditioned awareness and shravaka. Among them, conditioned and jue Arhat mainly practice the twelve Dependent Origination Laws to achieve liberation.
 
-The twelve dependent arisings are: ignorance, formation, consciousness, name and form, six senses, contact, feeling, craving, grasping, existence, birth, old age and death.
+The Twelve Links of Dependent Origination are: 
+1. Ignorance, 
+2. Formation, 
+3. Consciousness, 
+4. Name-and-Form, 
+5. Six Senses, 
+6. Contact, 
+7. Sensation, 
+8. Craving, 
+9. Grasping, 
+10. Becoming, 
+11. Rebirth, 
+12. Old age and death.
 
-The originless troubles of sentient beings in the past are called "ignorance".
+The originless troubles of sentient beings in the past are called "Ignorance".
 
-Including, I law enforcement and law enforcement.
+Fundamental ignorance of the truths and the delusion of mistakenly perceiving the skandhas as a self.
 
-The kamma that arises from ignorance is called "action".
+The karma that arises from ignorance is called "Formation".
 
-The consciousness that has just entered the womb, the consciousness gas is consciousness, which arises from ignorance, action, and the past.
+As long as there is ignorance there is the formation of karma: positive, negative and neutral. This forms the rebirths in the various realms.
+
+The Consciousness that has just entered the womb, the consciousness gas is consciousness, which arises from ignorance, action, and the past.
 
 Also called divine consciousness, the consciousness at this time is the consciousness defiled by good and evil karma.
 
-After consciousness enters the womb, in the first seven days, the five aggregates are gradually formed, and the state at this time is called "name and form".
+After consciousness enters the womb, in the first seven days, the five aggregates are gradually formed, and the state at this time is called "Name-and-form".
 
-The fetus has the six sense organs and is about to be born. At this time, the state is the "six penetrations".
+The fetus has the six sense organs and is about to be born. At this time, the state is the "six ayatanas".
 
-Contact with foreign objects after birth is "touch".
+Contact with foreign objects after birth is "Contact".
 
-The six faculties of eye, ear, nose, tongue, body, and mind, and the six senses of eye, ear, nose, tongue, body, and consciousness, are in contact with the six senses of form, sound, smell, taste, touch, and Dharma. environment, the reaction produced by the combination of the three is "touch".
+The six faculties of eye, ear, nose, tongue, body, and mind, and the six senses of eye, ear, nose, tongue, body, and consciousness, are in contact with the six senses of form, sound, smell, taste, touch, and environmental phenomena, the reaction produced by the combination of the three is "Sensation".
 
-For example, the combination of eye and eye-consciousness and external objects generates color, the combination of ear and ear-consciousness, air vibration, movement generates sound, the combination of nose and nose-consciousness, the combination of external odor generates fragrance, the combination of tongue and tongue-consciousness, food generates flavor, etc.
+For example, the combination of the eye and eye-consciousness and external objects generates color, the combination of ear and ear-consciousness, air vibration, movement generates sound, the combination of nose and nose-consciousness, the combination of external odor generates fragrance, the combination of tongue and tongue-consciousness, food generates flavor, etc.
 
-The feeling of "touch" is "feeling".
+The feeling of "Sensation" is "feeling".
 
-For example, after the eye and eye-consciousness come into contact with the external world, the feelings of liking, disgust, and feeling that arise are "feelings".
+For example, after the eye and eye-consciousness come into contact with the external world, the feelings of liking, disgust, and feeling that arise are "Sensations".
 
-In the "feeling", there is a sense of distinction. As long as the feeling is pleasant, not painful, the process of this pursuit is "love".
+In the "Sensation", there is a sense of distinction. As long as the feeling is pleasant, not painful, the process of this pursuit is "love".
 
-Because there is "love", there is a desire for greed, only pursuing what you like.
+Because there is "Craving", there is a desire for greed, only pursuing what you like.
 
-After a child is born, he has gradually developed a little bit of "love". He will pursue and ask for what he likes, and push aside what he doesn't like. This kind of choice with different thoughts is "taking".
+After a child is born, he has gradually developed a little bit of "Craving". He will pursue and ask for what he likes, and push aside what he doesn't like. This kind of choice with different thoughts is "taking".
 
-Because there is a mind of discrimination and attachment, a lot of karma will be created in the process of "taking", so "taking" is also the beginning of the cause in this world.
+Because there is a mind of discrimination and attachment, a lot of karma will be created in the process of "Grasping", so "Grasping" is also the beginning of the cause in this world.
 
-In the process of "taking", many afflictions arise, and because of afflictions they are created again. When karma is acquired, it is called "existence", and "existence" is karma.
+In the process of "Grasping", many afflictions arise, and because of afflictions they are created again. When karma is acquired, it is called "Becoming", and "Becoming" is karma.
 
-Because of "existence", the karma increases, and the karma is continuously created, and the karma and the obscurity further increase until death.
+Because of "Becoming", the karma increases, and the karma is continuously created, and the karma and the obscurity further increase until death.
 
-After death, due to karmic reasons, rebirth in the six realms is called "birth".
+After death, due to karmic reasons, rebirth in the six realms is called "Rebirth".
 
-After "birth", it grows old again until death, which is "old age and death".
+After "Rebirth", it grows old again until death, which is "Old age and death".
 
-The Twelve Dependent Origins talks about the rebirth of the three worlds.
+The twelve links of dependent origination talks about the rebirth of the three worlds.
 
-"Ignorance and formation" are the samsara of the previous world, "consciousness, name and form, six senses, contact, feeling, craving, grasping, existence, birth, old age and death" are the samsara of this life, and "birth, old age and death" are again, yes The rebirth of the afterlife.
+"Ignorance and Formation" are the samsara of the previous world, "Consciousness, Name-and-form, Six Senses, Contact, Sensation, Craving, Grasping, Becoming, Rebirth, Old age and Death" are the samsara of this life, and "Rebirth, Old age and Death" are again, yes The rebirth of the afterlife.
 
-"Xing" is the karma that leads to the rebirth of the previous life, and "there" is the karma that leads to the rebirth of the future life.
+"Xing" is the karma that leads to the rebirth of the previous life, and "becoming" is the karma that leads to the rebirth of the future life.
 
-The Twelve Dependent Origination is one of the whole process of a person coming into the world to be born to old age and death. The above method starts from ignorance and affliction.
+The twelve links of dependent origination is one of the whole process of a person coming into the world to be born to old age and death. The above method starts from ignorance and affliction.
 
 Let’s go against the trend and think about it again, starting from “old age and death”: why people “age and die” is because of “birth”;
 
-Also, why is there "birth", because the karma is created, that is, "there";
+Also, why is there "birth", because the karma is created, that is, "becoming";
 
-The reason why karma is created is because of the pursuit of pleasure, that is, "taking";
+The reason why karma is created is because of the pursuit of pleasure, that is, "grasping";
 
-Why do you pursue pleasure? It is because the idea of ​​discrimination arises, that is, "love";
+Why do you pursue pleasure? It is because the idea of ​​discrimination arises, that is, "craving";
 
-The reason why discriminatory thinking arises is because there is a feeling of pain and pleasure, which is "feeling";
+The reason why discriminatory thinking arises is because there is a feeling of pain and pleasure, which is "sensation";
 
-Why there is feeling, because there is "touch";
+Why there is feeling, because there is "contact";
 
-Why there is "touch"? It's because the "six senses" combined with the six senses encountered the six realms, resulting in "touch";
+Why there is "contact"? It's because the "six senses" combined with the six senses encountered the six realms, resulting in "contact";
 
-Why there are "six entrances", it is because "name and form" grow into the womb;
+Why there are "six senses", it is because "name-and-form" grow into the womb;
 
-The reason why there is "name and form" is because there is a stained, stained soul that has entered the womb, and this stained soul is "consciousness";
+The reason why there is "name-and- form" is because there is a stained, stained soul that has entered the womb, and this stained soul is "consciousness";
 
-Then, where does "consciousness" come from, because "actions" create goodness, and evil karma defiles this "consciousness";
+Then, where does "consciousness" come from, because "formations" create goodness, and evil karma defiles this "consciousness";
 
-Where does the "action" come from? It's the ignorance and afflictions that create the karma, and this karma is the "action".
+Where do the "formations" come from? It's the ignorance and afflictions that create the karma, and this karma is the "formation".
 
-Therefore, the root of the six realms of samsara is the afflictions of ignorance. Once the afflictions of ignorance are cut off, you will never be reborn in samsara again, and you will be liberated.
+Therefore, the root of the six realms of samsara is the affliction of ignorance. Once the afflictions of ignorance are cut off, you will never be reborn in samsara again, and you will be liberated.
 
-In this way, think about the twelve Dependent Origination according to the forward and reverse, and then you will understand the process of a person's circulation in samsara;
+In this way, think about the twelve links of dependent origination according to the forward and reverse, and then you will understand the process of a person's cycle in samsara;
 
 Contrasting, thinking, you can find the source of samsara, which is the affliction of ignorance.
 
-Of the twelve dependent arisings, three are afflictions, two are karma, and seven are suffering.
+Of the twelve links of dependent origination, three are defilements, two are karma, and seven are suffering.
 
-The three defilements are: ignorance, craving, and clinging.
+The three defilements are: ignorance, craving, and grasping.
 
-The two karmas are: doing, and having.
+The two karmas are: formation, and becoming.
 
-The seven sufferings are: consciousness, name and form, six sense organs, contact, feeling, birth, old age and death.
+The seven sufferings are: consciousness, name-and-form, six sense organs, contact, sensation, birth, old age and death.
 
 111
 
 Now everyone understands why you need to be liberated, because the pain of samsara and rebirth is too much! Opportunities for liberation are very rare compared to suffering.
 
-In countless rebirths, we only know that this opportunity in front of us will have a chance in future generations, and we cannot be sure.
+In countless rebirths, we only know that this opportunity in front of us will have a chance in future rebirths, and we cannot be sure.
 
-Therefore, we must cherish it. If we miss this opportunity and fail to be liberated, we will re-enter rebirth, continue to be born, continue to suffer, and the hope of liberation is very slim.
+Therefore, we must cherish it. If we miss this opportunity and fail to be liberated, we will re-enter samsara, continue to be reborn, continue to suffer, and the hope of liberation is very slim.
 
-3. In addition to meditating on the Four Noble Truths, the Twelve Condition, and Origination, there is another method for practicing morality, concentration and wisdom.
+### 3. Moral Discipline, Concentration and Wisdom
 
-When we talk about cultivation, we are mainly talking about the cultivation of precepts, concentration and wisdom.
+In addition to meditating on the Four Noble Truths, the Twelve links of dependent origination, there is another method for practicing morality, concentration and wisdom.
 
-(1) Discipline
+When we talk about cultivation, we are mainly talking about the cultivation of moral discipline, concentration and wisdom.
 
-The Importance of Purity of Precepts (1) The Purity of Precepts and Virtues Purity of Precepts is very important.
+##### (1) Moral Discipline
+
+##### 1. The Importance of Moral Discipline
+
+##### （1）The Purity of Precepts and Virtues
+
+Purity of Precepts and Virtues is very important.
+ 
 We already know that karma arises due to afflictions. If we can purify and uphold the precepts, we will naturally cut off a large part of afflictions, and we will also cut off a lot of the possibility and ability to create karma.
 
 For example, the five precepts, do not kill, do not steal, do not commit sexual misconduct, no, lie, and do not drink alcohol. If these five precepts can be purified, they will be broken. The troubles caused by these evil karma will not lead to greater karma. Great fortune.
 
 Now is the era of conflict, if you can keep the precepts clean, you will be blessed and rewarded very much.
 
-In the Age of Perfection or in the Land of Ultimate Bliss, the merits of a pure bhikkhu who keep two hundred and fifty-three precepts in his life are compared with the merits and virtues of the current Saha world, the merits of the latter, who are pure and abide by one precept. The good news is bigger.
+In the Age of Perfection or in the Land of Ultimate Bliss, the merits of a pure bhikkhu who keeps two hundred and fifty-three precepts in his life are compared with the merits and virtues of the current Saha world, the merits of the latter, who are pure and abide by one precept. The good news is bigger.
 
-The Ten Wheels Sutra says:
+The "Ksitigarbha Ten Wheels Sutra" says:
 
-Who, during the years of the Hengsha Kalpa, made offerings to hundreds of millions of Buddhas with a pious heart with food, drink, garland, and bright lamps;
+---
+
+Who, during the years of the Hengsha Kalpa, 
+
+made offerings to hundreds of millions of Buddhas with a pious heart with food, drink, garland, and bright lamps;
 
 Whoever observes a good precept day and night when the good Dharma is destroyed and the holy religion is on the verge of perishing, the latter's merits and virtues are even more extraordinary.
+
+---
 
 That is to say, if a person makes offerings, such as food, umbrellas, banners, lamps, etc., to the Buddhas and Tathagatas devoutly during the ages of kalpas as many as the number of sands in the Ganges, this kind of merit must be very, great.
 
@@ -3112,9 +3316,17 @@ Every stimuli from the outside world, every affliction of oneself, every encount
 
 The bodhisattvas in the Land of Ultimate Bliss saw this, so they vowed to be reborn in our southern Zhanbu continent.
 
-(2) Purity of precepts is the foundation of all merits. Nagarjuna Bodhisattva said in the Book of Relatives and Friends:
+##### (2) Purity of discipline is the foundation of all merit
 
-Precepts are like the moving and still earth, which is the foundation of all merits.
+Nagarjuna Bodhisattva said in the Book of Relatives and Friends:
+
+---
+
+Precepts are like the moving and still earth, 
+
+which is the foundation of all merits.
+
+---
 
 Precepts are the root of all merits. Precepts are like the earth, and merit and achievement are like all things growing on the earth. Without the earth, there would be nothing.
 
@@ -3128,22 +3340,29 @@ When the precepts of mind are purified, greed, hatred, delusion, arrogance, doub
 
 When the vexation is reduced, it is even more easy to generate the merits of meditation.
 
-The gate of sin of sin The gate of sin of sin refers to the four factors that lead to sin of sin.
+##### 2. The gate of sin of breaking commandments
+
+
+The gate of sin of sin refers to the four factors that lead to sin of sin.
 Don't be ignorant, disrespectful, lethargic, and troubled.
 
-(1) Ignorance and ignorance will lead to many mistakes.
+##### (1) Ignorance
+
+Ignorance will lead to many mistakes.
 
 To read and study more, at least understand the Five Precepts, Bodhisattva Precepts, and Tantric Precepts.
 
 If you don't study and understand a lot, you will make a lot of mistakes.
 
-For example, those who have received the empowerment of the Supreme Yoga Department should do it at least every day, and go to the six yogas. The six yogas are all precepts and should be recited seriously.
+For example, those who have received the empowerment of the Supreme Yoga  should do it at least every day, and go to the six yogas. The six yogas are all precepts and should be recited seriously.
 
 Also think about whether you have broken the precept, and if you do, you must immediately repent.
 
 If you don't understand these things, and you don't do the six yogas every day, you will not only lose money, but also make a lot of trouble, and the retribution will be very heavy.
 
-(2) If you disrespect or respect the precepts you take, it is easy to break the precepts.
+##### （2）Disrespect 
+
+If you disrespect or respect the precepts you take, it is easy to break the precepts.
 
 If you have a respectful heart for the precepts that you or others take, it is easy to purify the precepts.
 
@@ -3155,11 +3374,17 @@ Among bhikkhus, those who have been ordained for a short period of time should r
 
 Also, being disrespectful is an annoyance.
 
-(3) Letting go has been discussed in the previous Twenty Supplementary Defilements, so I won't talk about it here.
+##### （3）放逸
 
-(4) Many afflictions If there are too many afflictions such as greed, hatred, and delusion, it is easy to break the precepts.
+Letting go has been discussed in the previous Twenty Secondary Unwholesome Factors, so I won't talk about it here.
 
-(2) Meditation When meditating, four conditions need to be met.
+##### （4）Many Afflictions 
+
+If there are too many afflictions such as greed, hatred, and delusion, it is easy to break the precepts.
+
+##### （二）Meditation 
+
+When meditating, four conditions need to be met.
 
 The first is to understand how to practice meditation.
 
@@ -3169,9 +3394,9 @@ Preferably, on a mountain, or in a temple.
 
 Some temples are close to the downtown area, so they are not suitable for meditation.
 
-It is very important to choose a place to meditate. Even in a high-rise building in the center of the city, as long as you can't hear the sound outside and no one disturbs you, it's okay.
+It is very important to choose a good place to meditate. Even in a high-rise building in the center of the city, as long as you can't hear the sound outside and no one disturbs you, it's okay.
 
-The third is to stay away from chores.
+The third is to stay away from distractions.
 
 Can not watch TV, computer, can not use mobile phones, telephones, do not receive information from the outside world.
 
@@ -3181,30 +3406,38 @@ The fourth is to have adequate living conditions.
 
 You must have enough food, clothing, etc., you must prepare food for a year, and you must have a toilet, a bathroom, and you must be able to take a bath. If the meditation of the deity of the monks, you must take a bath once or twice a day, and your body must be very strong. clean.
 
-The location of meditation (1) Selection of the location When practising meditation, you must first select a location and determine the location before you can practice meditation.
+##### 1. The object of meditation
+
+
+##### (1) Selection of the object of meditation 
+
+When practising meditation, you must first select a location and determine the location before you can practice meditation.
+
 What is the fixed place? Essentially, anything can be regarded as a fixed place.
 
 In the past, high-level outsiders all had meditation. When they practiced meditation, they either chose leaves as their meditation sites, or they used branches, stones, etc. as their meditation sites.
 
 If you use these for concentration, you can get concentration, but this kind of concentration is not good for you.
 
-We also have to choose a concentration, and what can we use to do it so that we can not only get meditation, but also increase the blessings? We choose Buddhas and Bodhisattvas as the center.
+We also have to choose an object of meditation, and what can we use to do it so that we can not only get meditation, but also increase the blessings? We choose Buddhas and Bodhisattvas as the center.
 
 117
 
-It is best to be Shakyamuni Buddha, or Master Tsongkhapa, or his own deity.
+It is best to choose Shakyamuni Buddha, or Master Tsongkhapa, or one's own deity.
 
-(2) It is wrong to make sure that concentration meditation is practiced with consciousness, not with eye-consciousness. Some people use it, look at a certain place with their eyes, and visualize the Buddha there. This is wrong.
+##### （2）Visualise the object of meditation 
 
-, use consciousness to visualize, use eye-consciousness will not achieve meditation.
+It is wrong to make sure that concentration meditation is practiced with consciousness, not with eye-consciousness. Some people use it, look at a certain place with their eyes, and visualize the Buddha there. This is wrong.
 
-Once you have chosen the concentration, you can practice focusing the mind on the concentration.
+use consciousness to visualize, using eye-consciousness will not achieve meditation.
 
-If the chosen location is Shakyamuni Buddha, then it will be fixed on the Buddha.
+Once you have chosen the object of meditation, you can practice focusing the mind on the object of meditation.
 
-The highest Buddha visualized cannot exceed one inch, and the smallest is the size of a grain of rice. The smaller the location, the better. The smaller the location, the easier it is to concentrate the mind, and the mind is easier to settle down. Therefore, it is best to be as large as a pea or a grain of rice. .
+If the chosen object of meditation is Shakyamuni Buddha, then it will be fixed on the Buddha.
 
-When you visualize Buddha Shakyamuni, you can visualize the Buddha in front of you, on your face, on the top of your head, in your heart, or on the tip of your nose.
+The highest Buddha visualized cannot exceed one inch, and the smallest is the size of a grain of rice. The smaller the object of meditation, the better. The smaller the object of meditation, the easier it is to concentrate the mind, and the mind is easier to settle down. Therefore, it is best to be as large as a pea or a grain of rice. 
+
+When you visualize Buddha Shakyamuni, you can visualize the Buddha in front of your face, on the top of your head, in your heart, or on the tip of your nose.
 
 Visualize the tip of the nose, there is a bright spot on it, which is a small light, and visualize in the halo, Buddha.
 
@@ -3244,6 +3477,8 @@ From now on, do not adjust the changes, including sitting posture, size, color, 
 
 119
 
+#####  2. Meditation and Breathing
+
 After the meditation and breathing have determined the location, you must choose your own sitting posture.
 The best thing is to be able to sit on the knees, but it is not necessary to sit on the knees. Everyone's roots are different, and they can sit in half-protuberance, growth, or sideways.
 
@@ -3263,9 +3498,12 @@ Demons and ghosts can't stand this way of sitting, and they will be a few hundre
 
 Because of this, this sitting method is the sitting method of Vairocana Buddha, so it is called the seven branches of Vairocana, and it is also called the seven methods of Vairocana.
 
-Vairocana Buddha once made a vow: "After I become Buddha Shakyamuni Buddha Shakyamuni Buddha, if someone meditates using the seven methods of Vairocana, the obstacles of demons, ghosts, non-human beings will not succeed."
+Vairocana Buddha once made a vow:
+
+After I become Buddha Shakyamuni Buddha Shakyamuni Buddha, if someone meditates using the seven methods of Vairocana, the obstacles of demons, ghosts, non-human beings will not succeed.
 
 Shakyamuni Buddha
+![释迦牟尼佛](/images/sakyamunibuddha.png)
 
 So, meditate with the seven methods of Vairocana, and ghosts and demons will run away.
 
@@ -3282,6 +3520,8 @@ Breathe three more times through the left and right nostrils and holes at the sa
 At the same time as breathing, the mind is fixed on the breath, and the mind follows the breath. In this way, when you breathe nine or twenty-one times, the mind will be settled.
 
 The Seven Dharmas of Vairocana plus breathing are often referred to as the Eight Vairocanas.
+
+##### 3. Observing the mind during meditation
 
 Once the mind's processing mind during meditation is settled, you can visualize the Buddha in the place of meditation.
 When contemplating samādhi, there will be two situations in the mind, which are also the two major obstacles to the practice and practice of samādhi: slackness and drowsiness.
@@ -3328,16 +3568,18 @@ To the extent that one can contemplate one day, it is very easy to enter the sev
 
 When you can stay in meditation for a few days, meditation will be successful.
 
-After the meditation has been successfully cultivated, the meditation can be released by making a vow.
-For example, if you want to get out of meditation at sunset, you make a vow: "I will meditate all day today, until the sun goes down.
+##### 4. Coming out of meditation
 
-"If you make a vow in this way, you will definitely get out of samadhi at sunset, and you won't get out of samadhi before sunset;
+After the meditation has been successfully cultivated, the meditation can be released by making a vow.
+For example, if you want to get out of meditation at sunset, you make a vow: "I will meditate all day today, until the sun goes down."
+
+If you make a vow in this way, you will definitely get out of samadhi at sunset, and you won't get out of samadhi before sunset;
 
 If you make a wish to meditate for a month, you will definitely stay in the meditation for a month, and the meditation will be released after a month.
 
-The back mountain of Ganden Monastery is called Amdo Ri Mountain (Mieding Mountain). Tsongkha
+The back mountain of Ganden Monastery is called Amdo Ri Mountain (Mieding Mountain). 
 
-When Master Ba built the Ganden Monastery, he dug out stone materials in the Andori Mountains. When he dug up, he found a treasure that contained the instruments of Dharma King Yama. He dug down and went. He found that someone was meditating in the cave. Jingle, knock, and he was set when he heard it.
+When Master Tsongkhapa built Ganden Monastery, he dug the stone materials out of the Amdo Ri Mountain. When he was digging, he found a treasure that contained the instruments of Dharma King Yama. He dug down and went. He found that someone was meditating in the cave. Jingle, knock, and he was set when he heard it.
 
 After leaving the meditation, he asked: "Lantern, where is the Buddha? Where is King Gege?" King Gege was a king of the Buddha at the time of Burning the Lamp. The monks at that time all knew the Buddha and the King of Gege.
 
@@ -3345,13 +3587,15 @@ People said to him, "The Lamp Burning Buddha passed away, and the Buddha Shakyam
 
 "He said, "Oh, I've been in meditation for so long, then I'm leaving."
 
-"After that, he sat down.
+"After that, he disappeared.
 
 If you don't make a vow before meditation, when you will come out of the concentration, the time when you will come out of the concentration is uncertain, and you need the sound of the chime and other instruments to make him come out of the concentration.
 
 Otherwise, before the time to leave the meditation, the power of earth, water, fire and wind will not be able to let him leave the meditation, even if he throws it into the sea, he will still enter the meditation in the sea.
 
-The benefits of meditation If the meditation practice is successful, the performance is that the appearance is alive, and the body is warm.
+##### 5. Benefits of meditation 
+
+If the meditation practice is successful, the performance is that the appearance is alive, and the body is warm.
 All the qi has entered the bright spot, the body and the qi outside the body are completely cut off, there is no breathing, and the five senses no longer have qi, and the breath comes in and out.
 
 In this case, there is a fear of being buried or cremated as a dead person.
@@ -3384,7 +3628,9 @@ Even if you have achieved a little meditation, you can still hear sounds in the 
 
 Venerable Kazanyan was a disciple of Shakyamuni Buddha. Once, once, he went to a small country in India. After arriving there, the king wanted to offer him the entire country, but Venerable Kazanyan said that he could not accept it.
 
-The king thought he thought the whole country was too big, and said, "Half the country." He also said no.
+The king thought he thought the whole country was too big, and said, "Half the country." 
+
+He also said no.
 
 Finally, the king said: "I must make offerings today to support you. The Sangha needs a lot of benefits, and I can provide these items."
 
@@ -3396,7 +3642,12 @@ At that time, Buddha Shakyamuni was in Bodhgaya, India, far away from the small 
 
 On the basis of attaining meditation, the wisdom of practising emptiness will be very fast. Under normal circumstances, it only takes six months if it is fast, and if it is slow, it will take a year to obtain the wisdom of emptiness. It's very easy for me and Dharma Wu.
 
-Matters needing attention when practising meditation (1) Concentrating on meditation can only be accomplished by contemplating meditation at all times.
+##### 6. Precautions when practicing meditation
+
+ ##### （1）Visualize the fixed place in the mind at all times
+ 
+Concentrating on meditation can only be accomplished by contemplating meditation at all times.
+
 In the process of practising meditation, when the mind is really unable to settle down, although you can stand up and recite sutras and worship Buddha, you still need to visualize the place of concentration at the same time, and you must be there all the time, including eating and sleeping.
 
 Before going to sleep, first visualize the whole body becoming light, slowly blending into the Buddha's body, and then thinking about the Buddha sleeping all the time.
@@ -3409,7 +3660,9 @@ When you wake up, you should immediately visualize the Buddha in the place of co
 
 When taking a bath, visualize the cleansing of the Buddha's body, when eating, and when offering offerings to the Buddha in the place of concentration, so that you can quickly achieve meditation.
 
-(2) It is a serious fault to be alert to the drowsy and drowsy places that are blurred and not bright.
+##### （2）Vigilance and Drowsiness 
+
+It is a serious fault to be alert to the drowsy and drowsy places that are blurred and not bright.
 
 During the process of meditating and contemplating, if the concentration is not bright, that is, a subtle drowsiness occurs. In this state, it can be delayed for a long time.
 
@@ -3435,7 +3688,9 @@ I no longer know what tea is and how to drink it.
 
 Therefore, misunderstanding subtle drowsiness is a great obstacle to the practice of meditation.
 
-(3) If wisdom has obtained meditation, the wisdom of emptiness in meditation will be very effective.
+##### （三）Wisdom 
+
+If wisdom has obtained meditation, the wisdom of emptiness in meditation will be very effective.
 
 quick. It is also very fast to cultivate the five supernatural powers, but we do not cultivate meditation to gain
 
@@ -3487,13 +3742,15 @@ Let’s look at the formation aggregate again. The formation is empty. We look a
 
 131
 
-Consciousness consists of six consciousnesses, eye-consciousness, ear-consciousness, nose-consciousness, tongue-consciousness, body-consciousness, and consciousness. The first five consciousnesses are definitely not me. Take eye-consciousness as an example. If there is no eye-consciousness, then the blind person should not exist in me, which is also impossible.
+Consciousness consists of six consciousnesses: eye-consciousness, ear-consciousness, nose-consciousness, tongue-consciousness, body-consciousness, and mental-consciousness. 
+
+The first five consciousnesses are definitely not me. Take eye-consciousness as an example. If there is no eye-consciousness, then the blind person should not exist in me, which is also impossible.
 
 Likewise, yes, ear-consciousness, nose-consciousness, tongue-consciousness, and body-consciousness are not I.
 
 So is consciousness not me? Everyone suspects that consciousness should be me.
 
-There are four major schools of Buddhism: Youbu School, Jingbu School, Wei, Consciousness School, and Madhyamika School.
+There are four major schools of Buddhism: Youbu School, Jingbu School, Wei, Consciousness School, and the Madhyamika School.
 
 The Sutra School believes that consciousness is me, and the Madhyamika school will immediately say, if consciousness is me, then people have the consciousness of the past, the life, the consciousness of this life, and the consciousness of the next life. Which one is me? If all three are, I become three, which is impossible;
 
