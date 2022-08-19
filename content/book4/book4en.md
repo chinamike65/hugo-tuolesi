@@ -7639,31 +7639,31 @@ Lay people make use of their power to prescribe doing certain kinds of bad deeds
 
 After attaining bodhicitta, one should always pay attention to cultivating bodhichitta, and no matter what hardships are encountered, never give up bodhicitta.
 
-Among the eighteen fundamental precepts of the bodhisattva precepts, breaking the "persuade to quit Bodhi" or "giving up the bodhicitta vows" means breaking the bodhisattva precepts.
+Among the eighteen fundamental precepts of the bodhisattva precepts, breaking the "persuade to quit Bodhi" or "giving up the bodhicitta vows" means breaking all the bodhisattva precepts.
 
 If you break other precepts, you only break that precept, not the Bodhisattva Precept.
 
-To break the Bodhisattva, the eighteen fundamental precepts of the sacramental precepts, still need to satisfy the four entanglements, that is, the four conditions: voluntarily want to do that evil deed, do it without shame, do it with joy, and do not consider it as a fault.
+To break the eighteen fundamental precepts Bodhisattva, still need to satisfy the four entanglements, that is, the four conditions: voluntarily want to do that evil deed, do it without shame, do it with joy, and do not consider it as a fault.
 
 In Buddhism, only Buddha Shakyamuni can formulate or change the precepts. Therefore, Buddha Shakyamuni is called Buddha, and no other bodhisattva or great virtue has this right.
 
-In addition, the precepts cannot be reasoned with logic and logic, which is very important. Now many masters use logic and logic to explain the precepts, which has caused too many misunderstandings.
+In addition, the precepts cannot be reasoned about with logic and discussion, which is very important. Now many masters use logic and discussion to explain the precepts, which has caused too many misunderstandings.
 
 Those who have never received the Bodhisattva Precepts before, should consider carefully when taking and upholding these precepts. If you can keep the precepts pure, then you can take the Bodhisattva Precepts. Even if you can take and uphold one precept in a pure way, the rewards will be very great.
 
 If you feel that you can't do it, don't take it for the time being, and you can wait until the opportunity is ripe before taking the ordination.
 
-##### 3. What is the nature of tolerating Paramita's humiliation? 
+##### 3. Patience 
 
 Forbearance includes internal causes and external conditions, and an unshakable attitude towards internal and external causes and conditions is tolerance for humiliation.
 
-For example, when you are scolded, you can be calm, not angry, and not resentful. This kind of mentality is forbearance.
+For example, when you are insulted, you can still be calm, not angry, and not resentful. This kind of mentality is Patience.
 
 There are three types of humiliation: injury tolerance, suffering tolerance, and Dharma tolerance.
 
 ##### (1) Hurts and tolerance 
 
-We must endure being hurt, beaten, scolded, and wronged by others.
+We must endure being hurt, beaten, insulted, and wronged by others.
 
 Why endure it? Because these are all about eliminating karma.
 
@@ -7671,43 +7671,43 @@ At the same time, it is also retribution, which is the result of the karma creat
 
 There was a couple who were very affectionate when they were young, but their family did not approve of their marriage. The two said that they would commit suicide if they refused to get married. The family had no choice but to let them get married.
 
-After two years of marriage, it was very good. After another two years, after giving birth to a child, they started to quarrel every day. My husband scolds my old mother every day.
+After two years of marriage, it was very good. After another two years, after giving birth to a child, they started to quarrel every day. Her husband scolded her old mother every day.
 
 In this way, from the age of twenty to more than fifty years old, the wife gave birth to eight children, but the husband still beat and scolded her and blamed her.
 
-The wife wants to get a divorce, but she can't leave.
+The wife wanted to get a divorce, but she couldn't leave.
 
-In the end, the wife had no choice, so she ran to Master Yongzeng, son, and wanted to become a monk, the Dharma King said, "Did you become a monk to avoid your family? If so, you can endure it for another two years, and your husband will, It's better for you." 
+In the end, the wife had no choice, so she ran to Master Yongzeng, son, and wanted to become a nun, the Dharma Master said, "Do you want to become a nun to escape your family? If so, you can endure it for another two years, and your husband will treat you better." 
 
-She came back after hearing this.
+She went home after hearing this.
 
-Two years later, one day, my wife was working, and suddenly my husband came to my wife and said, "Oh, my wife, I'm sorry, I've been beating and scolding you all my life, I'm sorry!" 
+Two years later, one day, the wife was working, and suddenly her husband came to his wife and said, "Oh, my wife, I'm sorry, I've been beating and scolding you all my life. I'm sorry!" 
 
-The husband wanted to change the method and play tricks on her, so she was even more afraid.
+The husband wanted to change the technique and play tricks on her, so she was even more afraid.
 
 In fact, on that day, the karma between them for so many years was almost finished.
 
-At this time, the husband realized that he should not treat his wife like this, and his love for his wife came out.
+The husband realized that he should not treat his wife like this, and his love for his wife came out.
 
 From that day on, her husband treated her very, very well.
 
-Why is this? Queen Yong Zengfa said that in the past life of this couple, his wife was a man, and he bought a calf, and this calf was her current husband.
+Why was this? Master Yong Zeng said that in a past life of this couple, the wife was a man, and he bought a calf, and this calf was her current husband.
 
-After two years of good raising, the calf grew up and could plow the fields, so I beat it and scold it every day and made it work.
+After two years of good raising, the calf grew up and could plow the fields, so she beat it and scoledd it every day and made it work.
 
-Because two people had fate in the past life, the present life is compared, and it is easy to come together.
+Because two people had a karmic connection in a past life, the present life is compared, and it is easy to come together.
 
-In his previous life, he raised cattle well for two years. In this life, when he is old, the husband has been good to his wife for two years. After that, the retribution for beating and scolding will come. In the past, more than 40 years later, the retribution debt was repaid, and the two of them could be reconciled.
+In his previous life, he raised cattle well for two years. In this life, when he was old, the husband had been good to his wife for two years. After that, the retribution for beating and scolding will come. In the past, more than 40 years later, the retribution debt was repaid, and the two of them could be reconciled.
 
-Therefore, all suffering is the retribution of one's own evil deeds.
+Therefore, all suffering is  retribution for one's own evil deeds.
 
 Also, when karma appears, be willing to endure it.
 
-If the heart is not troubled, the pain will be very small.
+If the mind is not troubled, the pain will be very small.
 
 Once you are upset, you will feel that it is a great pain.
 
-It's like being beaten by someone, endure it for five minutes, and then it's over.
+It's like being beaten by someone. Endure it for five minutes and then it's over.
 
 If you hold grudges in your heart, you will hold grudges for a lifetime, and you will suffer for a lifetime.
 
@@ -7719,9 +7719,9 @@ For example, being scolded by someone, in essence, is just empty words, just an 
 
 But if you get upset and can't let it go, you always think: "Oh, he lived at that time, so he scolds me like that."
 
-Thinking about it every day, I will really feel that there is something in my body that he has scolded, so that the more I think about it, the more painful it will be, and it will even be painful for the rest of my life.
+Thinking about it every day, you will really feel that there is something in your body that he has scolded, so that the more you think about it, the more painful it will be, and it will be even be painful for the rest of my life.
 
-After practicing forbearance, you will understand: Oh, this is because I scolded him in the previous life, I got the reward, it should be due, this is cause and effect;
+After practicing forbearance, you will understand: Oh, this is because I scolded him in a previous life, now I got the reward due, this is cause and effect;
 
 And now that the retribution is very, well, this karma has been eliminated in this life, and I can still bear it. If I come and repay it again in this life, I may not be able to endure the suffering at that time.
 
@@ -7731,17 +7731,17 @@ Thinking this way, you will be very happy, and the pain will be very small.
 
 It is suffering.
 
-When encountering stress, the mind should be calm, the feeling will be different, and it will be less easy to cause troubles in the future.
+When encountering stress, the mind should be calm and then the feeling will be different, and it will be less easy to cause troubles in the future.
 
-##### (3) Cultivation of Dharma-Forbearance 
+##### (3) Cultivation of Patience 
 
-In the process of cultivating the Dharma, one must endure all kinds of pain, that is, Dharma-forbearance.
+In the process of cultivating the Dharma, one must endure all kinds of pain, that is Patience.
 
-For example, in lecturing the scriptures, Master's lectures are sometimes very long, large, and when the family sits and listens, the body will feel numbness and pain, and these must be endured.
+For example, in lecturing the scriptures, Master's lectures are sometimes very long, large, and when people sit and listens, the body will feel numbness and pain, and these must be endured.
 
 If you get sick while listening to the scriptures, you must realize that you are eliminating karma.
 
-Once when I was teaching the scriptures, I caught a cold on the day I started teaching the scriptures. I was about to speak, and when I was finished, the cold was gone. This is to eliminate karmic obstacles. No matter how painful it is, I have to endure it.
+Once when I was teaching the scriptures, I caught a cold on the day I started teaching the scriptures. I was about to speak, and when I was finished, the cold was gone. This is to eliminate karmic obstacles. No matter how painful it is, you have to endure it.
 
 In the process of cultivating the Dharma, we must bear the pain happily and have a clear understanding of the pain.
 
@@ -7751,7 +7751,7 @@ It is also very good to have a cold.
 
 When listening to the menstruation, the pain in the lower back and the back also disappeared. There are many karmic obstacles. I just want to be happy. This is practicing Dharma forbearance.
 
-In the Tibetan area, when the masters were studying when they were children, they were practicing Dharma forbearance at the same time.
+In Tibet, when the masters were studying when they were children, they were practicing forbearance at the same time.
 
 In winter, one has to get up at four or five o'clock in the morning to recite the scriptures. The weather is so cold but even seven or eight-year-old children wear only a cassock.
 
@@ -7761,17 +7761,17 @@ After listening, I have to read a book when I come back, and then rush to lunch,
 
 At the very least, this kind of life will last for more than 20 years. For more than 20 years, I have to be so diligent, enterprising, and practice Dharma forbearance every day.
 
-We studied at the Ta'er Monastery when we were young, and in order to save time, we made breakfast for several days at a time.
+We studied at the Ta'er Monastery when we were young, and in order to save time, we would make breakfast for several days at a time.
 
-In the past, the conditions were very poor, there was no crispy, oil, and when making fried noodles, I just fished it in water.
+In the past, the conditions were very poor, there was no frying oil, and when making fried noodles, we just boiled it in water.
 
-In the morning, while eating and reading, I do not speak for almost the whole day, and it is even more impossible to ask the teacher if there is a problem, and then listen to the scriptures and debate the scriptures.
+In the morning, while eating and reading, we do not speak for almost the whole day, and it is even more impossible to ask the teacher if there is a problem, and then listen to the scriptures and debate the scriptures.
 
-In this way, after living for three years, I hardly have time to communicate with other people, I just study hard.
+In this way, after living for three years, I hardly had time to communicate with other people, I just studied hard.
 
 Three years later, one of my masters said, "It's too hard for you to be like this. You can relax and talk to others, and you will understand a lot of things."
 
-Only then did I slowly relax. During the process of cultivating and learning, I was cultivating Dharma forbearance at the same time.
+Only then did I slowly relax. During the process of cultivating and learning, I was cultivating forbearance at the same time.
 
 Once you have cultivated the Dharma to a certain level of forbearance, you will naturally be very happy. It may seem like a lot of hard work to others, but in fact you are very happy.
 
@@ -7783,7 +7783,7 @@ Jing, Jin is the heart that is aggressive towards good karma and good deeds, and
 
 For example, some people who are still in this world are very dedicated to their careers, which can only be called hard-work, not diligence.
 
-There are three types of diligence: diligence in armor, diligence in acquiring goodness, diligence in benefiting others, and diligence in producing.
+There are three types of diligence: armoured diligence, diligence in acquiring goodness, diligence in benefiting others, and diligence in producing.
 
 ##### (1) When wearing armor and diligently doing good deeds, doing good deeds, or learning and cultivating the Dharma, just like a soldier wearing armor on the battlefield, he is not afraid of dangers and injuries, and he moves forward bravely to break all obstacles. Such diligence is called diligence in armor.
 
