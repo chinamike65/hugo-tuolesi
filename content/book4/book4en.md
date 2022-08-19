@@ -17,19 +17,21 @@ draft: false
 
 
 
+---
 
 The Three Principal Aspects of the Path 
 
-(Lower Path)
+Training for Individuals at the Initial Level (Lower Scope)
 
-Middle Path
+Training for Individuals at the Middle Level (Middle Scope)
 
-Upper Path
+Training for Excellent Individuals (Upper Scope)
 
 Vajrayana
 
-Order of Practice
+Graded Order of Practice
 
+---
 
 **Three loves:**
 
@@ -64,7 +66,7 @@ Practice the Dharma
 ---
 
 
-The fourth of the series "Treasures of the Fahai" in Tuole Temple
+The fourth of the series "Dharma Ocean Treasures" in Tuole Temple
 
 **Continued from Dharma Ocean Treasures (3)**
 
@@ -120,27 +122,27 @@ Talks by Ngawang Gyatso Vajra Guru
 
 ##### 4.  Bardo - Intermediate State
 
-(1) The state of the bardo
+(1) The state of the Bardo
 
-(2) The feeling of the bardo
+(2) The feeling of the Bardo
 
 (3) How to Transcend the Bardo Body
 
 (4) Passing Away
 
-##### 5. Living
+##### 5. Rebirth
 
 **Section 3 - The Truth of the Path**
 
 ##### 1. Overview
 
-(1) The path of resources
+(1) The path of accumulation
 
-(2) The path of accumulation
+(2) The path of joining
 
 (3) The path of seeing
 
-(4) The path of learning
+(4) The path of meditation
 
 (5) The path of no more learning
 
@@ -238,7 +240,7 @@ Talks by Ngawang Gyatso Vajra Guru
 
 (1) Types of meditation
 
-(2) Topics for meditation
+(2) Objects of meditation
 
 (3) How to practice meditation
 
@@ -292,7 +294,7 @@ Chapter 3 - Encountering the Difficulties of Tantra
 
 Chapter 4 - The Greatness of Master Tsongkhapa's Teaching
 
-Part 5 -  the Order of Practice steps
+Part 5 -  The Graded Order of Practice
 
 Introduction to Tuole Monastery
 
@@ -9288,13 +9290,13 @@ In the evening class, the same is true. First, practice the Outline of the Steps
 
 These are the real practices.
 
-If family members do not have time to meditate on the San Shi Dao from beginning to end, they can meditate on some of the more important methods in the San Shi Dao, which will also increase great blessings and gain a lot of merit.
+If lay practitioners do not have time to meditate on The Three Principal Aspects of the Path from beginning to end, they can meditate on some of the more important methods in The Three Principal Aspects of the Path, which will also increase great blessings and accumulate a lot of merit.
 
 323
 
-This time, I have condensed the steps of the Bodhi path from beginning to end. I hope that everyone will cut off their afflictions as soon as possible, get rid of suffering and attain happiness, and become Buddhas as soon as possible.
+This time, I have condensed the steps of the Bodhi path from beginning to end. I hope that everyone will be able to cut off their afflictions as soon as possible, get rid of suffering and attain happiness, and become Buddhas as soon as possible.
 
-Let's contemplate together:
+Let's dedicate the merit together:
 
 May this merit spread to all, 
 
@@ -9303,6 +9305,9 @@ and we and all sentient beings can achieve Buddhahood together
 Tashi Delek! Tashi delek!
 
 ![tuolesi](/images/tuolesi.png)
+
+---
+TODO
 
 #### Introduction to Tuole Monastery 
 
