@@ -3,9 +3,15 @@ title: "Dharma Ocean Treasures (4)"
 date: 2022-01-31T12:33:35+01:00
 draft: false
 ---
+
+![Ah Wang](/images/fahaibao4.png)
+
+
 ![front](/images/fa3frontgreet.png)
 
 ![tsongk](/images/fa4tsaongkhapa.png)
+
+**Master Tsongkhapa**
 
 ![fa4ssd](/images/fa4ssdxia.png)
 
@@ -55,11 +61,12 @@ World Peace
 
 Practice the Dharma
 
-Master Tsongkhapa Master Tsongkhapa
+---
+
 
 The fourth of the series "Treasures of the Fahai" in Tuole Temple
 
-Continued from Dharma Ocean Treasures (3)
+**Continued from Dharma Ocean Treasures (3)**
 
 The Three Principal Aspects of the Path (Initial Level)
 

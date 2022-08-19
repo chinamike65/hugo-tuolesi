@@ -738,25 +738,25 @@ Venerable Atisha also received the lineage of the Dorje Chang / Vajradhara of th
 
 At the same time, Venerable Atisha also received the transmission of the lineage of Shantideva Bodhisattva's "A Guide to the Bodhisattva's Way of Life" by Manjushri.
 
-In this way, the Venerable Atisha received the complete transmission and teaching of the sutra and tantra, and gained access to all the Dharma.
+In this way, the Venerable Atisha received the complete transmission and teaching of sutra and tantra, and gained access to all of the Dharma.
 
 On this basis, Venerable Atisha wrote the famous "Lamp for the Path to Enlightenment", which captures all the essentials of the Dharma, and the phrase "Stages of the Path" has been around since then.
 
-The "Lamp for the Path to Enlightenment" has really opened up a path, a path that an ordinary person can follow and become a Buddha in his present life in a turbid world. It is very, very special!
+The "Lamp for the Path to Enlightenment" has really opened up a path that an ordinary person can follow and become a Buddha in his present life in a turbid world. It is very, very special!
 
-Later, other sects in the Tibetan area also formed their own sects based on the "Lamp for the Path to Enlightenment", benefiting countless people and laying the foundation for the establishment of the Kadam School.
+Later, other sects in Tibet also formed their own schools based on the "Lamp for the Path to Enlightenment", benefiting countless people and laying the foundation for the establishment of the Kadam School.
 
 7
 
-Venerable Atisha passed the "Lamp for the Path to Enlightenment" to Master Dromtönpa. At that time, the venerable passed it to him in secret, and Dromtönpa asked inexplicably, **"Why did the venerable teach the secrets to others? The mantra, and teach me the order of the path?"** The Venerable replied, "Besides you, I have not found anyone to whom can entrust this Dharma!" This shows the importance and splendor of the "Lamp for the Path to Enlightenment", and it also indicates that it is the origin of the saying that Master Dromtönpa will spread the Dharma and benefit life in the future.
+Venerable Atisha passed the "Lamp for the Path to Enlightenment" to Master Dromtönpa. At that time, the venerable passed it to him in secret, and Dromtönpa asked inexplicably, **"Why did the venerable teach the secrets to others? The mantra, and teach me the order of the path?"** The Venerable Atisha replied, "Besides you, I have not found anyone to whom can entrust this Dharma!" This shows the importance and splendor of the "Lamp for the Path to Enlightenment", and it also indicates that it is the origin of the saying that Master Dromtönpa will spread the Dharma and benefit life in the future.
 
 Later, Master Dromtönpa founded Radreng / Reting Monastery, established a Kadam School, spread the Dharma, and guided the practice according to the teachings of "Lamp for the Path to Enlightenment". Many people have achieved this.
 
-After the establishment of the Kadam School, Master Dromtönpa passed the "Lamp for the Path to Enlightenment" to Gonpawa, and Gonpawa passed it on to Yeshiba, and Yeshiba passed on Tamaba and Jechenpo, forming the Kadam School.
+After the establishment of the Kadam School, Master Dromtönpa passed the "Lamp for the Path to Enlightenment" to Gompawa, and Gompawa passed it on to Yeshiba, and Yeshiba passed on Tamaba and Jechenpo, forming the Kadam School.
 
 Dromtönpa also passed on the order of the path to Shi Owa, who passed on to Chayuwa, and later formed the order of the path of the **Kadam Professor School.**
 
-Master Tsongkhapa received the lineages of these two schools from the great siddhi of Lodha, Namkha Gyaltsen. Master Namkha Gyaltsen was very accomplished and had received these deep teachings from Vajra Hand Bodhisattva himself.
+Master Tsongkhapa received the lineages of these two schools from the great siddhi of Lodha, Namkha Gyaltsen. Master Namkha Gyaltsen was very accomplished and had received these deep teachings from Vajrapani Bodhisattva himself.
 
 In addition, Master Tsongkhapa also obtained the lineage of the Kadampa school from the Dharma Khenpo Dharma Protector of Tsaku Monastery, which was passed on by Dromtönpa to Potoba, and from Potoba to Sharaba.
 
@@ -764,7 +764,7 @@ In addition, Master Tsongkhapa also obtained the lineage of the Kadampa school f
 
 The three schools were gradually developed and formed according to the broad strategy of study and the ability of later disciples.
 
-To put it simply, the Kadam scriptures are based on the practices of various great scriptures and explain the order of the path, similar to the combination of the five great treatises and the steps of the path now, and the highest requirements for the wisdom and diligence of the disciples; 
+To put it simply, the Kadampa scriptures are based on the practices of various great scriptures and explain the order of the path, similar to the combination of the five great treatises and the steps of the path now, and has the highest requirements for the wisdom and diligence of the disciples.
 
 The sect explains the order of the path in accordance with the "Stages of the Holy Dharma" by Master Zhuolongpa, which is slightly simpler than the previous sect, similar to the current study in accordance with the broad and abbreviated theory of the path to enlightenment, and the requirements for the disciples are slightly lower; The Kadampa masters explain the order of the path, highlight the main points, and at the same time employ various brief guiding principles to guide the disciples to study and practice, and the requirements for the disciples were the lowest.
 
