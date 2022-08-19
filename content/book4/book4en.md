@@ -212,15 +212,15 @@ Talks by Ngawang Gyatso Vajra Guru
 
 (5) Charitable Giving
 
-2. Paramita of Moral Integrity
+2. Paramita of Discipline
 
 (1) Abstinence
 
 (2) Benefit all sentient beings
 
-(3) The Dharma Precepts of Receiving Goodness
+(3) The Dharma Precepts of Virtue
 
-3. Paramita of Renunciation
+3. Paramita of Patience
 
 (1) Tolerance of Pain
 
@@ -228,7 +228,7 @@ Talks by Ngawang Gyatso Vajra Guru
 
 (3) Practicing Forbearance
 
-4. Paramita of Persistence
+4. Paramita of Diligence
 
 (1) Armored diligence
 
@@ -236,7 +236,7 @@ Talks by Ngawang Gyatso Vajra Guru
 
 (3) Benefit all sentient beings
 
-5. Paramita of Meditation
+5. Paramita of Meditative concentration
 
 (1) Types of meditation
 
@@ -248,27 +248,27 @@ Talks by Ngawang Gyatso Vajra Guru
 
 (5) The Nine Abstinences of Meditation
 
-6. Paramita of Knowledge 
+6. Paramita of Wisdom 
 
 (1) Types of Knowledge
 
 (2) A brief analysis of Pudgala's no-self
 
-7. Paramita of Patience
+7. Paramita of Skilful means
 
-8. Paramita of Truthfulness
+8. Paramita of Strength
 
-9. Paramita of Determination
+9. Paramita of Aspiration prayers
 
-10. Paramita of Wisdom
+10. Paramita of Primordial wisdom
 
-**Section 3 - Four Actions**
+**Section 3 - Four Embracing Actions**
 
 1. Giving
 
-2. Beautiful Words
+2. Kind Speech
 
-3. Benificial Behavior
+3. Benificial Action
 
 (1) The immature can mature
 
@@ -6997,293 +6997,325 @@ After the ten paramitas have aroused bodhicitta, they are bodhisattvas.
 
 What a bodhisattva wants to cultivate is the six degrees and four absorptions, and the six degrees are also called the six paramitas, including: 
 
-cloth paramita of application,
- paramita of keeping precepts, paramita of tolerance, 
+Paramita of Generosity
+
+Paramita of Discipline (Right Conduct)
  
- paramita, essence, paramita of meditation, 
+Paramita of Patience
  
- paramita of meditation, and 
+Paramita of Diligence 
  
- paramita of wisdom.
-
-For example, if you add the 
-
-Paramita of Wish, 
-
-Paramita of Convenience, 
-
-Paramita of Strength, and 
+Paramita of Meditative concentration
 
 Paramita of Wisdom.
 
-IThat makes ten perfections.
+Then, if you add the: 
 
-Paramita is a transliteration, meaning "to the other shore", and also meaning, translated as "degree", and degree means crossing.
+Paramita of Aspiration prayers
 
-The so-called "other shore" means the "nirvana shore" that sentient beings reach after liberation.
+Paramita of Skilful means 
 
-##### 1. Giving Paramita 
+Paramita of Strength
 
-The essence of giving is equanimity. Giving without the spirit of equanimity is not considered as real giving, so pay attention to cultivating this kind of heart.
+Paramita of Primordial wisdom
 
-There are three kinds of giving packages: Dharma giving, wealth giving, and fearless giving.
+That makes ten perfections.
+
+Paramita is a transliteration, meaning "to the other shore", and also translated as "degree", and degree means crossing.
+
+The "other shore" means the "nirvana shore" that sentient beings reach after liberation.
+
+These last four paramitas are aspects of the sixth paramita — the paramita of wisdom — and are not added to the first six. The way of dividing the paramitas into ten is particularly related to the teachings on the bhumis which describe the progression of a bodhisattva where each of the paramitas are successively perfected on each of the ten bhumis.
+
+##### 1. Paramita of Generosity
+
+The essence of giving is equanimity. Giving without the spirit of equanimity is not considered real giving, so pay attention to cultivating this kind of mind.
+
+There are three kinds of giving: Dharma giving, wealth giving, and giving protection from fear.
 
 ##### (1) Wealth 
 
-cloth uses wealth to help sentient beings, thereby accumulating his own blessings, food, and wealth giving.
+A Bodhisattva uses wealth, giving food, clothing or money, for example, to help sentient beings, thereby increasing his own merit.
 
-When sentient beings need wealth, we have to give, no matter what the object is, giving will have merit.
+When sentient beings need financial help, we have to give it to them, no matter what the object is. Giving will bring merit.
 
-Some people say that some of the people who ask for money on the street are liars, and there is no merit in giving money to liars.
+Some people say that most of the people who ask for money on the street are liars, and there is no merit in giving money to liars.
 
-It is not right to say that, yes, even if the other party is a liar, as long as we use the heart of equanimity, or the heart of bodhicitta to give, there is still merit.
+It is not right to say that. Even if the other party is a liar, as long as we use the mind of equanimity, or the mind of bodhicitta to give, there is still merit.
 
-Wealth giving includes making offerings to the Three Jewels, giving to the poor, charitable donations, etc.
+Giving Wealth includes making offerings to the Three Jewels, giving to the poor, charitable donations, etc.
 
-Doing wealth and giving is the real meaning of wealth, and it can also accumulate great blessings.
+Giving Wealth is the real meaning of wealth, and it can also accumulate great merit.
 
-For example, if you donate to build a Buddha statue, as long as the Buddha statue exists, it can produce good fortune day, night, and night for as long as possible. Even if the person who donated it dies, but because the Buddha statue is still there, it will accumulate good fortune in the next life. 
+For example, if you donate to the building of a Buddha statue, as long as the Buddha statue exists, it can produce good fortune day and night for a long time. Even if the person who donates it dies, they will accumulate good fortune in the next life, because the Buddha statue will still be there. 
 
-The same goes for monks.
+The same goes for donations made to the Sangha.
 
-When the three masters including Bodowa of Kadampa practiced generosity, one often offered incense and burned incense;
+When the three masters including Potoba of the Kadampa school practiced generosity:
 
-One builds temples, builds, Buddha statues;
+One often gave incense for burning;
 
-The other one often makes offerings to the monks. These are the best three ways to make money and give.
+One builds a temple and builds a statue of Buddha;
 
-Then Master Bodowa said: "Some people's money was burned (offering incense);
+The other one often made offerings to the Sangha. 
+
+These are the  three best ways to give wealth.
+
+Then Master Potoba said: "Some people's money was burned (offering incense);
 
 Some people's money has become a house (built a temple);
 
-My money was put in the mouth of the sambo with teeth (for monks). "
+My money was put in the mouth of the Three Jewels with teeth (for feeding monks). "
 
-This, the Tibetan text of the paragraph sounds very interesting.
+The Tibetan text of this paragraph sounds very interesting.
 
-What the master meant was that the blessings of offering to monks surpassed other blessings, because offering monks had two kinds of merit, virtue, merit of offering and merit of receiving.
+What the master meant was that the merit of offering to monks surpassed other gifts, because offering monks had two kinds of merit: the merit of offering and the merit of receiving.
 
-Although everyone's life is determined by the karma of the previous life, it can be changed in this life.
+Although everyone's life is determined by the karma of previous lives, it can be changed in this life.
 
 221
 
-If you have done a lot of bad karma in the past life, and caused the bad karma in this life, you can change it by doing more generosity in this life and accumulating more blessings.
+If you have created a lot of bad karma in a past life, and committed bad deeds in this life, you can change it by being more generous in this life and accumulating more merit.
 
-Therefore, we should do more good deeds, deeds, and charity.
+Therefore, we should do more good deeds, and give more.
 
-Seeing where there is a disaster, even a small donation is a good donation.
+Wherever we see there is a disaster, even a small donation is a good donation.
 
 ##### (2) Dharma 
 
-Dharma printed scriptures, Dharma books, CD-ROMs printed and taught, and Dharma requests are all Dharma Dharma offerings.
+Dharma printed scriptures, Dharma books, CD-ROMs printed and taught, and Dharma requests are all Dharma offerings.
 
-When you have the ability to preach the scriptures, you can teach the scriptures and spread the Dharma. This is also Dharma giving.
+When you have the ability to teach the scriptures, you can teach the scriptures and give Dharma instruction, giving explanations on the Buddha's teachings. This is also Dharma giving.
 
 When you don't have this ability for the time being, you can also use other methods to practice almsgiving.
 
-For example, in front of you, visualize Sakyamuni, and Buddha Muni's heart emits a white light, welcoming sentient beings in the six realms, and then reciting the Heart Sutra to give them Dharma alms.
+For example, visualize Sakyamuni Buddha in front of you. His heart emits a white light, welcoming sentient beings in the six realms, and then reciting the Heart Sutra to give them the gift of Dharma.
 
-This is done with the practice of visualization, Dharma giving.
+Dharma giving can be done with the practice of visualization.
 
-##### (3) Fearless giving
+##### (3) Giving protection from fear
 
-Fearless giving to sentient beings has all kinds of horrors. To save sentient beings from fear is nothingness, fearless giving, and the result of fearless giving is health and longevity.
+Sentient beings have to live with all kinds of terror. Giving protection from fear is saving sentient beings from fear. The result of protection from fear is health and longevity.
 
-For example, releasing life is fearless giving, and it is the best fearless giving.
+For example, releasing life is the best way of giving protection from fear.
 
-In particular, the release also has three kinds of generosity at the same time.
+In particular, the release also has aspects of the three kinds of generosity at the same time.
 
-When releasing life, you need to chant scriptures and recite the rituals of releasing life, which is Dharma giving.
+When releasing life (fang sheng), you need to chant scriptures and recite the rituals of releasing life, which is giving the Dharma.
 
-When reciting the liberating ritual, it is best to recite the holy names of the Eight Tathagatas, the Thirty-Five Buddhas, and the Eight Great Bodhisattvas, and then recite the mantra of transcendence seven times, especially the names of the Buddhas that cannot be recited.
+When reciting the liberating ritual, it is best to recite the holy names of the Eight Tathagatas, the Thirty-Five Buddhas, and the Eight Great Bodhisattvas, and then recite the mantra of transcendence seven times, especially the Buddha name of the immovable Tathagata.
 
-As long as sentient beings hear the Buddha’s name seven times, they will surely plant the seeds of liberation, they will also be liberated, leave the three evil paths, and obtain the fruit of human and heaven.
+As long as sentient beings hear the Buddha’s name seven times, the seeds of liberation will surely be planted, they will also be liberated, leaving the three evil paths, and obtaining the fruit of heavenly beings.
 
 Then recite the Heart Sutra again, listen to the Heart Sutra, and plant the seeds of 84,000 Dharma-doors, which is very, very extraordinary.
 
-Reciting scriptures is the greatest significance of releasing life, and at the same time, it is also the practice of dharma giving, so it is necessary to recite scriptures when releasing life.
+Reciting scriptures is of the greatest significance in releasing life, and at the same time, it is also the practice of giving dharma, so it is necessary to recite sutras when releasing life.
 
-If the released animals were bought with money, this is the offering of wealth, giving.
+If the released animals were bought with money, this is the giving of wealth.
 
-To release life and save the lives of sentient beings is to give without fear.
+To release life and save the lives of sentient beings is to give protection from fear.
 
-Dedication after the release is also very important, especially if you can return to your own guru or a great accomplished person, you can live in the world forever and turn constantly, the Wheel will have great merit and great blessings.
+Dedication of merit after the release is also very important, especially if you can dedicate yourself to your own guru or to a great siddhi, you can live in the world forever and turn the Wheel constantly. The merit will be great and there will be great blessings.
 
-Performing the three kinds of generosity will get different results.
+Performing each of the three kinds of generosity will bring different results.
 
-If you practice wealth, you will get wealth, if you practice Dharma, you will gain wisdom. If you practice fearlessly, you will live a long and healthy life.
+If you practice giving wealth, you will get wealth, if you practice giving Dharma, you will gain wisdom. If you practice giving protection from fear, you will live a long and healthy life.
 
-##### (4) The Six Right and Six Degrees of Giving 
+##### (4) The Six Principles and Six Degrees of Generosity 
 
-When giving paramitas, it is very important to have the six right and six qualities.
+When practising the Paramitas, it is very important to have the six right and six qualities.
 
 223
 
-The Six Righteousness is righteousness, righteousness of things, righteousness of conduct, righteousness of the main law, righteousness of devotion, and righteousness of purification.
+The Six Principles are right basis, right objects, right conduct, right Dharma, right dedication, and right purification.
 
-The righteousness of reliance is the righteousness of reliance.
+##### 1. Right basis
+
+To do charity with bodhicitta as the starting point is to rely on righteousness.
+
+##### 2. Right Object
 
 The thing is to give without reservation.
 
-When doing righteous giving, it is not for one sentient being, but for all, all sentient beings, that is right conduct.
+##### 3. Right Conduct
 
-No matter what kind of almsgiving you perform, it must penetrate the wisdom of being selfless, no, you must not let go of greed.
+When giving, it is not for one specific sentient being, but for all sentient beings, that is right conduct.
 
-Don't be attached to the wealth you donate, and don't be attached to the Dharma, or the object of the donation.
+##### 4. Right Dharma
+
+No matter what kind of almsgiving you perform, it must be suffused with the wisdom of being selfless. You must let go of greed.
+
+Don't be attached to the wealth you donate, and don't be attached to the  object of the donation.
 
 ##### 5. Dedication of merit
 
-Dedication is dedicating the merit of giving to liberation and becoming a Buddha, which is devotion to right.
-After performing almsgiving, one should not only dedicate "self and family members to health and longevity", but also to "six sentient beings liberated and attained Buddhahood, free from suffering and attained happiness".
+Dedication is dedicating the merit of giving to liberation and becoming a Buddha. This is right dedication.
 
-If the devotion is not right, the merit will be reduced.
+After performing almsgiving, one should not only dedicate the merit for "self and family members for health and longevity", but also for "sentient beings to be liberated and attain Buddhahood, free from suffering and attaining happiness".
 
-For example, if you dedicate merit to your family, if there are five or six people in your family, you will get as much merit.
+If the dedication is not right, the merit will be reduced.
 
-However, if you dedicate your merit to sentient beings in the six realms, there are innumerable sentient beings in the six realms, and the resulting merits are immeasurable, and after devoting the devotion to sentient beings, the merits and virtues obtained by your family members will not decrease.
+For example, if you dedicate merit to your family, if there are five or six people in your family, you will get this much merit.
+
+However, if you dedicate your merit to all sentient beings in the six realms  (there are innumerable sentient beings in the six realms), the resulting merit is immeasurable, and after dedicating the merit to all sentient beings, the merits and virtue obtained by your family members will not decrease.
 
 ##### 6. Purity of giving
 
-To purify the righteousness of giving is to break the obstacles of affliction and knowledge, that is, to purify the righteousness.
+Giving is to break the obstacles of affliction and knowledge, that is, to purify the righteousness.
 
 The above are the six principles of generosity.
 
-The Six Righteousness and Six Degrees of Giving means that when one performs almsgiving, one must possess the Six Righteousness and at the same time possess the Six Degrees of Righteousness.
+The six principles and six degrees of generosity refer to the six virtues while performing generosity.
 
-Six degrees is what we usually call six degrees, that is, six paramitas.
+Six degrees are the six paramitas.
 
-When performing almsgiving, the precepts must be pure, and words and deeds must not be disordered;
+When performing generosity, the precepts must be pure, words and deeds must not be disordered;
 
-It is also necessary to endure humiliation. For example, when releasing a life, if someone does not understand and says three or four, then one must endure the humiliation and not quarrel;
+It is also necessary to endure humiliation. For example, if someone does not understand and make irresponsible remarks during the release, then you must endure the humiliation and not quarrel;
 
-It is necessary to be diligent, to do and let go, to be unstoppable in life, and to be diligent in order to progress;
+It is necessary to be diligent in releasing life without interruption, and only by diligence can progress be made;
 
-You also need to have meditation, at the very least, you must have concentration, so that you can do things completely and successfully;
+You also need to meditate, at the very least you must have concentration, so that you can do things completely and successfully;
 
-There is also need, wisdom, and wisdom to distinguish between dos and don'ts, and to have the ability to solve problems.
+Wisdom is also needed. Wisdom will help you distinguish between what to do and what not to do, and also have the ability to solve problems.
 
 225
 
-Therefore, in order to be able to give consummately, it is necessary to have the six right and six degrees at the same time.
+Therefore, in order to be able to give impeccably, it is necessary to have the six priciples and six degrees at the same time.
 
-The almsgiving with the six perfections and six perfections is Paramita. Without it, the six perfections and six perfections can only be called ordinary dana, not really Paramita.
+Generosity with the six principles and six degrees is the Perfection (Paramita). Without this, it can only be called ordinary generosity and not really perfect.
 
-The six righteousness and six degrees of generosity are very important. When I was cultivating the three monks and Taoism, I forgot to cultivate this part, so I continued to cultivate the next part.
+The six principles and six degrees of generosity are very important. 
 
-In the evening, I had a dream. In the dream, Master Bodowa said to me, "You, there is a part of you that you haven't cultivated."
+When I was cultivating the three aspectss of the path, I forgot to cultivate this part, so I moved on to the next part.
 
-I said, "No, right?" The master said again, "Bu, you forgot about the six perfections and six degrees of Shi."
+In the evening, I had a dream. In the dream, Master Potoba said to me, "There is a part of you that you have not cultivated."
 
-I just remembered.
+I said, "No, that can't be right." 
 
-The same is true when cultivating other paramitas. When keeping the precepts, you should pay attention to the six perfections and six perfections. When practicing forbearance, you also need six perfections and six perfections.
+The master said again, "You forgot about the six perfections and six degrees of generosity."
+
+Just then I remembered.
+
+The same is true when cultivating the other paramitas. When practicing forbearance, you also need six principles and six perfections.
 
 ##### (5) Charity
 
-The dharma door of Mahayana of loving kindness and generosity teaches three kinds of generosity, while the method of Tantric Buddhism teaches four kinds of generosity, and there is one kind of generosity.
+The dharma door of Mahayana of loving kindness and generosity teaches three kinds of generosity, while the method of Tantric Buddhism teaches four kinds of generosity, and there is one additional kind of generosity.
 
-Loving charity is giving, giving loving kindness, and often giving loving kindness to sentient beings in the six realms.
+Charity is giving of loving-kindness often, to sentient beings in the six realms.
 
-First of all, visualize your body as a wish-fulfilling treasure, that is, the wish-fulfilling jewel among the seven treasures of the Wheel King, a kind of treasure that can be obtained by asking for anything, and what can be wished for;
+First of all, visualize your body as a wish-fulfilling treasure, which is the wish-fulfilling jewel among the Seven Treasures of the Wheel King, a treasure that can give you whatever you ask for;
 
-Then, visualize the transformation in the body, and there will be wish-fulfilling treasures in the same amount as sentient beings in the six realms;
+Then visualize the wish-fulfilling treasures in the body that are equal to the six realms of sentient beings;
 
-Then visualize each sentient being and get a wish-fulfilling jewel, and the wish-fulfilling jewel manifests the things that all sentient beings need.
+Then visualize that every sentient being has obtained a wishful jewel, and the wishful jewel manifests the things that all sentient beings need.
 
-Finally, visualize every sentient being as wishful and full of joy. This is charitable giving.
+Finally, visualize every sentient being full of joy at having their wishes fulfilled. This is charitable giving.
 
-##### 2. Perfection of Precepts
+##### 2. Perfection of Moral Discipline
 
-The essence of keeping the Paramita precepts is the heart to renounce evil.
+The essence of the Paramita of Moral Discipline is the mind to renounce evil.
 
-If you don't have the will and consciousness to cut off evil, even if you don't do evil, it's not considered to be keeping the precepts.
+If you don't have the will and consciousness to cut off evil completely, even if you don't do evil, it's not considered to be keeping the precepts.
 
-There are three kinds of precepts: forbidden precepts, precepts of benefiting sentient beings, and precepts of taking good deeds.
+There are three kinds of precepts: the discipline of avoiding negative actions, the discipline of bringing benefit to beings, and the discipline of undertaking positive actions.
 
 ##### (1) Abstinence 
 
-Abstinence refers to what you want to forbid in body, speech, and mind, which will lead to creation.
+Abstinence means that you give up even the slightest unwholesome deed of body, speech or mind which will lead to creation of negative karma.
 
 Wicked words, deeds and thoughts.
 
-There are three prohibitions on the body: killing, stealing, and sexual misconduct.
+There are three prohibitions on the body: no killing, stealing, or sexual misconduct.
 
-There are four taboos in speaking: lying, double tongue, foul speech, and flattering speech.
+There are four proscriptions regarding speech: nolying, divisive speech, harsh words, or gossip.
 
-The mind is the mind, and there are three precepts: greed, hatred, and wrong views.
+The mind is the mind, and the three proscriptions are: greed, hatred, and wrong views.
 
-The precepts of not liberating are all taboos.
+These precepts against unwholesome actions are all proscriptions.
 
-What does the precept of not liberation mean? Most of the precepts stipulated are for liberation. Yes, the root of liberation is called the precept of liberation.
+What does the proscription mean? Most of the pro stipulated are for liberation. Yes, the root of liberation is called the precept of liberation.
 
-Don't liberate the novice in the precepts, the precepts, the monk precepts, the monks' precepts, the five precepts of the lay family, the eight Theravada precepts, and the fasting precepts are all taboos.
+Novice vows, vows for monks and nuns, the five vows of the lay practitioner, the eight Theravada vows, and the fasting precepts are all proscriptions.
 
 227
 
-The five precepts are often observed by family members of the eight-pass fasting, and some people may also be subject to the eight-pass fasting.
-The eight-pass fast is a precept that is very suitable for family members to uphold.
+##### 1. Eight Precepts
 
-It is divided into two types: the eight-pass fast of Hinayana and the eight-pass fast of Mahayana.
+The Five Lay Precepts are often observed by lay practitioners, and some people may also take the Eight Precepts.
 
-The eight-point fasting of Theravada has a specific date of keeping the precepts, on the first, fifteenth, thirty, or some other time of the month.
+The Eight Precepts are a set vows that are very suitable for lay practitioners.
 
-The master decided that at which time the disciples should keep the precepts, and there is no mistake.
+They are divided into two types: the Eight Hinayana Precepts and the Eight Mahayana Precepts.
 
-Generally, it must be held on the eighth and fifteenth day of every month.
+The Eight Hinayana Precepts have specific dates for keeping the precepts: on the first, fifteenth, thirtieth, or some other time of the month.
 
-Mahayana's eight-pass fasting is different from that of Theravada. When taking the precepts for the first time, a teacher needs to pass the precepts. After the precepts are passed, from the second time, you can take precepts by yourself in front of the Buddha statue.
+The master decides at which times the disciples should keep the precepts, and they cannot disobey.
 
-There are eight precepts in the Eight Passes Fasting: Do not kill, do not steal, do not commit sexual misconduct, do not lie, do not drink alcohol, do not eat, do not sleep on high beds, do not sing, dance, and make up.
+Generally, they must be kept on the eighth and fifteenth day of every month.
 
-These eight precepts, when you want to start taking them, you can choose that day to take the precepts.
+The Eight Mahayana Precepts are different from those of Theravada. 
 
-You can decide how long you want to keep the precepts. If you want to take it for a month, you can take it for a month, you can take it for a year, you can take it for a few hours, and you can decide how long you want to take it.
+When taking the vows for the first time, a teacher needs to transmit the precepts. After the precepts are transmitted, from the second time, you can take vows by yourself in front of a Buddha statue.
 
-Not eating after noon means not being able to eat after noon.
+There are eight vows in the Eight Precepts: Do not kill, do not steal, do not commit sexual misconduct, do not lie, do not drink alcohol, abstain from taking food at inappropriate times, abstain from using high or luxurious beds, abstain from entertainments such as dancing, singing, and music, as well as refraining from the use of perfumes, ornaments, and other items used to beautify the person.
+
+The eight precepts are taken for twenty-four hours, with an option to take them again the following day.
+
+You can decide how long you want to keep the precepts. If you want to take them for a month, you can take them for a month, you can take it for a year, you can take it for a few hours, and you can decide how long you want to keep them.
+
+Abstain from taking food at inappropriate times means not being able to eat after noon.
 
 Specifically, the exact time is noon, depending on how long the local day is.
 
 If the day lasts for twelve hours, then after twelve noon it is noon.
 
-Summer days in Tibetan areas are very long. The sun sets at night, at nine o'clock. People usually eat lunch at around two in the afternoon, so noon is considered to be over after two o'clock.
+Summer days in Tibet are very long. The sun sets at nine o'clock at night. People usually eat lunch at around two in the afternoon, so noon is considered to be over after two o'clock.
 
-On the day of keeping the precepts, it is not past noon, but it is not allowed to eat. The Mahayana fasting of the eight stages also requires fasting, and the Hinayana is not necessarily.
+On the day of keeping the vows, it is not allowed to eat past noon. The Eight Mahayana Precepts also requires fasting, but it is not necessarily so in the Hinayana Precepts.
 
-If you don't sleep on a high or wide bed, you cannot sit or sleep on a bed that is too high, too wide, or made of precious material during the period of keeping the precepts.
+Yyou shouldn't sleep on a high or wide bed. you cannot sit or sleep on a bed that is too high, too wide, or made of precious material during the period of keeping the precepts.
 
-The height of the bed should not exceed the forearm, and the material should not be too expensive.
+The height of the bed should not exceed the forearm, and the material should not be too luxurious.
 
-During the eight stages of fasting, they usually lay something on the ground and fall asleep.
+During the Eight Mahayana Precepts, we usually lay something on the ground to sleepon.
 
-Can't sing and dance, wear makeup, but can wash.
+Washing is allowed, but dancing, singing, and music are not.
 
-The eight stages of fasting are very suitable for family members to practice.
+The Eight Mahayana Precepts are very suitable for lay practitioners.
 
-There are two kinds of eight-point fasts. Among the precepts, the Mahayana's eight-point fasting is a common precept for monks and laypeople. Both monks and laypeople can practice it. Some masters even take it in their entire life and keep the Mahayana's eight-point fasting.
+There are two kinds of Eight Precepts. Among the precepts, the Eight Mahayana Precepts are common precepts for both monks and laypeople. Both monks and laypeople can practice them. Some masters even keep them throughout their entire life.
 
-The Eight Precepts of Theravada are the precepts of the home and family, which can be passed on from monks to laymen, but monks cannot do it by themselves.
+The Eight Precepts of Theravada are the vows of the home and family, which can be passed on from monks to laymen, but monks cannot do it by themselves.
 
 If a monk cultivates the precepts of a layman, he will break the precepts of a monk and become a layman.
 
-The eight-pass fasting is very easy to uphold. After taking the precepts, even if you keep the precepts for a day, you will have immeasurable merits, and even an hour will have great merits.
+The Eight Precepts are very easy to keep. After taking the vows, even if you keep the vows for a day, you will have immeasurable merit, and even an hour will bring great merit.
 
-Especially on auspicious days, such as the Buddha's birthday, the day when the Buddha turns the Wheel, or the days when a guru or a great achiever is born or passed away, these days are more blessed, and it is more extraordinary to accept and uphold the eight precepts.
+Especially on auspicious days, such as the Buddha's birthday, the day when the Buddha turned the Wheel, or the days when a guru or a great achiever was born or passed away, these days are more blessed, and it is more extraordinary to accept and keep the eight precepts.
 
-During the eclipse of the sun and the moon, if you practice the eight-point fasting, your merit will also increase very, very fast.
+During an eclipse of the sun or the moon, if you practice the Eight Precepts, your merit will also increase very, very quickly.
 
-If the lunar eclipse lasts for an hour, in this hour, if you practice diligently and keep the precepts, your merit will increase one hundred thousand times;
+If the lunar eclipse lasts for an hour, in this hour, if you practice diligently and keep the vows, your merit will increase one hundred thousand times;
 
-When a solar eclipse is more severe and powerful, the merit will increase by a million times, because when a solar or lunar eclipse occurs, the body's central veins will open a little more than usual, so the increase in merit will be bigger.
+A solar eclipse is more severe and powerful, the merit will increase by a million times, because when a solar or lunar eclipse occurs, the body's central channel will open a little more than usual, so the increase in merit will be greater.
 
-In retreating practice, you will gain some special merits and wisdom, and thus produce some very special convenient methods.
+In retreat, you gain some special merit and wisdom, and thus produce some very special expediant methods.
 
-Manjusri Bodhisattva has a special pea wisdom method, because during the solar eclipse, the merit and virtue increase very fast, so during the solar eclipse, hold a pea or pea in the mouth, and recite the Manjushri mantra all the time. If the faith is strong enough If it is big, if you read it to the end, the peas in your mouth will sprout, and if you eat it, you will grow in wisdom.
+Manjusri Bodhisattva has a special bean of wisdom method, because merit and virtue increase very fast during the solar eclipse. So during the solar eclipse, hold a dried bean or pea in the mouth, and recite the Manjushri mantra continuosly. If the faith is strong enough, and you recite it to the end, the bean in your mouth will sprout, and if you eat it you will grow in wisdom.
 
-There are many similar methods. When practicing the methods of breathing, increasing, and cherishing, especially the method of cultivating love, when you practice during a solar eclipse, a lunar eclipse, or during auspicious days, the achievement will be faster.
+There are many similar methods. When practicing the breathing techniques, increasing, and embracing, especially the method of cultivating love. When you practice during a solar eclipse, a lunar eclipse, or on auspicious days, the achievement will be faster.
 
-##### (2) Benefiting sentient beings and precepts of benefiting sentient beings are the precepts of benefiting sentient beings. There are eleven rules:
+##### (2) Benefitting sentient beings 
 
-Give help to those in need, and help those in need.
-For example, if we need financial help, if we have the financial ability, we must help each other financially;
+There are eleven rules:
+
+##### 1. Give help to those in need
+
+Those who study Buddhism need to help sentient beings in need.
+
+For example, for those who need financial help, if we have the financial ability, we must help each other financially;
 
 When someone else is ill, they need to pay to help him.
 
@@ -7291,121 +7323,150 @@ Help anyone who needs help.
 
 During the puja, there will be many people in need of help. At this time, it is very good to be able to do volunteer work, and the merit will be great. Even if you don't participate in the practice, you can still get the merit of the puja.
 
-Applying skillful methods to ignorant beings, ignorant beings refer to those who do not understand cause and effect, and who do not distinguish between black and white.
-For those who don't know how to be a human being, we should skillfully talk about some ways to be a human being.
+##### 2. Apply skillful means to ignorant beings
 
-For example, tell him, "Be upright, have a large heart, a large amount, and a peaceful mind.
+Ignorant beings refer to those who do not understand cause and effect, and who do not distinguish between black and white.
+For those who don't know how to be a human being, we should skillfully talk about some ways to be more human.
+
+For example, say to them, "Be a man of integrity, be generous, and be peaceful.
 
 Be filial to your parents, respect the elderly, and take care of the people and children around you. "
 
-And so on like a man, the truth.
+And so on about how to behave.
 
-For those who do not understand Buddhism and Dharma, you can teach them the benefits of Dharma, for example, reciting the Four Refuges can accumulate blessings, make money, etc., so that they can be introduced into Buddhism.
+For those who do not understand Buddhism and the Dharma, you can teach them the benefits of Dharma. For example, reciting the Four Refuges can accumulate merit, make money, etc., so that they can be introduced into Buddhism.
 
-Applying skillful methods to ignorant beings is also a precept.
+Applying skillful means to ignorant beings is also a precept.
 
-To cultivate the bodhisattva way, these are the myriad actions of the bodhisattva, the actions of the bodhisattva, and they are all things we should do.
+To train in the Bodhisattva way, these are the myriad actions of the Bodhisattva, and they are all things we should do ourselves.
 
 231
 
-Those who have kindness to repay their kindness to themselves should repay their kindness doubled.
+##### 3. Repaying Kindness
+
+Those who have shown kindness to us should have double their kindness repaid to them.
+
 This is also the principle of being a human being in the world. If you are ungrateful, you are not even qualified to be an ordinary person, how can you cultivate the Bodhisattva Way and save sentient beings.
 
-For those who encounter fear, help to eliminate fear. For example, if someone is afraid of ghosts, tell him not to be afraid, and then teach him to recite the mantras that can exorcise demons, such as King Matou Mingwang and Vajra King Kong, or recite the Heart Sutra.
-To comfort and teach him these methods, in order to eliminate his fears.
+##### 4. Help those in fear to eliminate fear
 
-When someone is attacked by snakes, wolves and other animals, they must also act decisively to save them.
+For example, if someone is afraid of ghosts, tell him not to be afraid, and then teach him to recite the mantras that can exorcise demons, such as Hayagriva and Ucchusma, or recite the Heart Sutra.
 
-Do whatever is beneficial to sentient beings. This is the behavior of a bodhisattva.
+Comfort him and teach him these methods, in order to eliminate his fears.
 
-There was a Geshe named Santuo who saw that someone was stealing his own things, and his disciples were going to stop him. He said, "Leave him alone, let him take it if he needs it."
+When someone is attacked by snakes, wolves and other animals, we must also act decisively to save them.
 
-Then Geshe Santuo made a vow: "He took my things, which means that he has a fate with me. After I become a Buddha, the first one will save him."
+Do whatever is beneficial to sentient beings. This is the behavior of a Bodhisattva.
+
+There was a Geshe named Santuo who saw that someone was stealing his things, and his disciples were going to stop him. He said, "Leave him alone, let him take it if he needs it."
+
+Then Geshe Santuo made a vow: "He took my things, which means that he has a karmic connection with me. After I become a Buddha, he will be the first one I save."
 
 All things that are beneficial to all beings must be done, and all beings must not be feared.
 
-If someone stole something from us, we would immediately shout, "Ah, someone stole something!" Even though it was wrong for him to steal something, doing so would scare him.
+If someone steals something from us, we would immediately shout, "Ah, someone stole something!" 
 
-A real Bodhisattva would be like Geshe Shen and Tuo, who would use skillful methods to stop and educate him.
+Even though it was wrong for him to steal something, doing so would scare him.
 
-No matter what kind of fear sentient beings have, those who practice the Bodhisattva path should help them, and all sentient beings will be eliminated.
+A real Bodhisattva would be like Geshe ShenTuo, who would use skillful methods to stop and educate him.
 
-For those who are in grief to help relieve their grief, we must help and relieve their grief.
-For example, if one knows that a certain sentient being is uncomfortable and acts, the Bodhisattva Taoist will help him resolve this state of mind.
+No matter what kind of fear sentient beings have, those who practice the Bodhisattva path should help them, and all sentient beings fears will be eliminated.
 
-To those who are poor and to those who have a very difficult life, they must do their best to give, to them.
+##### 5. Help those who are in distress to relieve their distress
+
+If other people are sad and depressed, we need to help them to relieve their sadness.
+
+For example, those who know that a certain person is uncomfortable and follow the Bodhisattva Way should help him to resolve this mentality.
+
+##### 6. Give to the poor
+
+To those who are poor and to those who have a very difficult life, we must do our best to give to them.
+
+##### 7. Room and board for those who have nowhere to live
 
 Food and lodging should be given to those who have nowhere to live.
 
 Those who have the ability to build houses and tents should try their best to accommodate them. This is also the behavior of the Bodhisattva.
 
-Now, there are many places in China that are building houses for the poor. This is the Bodhisattva action of the leaders of the country, and it is a very great good deed.
+There are many places in China that are building houses for the poor. This is the Bodhisattva action of the leaders of the country, and it is a very great good deed.
 
-To be obedient means not to be too stubborn, to be obedient as much as possible without endangering others, not violating or breaking the precepts, and to make the people happy.
+##### 8. Obey those who should be obeyed
 
-Those who should be encouraged should give encouragement and those who should be encouraged should encourage each other a lot.
+To be obedient means not to be too stubborn, to be obedient as far as possible without endangering others, not violating or breaking the precepts, and to make people happy.
 
-In learning, we must encourage, and in work, study, and cultivation, we must also encourage. This is also what people who practice the Bodhisattva way should do.
+##### 9. Encourage where needed
 
-Those who should be punished should be punished. Those who should be punished should be punished.
-How to punish it? Curse those who should be scolded, and hit those who should be beaten, but no, it can be mixed with hatred, or else the precepts will be broken.
+To those who need to be encouraged we should give encouragement and those who should be encouraged should encourage each other a lot.
 
-In the monastery, if the monk's precepts are not clean, the monastery will punish him or expel him.
+In learning, we must encourage each other, and in work, study, and cultivation, we must also encourage others. This is also what people who practice the Bodhisattva way should do.
 
-In many monasteries in Tibetan areas, monks who break the precepts seriously will be expelled. Generally, they will be punished to do prostrations and worship.
+##### 10. Those who desrve punishment should be punished
 
-In fact, any punishment is a way of accumulating blessings.
+What kind of punishment? Curse those who should be scolded, and hit those who should be beaten. No, it can be mixed with hatred, and the vowsagainst harming others will be broken.
 
-The essence of punishment is to save people. On the one hand, it is to prevent continued evil, and on the other hand, it is to accumulate blessings.
+In the monastery, if a monk's precepts are not clean, the monastery will punish him or expel him.
 
-Those who need to use supernatural powers to subdue use supernatural powers. For some sentient beings who need to be subdued, if there is no other way, the only way is to use supernatural powers to subdue them, and they can show supernatural powers.
-For example, it is not necessary to show supernatural powers at will.
+In many monasteries in Tibet, monks who break the precepts seriously will be expelled. Generally, they will be punished by having to do prostrations and obeisance.
 
-There is a kind of demon called the Devil of the Son of Heaven, who likes to trick people with supernatural powers. For example, if practitioners often talk about supernatural powers and show supernatural powers, they will be tricked and calculated by the Devil of the Son of Heaven, and hinder their achievement.
+In fact, any punishment is a way of accumulating merit.
 
-When Tianzi Demon sees people who like to show off their gods, they will seduce them, sometimes making them rich, sometimes making them predict things accurately, and sometimes making them embarrassed. will become more and more obsessed with magic.
+The essence of punishment is to save people. On the one hand, it is to prevent continued evil, and on the other hand, it is to accumulate merit.
 
-In the end, the people around these people are smoky, and they are getting worse and worse in all aspects, the discipline is getting worse, the compassion is getting worse, the behavior is getting worse, and eventually they will go to hell.
+##### 11. Those who need to use supernatural powers to subdue use supernatural powers
 
-If a cultivator is below the Eighth Earth Bodhisattva, the Demon of the Son of Heaven will come to obstruct him, and when he reaches the Eighth Earth, the Demon of the Son of Heaven will not come.
+For some sentient beings who need to be subdued, if there is no other way, the only way is to use supernatural powers to subdue them, and it is permitted to use supernatural powers.
 
-Many people like to get supernatural powers, and also like to cultivate supernatural powers.
+If there is no need to do so, you can't show your supernatural powers at will.
+
+There is a  demon called Mara, who likes to trick people with supernatural powers. For example, if practitioners often talk about supernatural powers and show supernatural powers, they will be tricked and confused by Mara, and it will hinder their achievement.
+
+When Mara sees people who like to show off their powers, he will seduce them, sometimes making them rich, sometimes making them predict things accurately, and sometimes making them embarrassed. They will become more and more obsessed with magic.
+
+In the end, the people around these people are suffocating, they are getting worse and worse in all aspects, their discipline is getting worse, their compassion is getting worse, their behavior is getting worse, and eventually they will go to hell.
+
+If a cultivator is below the level  of a Bodhisattva of the Eighth Bhumi, Mara will come to obstruct him, but if he has reache the Eighth Bhumi, Mara will not come near him.
+
+Many people want to have supernatural powers, and also want to practice them.
 
 In fact, there is nothing special about supernatural powers. Once you have reached a certain level of cultivation, you will naturally have supernatural powers when you attain certain achievements.
 
 If you don't reach that level, the pursuit of supernatural powers and the acquisition of supernatural powers will be a curse.
 
-Very, it is easy to go crazy, become crooked, and become evil.
+It is veryeasy to go crazy, become crooked, and become evil.
 
 Therefore, Master Tsongkhapa said that showing supernatural powers at will is a breach of precepts. You cannot show supernatural powers easily, but only when you have to.
 
-The Mahavira Hall of Drepung Monastery is also called auspicious multi-door. Why is it called this name, what is it? In the past, when Master Tsongkhapa talked about emptiness in Drepung Monastery, thousands of his disciples realized emptiness. , After realizing emptiness, it will remove some karmic obstacles and be able to pass through certain obstacles, for example, to pass through walls.
+The Mahavira Hall of Drepung Monastery is also called auspicious multi-door.
 
-Therefore, in the morning class, many masters who went to the Mahavira Hall did not go through the main entrance, but got in from all sides, as if there were one door everywhere, so it was called auspicious multi-door.
+Why is it called this? In the past, when Master Tsongkhapa talked about emptiness in Drepung Monastery, thousands of his disciples realized emptiness. After realizing emptiness, some karmic obstacles were removed and they were able to pass through certain obstacles, for example, to pass through walls.
 
-Later, an old man came to worship the Buddha. At this time, a monk got out of the Buddha statue and scared the old man.
+Therefore, in the morning class, many masters who went to the Mahavira Hall did not go through the main entrance, but came in from all sides, as if there were doors everywhere, so it was called auspicious multi-door.
 
-From then on, Master Tsongkhapa set the rules, not to be chaotic, to show supernatural powers, and to go through the main door, if you don't go to the main door, you are breaking the precepts.
+Later, an old man came to worship the Buddha. At this time, a monk came out through the Buddha statue and scared the old man.
+
+From then on, Master Tsongkhapa set the rules, not to be chaotic, not to show supernatural powers, and to come in through the main door, if not, you are breaking the precepts.
 
 These are the precepts for benefiting all living beings.
 
-##### (3) What are the Dharma Precepts of Preserving Goodness? 
+##### (3) Precepts of Virtue
 
-Doing all good deeds is regarded as a precept, a discipline, which is called the precept of good deeds.
+What are the Dharma Precepts of Preserving Virtue? 
 
-The Dharma Precepts of Receiving Good include the good precepts and the Bodhisattva Precepts among the six paramitas.
+Doing wholesome deeds is regarded as a precept, a discipline, which is called the precept of Preserving Virtue.
 
-For example, the precepts of monks, tantric precepts, and bodhisattva precepts, etc., all belong to the precepts of the good law.
+The Precepts of Preserving Virtue include the good precepts and the Bodhisattva vows among the six paramitas.
+
+For example, the vows of monks, tantric vows, and bodhisattva vows, etc., all belong to the precepts for Preserving Virtue.
 
 As for the precepts of monks, the precepts of monks cannot be taught to them before they become monks;
 
-As for the tantric vows, before receiving empowerment, some tantric vows can be preached, but most of them cannot be taught.
+As for the tantric vows, before receiving empowerment, some tantric vows can be taught, but most of them cannot.
 
-Regarding the Bodhisattva Precepts, there is a little difference between the Bodhisattva Precepts in Tibetan Buddhism and those in Chinese.
+Regarding the Bodhisattva Vows, there is a little difference between the Bodhisattva Vows in Tibetan Buddhism and those in Chinese.
 
 There are eighteen fundamental precepts in Tibetan Bodhisattva Precepts. The main thing is to cultivate the fundamental precepts. The fundamental precepts must be pure.
 
-Before taking the bodhisattva precepts, you can speak and learn.
+Before taking the bodhisattva vows, you can study and learn.
 
 When you want to take the precepts, you must yourself, you must think clearly, if you can keep the precepts cleanly after taking the precepts, then you can take the Bodhisattva precepts again.
 
@@ -7413,28 +7474,34 @@ The following is a detailed explanation of the Bodhisattva Precepts in Tibetan B
 
 Tibetan Buddhism Bodhisattva Precepts, 
 
-(1) Self-praise and destroy him in order to gain the offerings and respect of others. If a person often praises himself, he will easily lie, and also, it will damage other merits, and even go crazy.
+(1) Praising oneself or belittling others due to attachment to receiving material offerings, praise and respect.
+
+If a person often praises himself, he will easily lie, and also, it will damage other merits, and even go crazy.
 Therefore, self-praise has become a commandment.
 
 The reason to destroy him is to gain support and respect from him and others. However, if you fabricate someone else's fault and make him bear his sins, it is also called destroying him, such as wrongfully accusing others of breaking precepts.
 
 This kind of self-praise done in order to gain the offerings and respect of others, and destroying others, is a serious breach of the bodhisattva precepts, and a general degree is not considered a breach of precepts.
 
-(2) If you do not give gifts, you know that the other party is helpless and needs help, but because of stinginess or other reasons, you do not give dharma or wealth, even if you break this precept.
+(2) Not giving material aid or (due to miserliness) not teaching the Dharma to those who are suffering and without a protector.
+
+If you do not give gifts, you know that the other party is helpless and needs help, but because of stinginess or other reasons, you do not give dharma or wealth, even if you break this precept.
 
 If it is because of lack of time and other reasons, it is not considered a fundamental precept for breaking this precept.
 
-(3) Do not listen to repentance. For some reason, when the other party repents and apologizes, those who take the Bodhisattva precepts must understand.
+(3) Not listening to others' apologies or striking others.
 
-If you do not forgive because you hold grudges, you are breaking this precept.
+Those who take the Bodhisattva precepts must understand.
+
+If you do not forgive because you hold a grudge, you are breaking this precept.
 
 If you don't hold grudges, just for the sake of face, etc., you don't have to violate this precept.
 
-(4) Abandoning the Mahayana teachings and abandoning the Mahayana expedient and wisdom of the perfect harmony method, even if you violate this precept.
+(4) Abandoning the Mahayana by saying that Mahayana texts are not the words of Buddha or teaching what appears to be the Dharma but is not.
 
 A single method of abandoning Mahayana expedients or wisdom is not counted, and this precept is violated.
 
-(5) To seize the wealth of the Three Jewels is to seize the wealth of the Three Jewels of Buddha, Dharma and Sangha.
+(5) Taking things belonging to the Buddha, Dharma or Sangha.
 
 Stealing the offerings in front of the Buddha is the wealth of stealing the Buddha's treasure;
 
@@ -7454,7 +7521,7 @@ As stated in the tantric Essays:
 
 Tathagata's leftovers are used to eliminate karma.
 
-##### (6) Disparaging the Dharma 
+##### (6) Abandoning the holy Dharma by saying that texts which teach the three vehicles are not the Buddha's word. 
 
 slandered the Theravada people's selfless wisdom and the thirty-seven dharmas of the convenient and harmonious method, the Mahayana wisdom of emptiness and compassion, and other convenient and perfect methods, the method of fusion, the tantric emptiness and the unique wisdom and harmony. The four great joys are convenient for the Dharma door of perfection and harmony, and slandering any kind of Dharma door of perfection and harmony is a violation of this, precept.
 
@@ -7478,7 +7545,7 @@ Many masters have afflictions. His wrong words and deeds are caused by afflictio
 
 In addition, the sin of slandering the Buddhadharma is very, very serious, and it will cause extremely severe pain. We must pay attention to it, be especially careful.
 
-(7) Taking the cassock is the act of taking away the cassock of a family member.
+(7) With anger depriving ordained ones of their robes, beating and imprisoning them or causing them to lose their ordination even if they have impure morality, for example, by saying that being ordained is useless.
 
 This phenomenon is almost gone now. In the past, when the Buddha was alive, some outsiders saw Buddhist monks and went to grab the monks' robes.
 
@@ -7486,25 +7553,27 @@ In the past, some poor people in India saw the cassocks worn by monks, and they 
 
 ##### (8) Five inexpiable sins 
 
-The five inexpiable sins are killing the father, mother, an Arhat, breaking the harmony, merging with the Sangha, and spitting out the blood of the Buddha's body with disgust.
+Committing any of the five extremely negative actions: (1) killing one's mother, (2) killing one's father, (3) killing an arhat, (4) intentionally drawing blood from a Buddha or (5) causing schism in the Sangha community by supporting and spreading sectarian views.
 
 If you commit the five inexpiable sins, you will have broken this precept.
 
 ##### (9) Wrong view 
 
-Wrong view refers to not believing in cause and effect, rebirth, and the Three Jewels. Of these three, any one of the wrong views violates this precept.
+Holding distorted views (which are contrary to the teaching of Buddha, such as denying the existence of the Three Jewels or the law of cause and effect etc.)
+
+Of these three, any one of the wrong views violates this precept.
 
 Other wrong views are generally inverted concepts, for example, what is originally good is regarded as bad, and what is bad is regarded as good;
 
 What originally exists thinks it does not exist, does not exist, and what exists thinks it exists, etc.
 
-##### (10) Destruction of a village, etc. 
+##### (10) Destroying towns, villages, cities or large areas by means such as fire, bombs, pollution or black magic.
 
 Destroying the living place of more than four households is a ruined village. Doing so will break this precept. As for other people's residences, if we are able, we must do our best to help them build and maintain them without destroying them.
 
 If there is demolition, it is reasonable and lawful to help him relocate, comfort him with kind words, and resettle him well.
 
-##### (11) Showing emptiness to immaturity 
+##### (11) Teaching emptiness to those whose minds are unprepared.
 
 If you know that someone is an immature root of emptiness, it is still true. He preaches emptiness, which makes him suspicious of the Three Jewels.
 
@@ -7530,13 +7599,15 @@ Therefore, after Venerable Atisha learned about Tibet, he said, "Oh, ah, like Ti
 
 Indians can't do it. Talk to them about emptiness and form. He will use his own 'intelligence' to analyze it. If he can't analyze it, he falls into stubborn emptiness. "
 
-##### (12) After persuading someone from Bodhi to learn and practice Mahayana Buddhism, if they say to them: "Becoming a Buddha is very difficult, it takes a long time, and you need to practice many dharmas.
+##### (12) Causing those who have entered the Mahayana to turn away from working for the full enlightenment of Buddhahood and encouraging them to work merely for their own liberation from suffering.
+
+if they say to them: "Becoming a Buddha is very difficult, it takes a long time, and you need to practice many dharmas.
 
 I think you do it, just practice the Theravada method and become an Arhat. "
 
 Similar to this, this kind of talk belongs to persuading others to retreat from the heart of attaining Mahayana Bodhi, and thus breaking the Bodhisattva Precepts.
 
-##### (13) Abandoning the precepts of renunciation and liberation. 
+##### (13) Causing others to abandon their Prātimokṣa vows. 
 
 Some people who have studied Mahayana, look down on the lesser vehicles, abandon and abandon the precepts of renunciation and liberation, and they have violated this precept.
 
@@ -7544,27 +7615,27 @@ As a monk, one must cultivate the Bodhisattva vows on the basis of the monk's pr
 
 243
 
-##### (14) To slander the voice-hearers 
+##### (14) Belittling the Śrāvakayāna or Pratyekabuddhayāna (by holding and causing others to hold the view that these vehicles do not abandon attachment and other delusions). 
 
-To slander the voice-hearers is to slander the Arhats and cannot get rid of the afflictions such as greed, and deny the realization of the Hinayana.
+To slander the voice-hearers is to say the Arhats cannot get rid of the afflictions such as greed, and deny the realization of the Hinayana.
 
 Yes, people say that an Arhat does not cut off his afflictions, that his ability and compassion are not perfect, etc., etc., saying that this Arhat is not good, that Arhat is not good, these are all slandering the voice-hearers.
 
-##### (15) False talk 
+##### (15) Falsely stating that oneself has realised profound emptiness and that if others meditate as one has, they will realize emptiness and become as great and as highly realized as oneself. 
 
 The false talk here refers to the teaching of the Dharma of the Supreme Being, which refers to the self-proclaimed enlightened person in order to seek, gain fame and gain, as mentioned earlier.
 
-##### (16) Taking the treasures of the Three Jewels
+##### (16) Taking gifts from others who were encouraged to give you things originally intended as offerings to the Three Jewels. Not giving things to the Three Jewels that others have given you to give to them, or accepting property stolen from the Three Jewels.
 
- refers to the powerful people who rely on power to extort the wealth and things of the Three Jewels.
+Refers to the powerful people who rely on power to extort the wealth and things of the Three Jewels.
 
 Including the property of the Sangha, the monks from the four directions, the pagoda and the temple, and the personal property of the monks.
 
-##### (17) The monks who have the power to control evil precepts formulate a system to distribute the property owned and deserved by monks who retreat, practice, and meditate to others, and monks break the precepts.
+##### (17) Causing those engaged in calm-abiding meditation to give it up by giving their belongings to those who are merely reciting texts or making bad disciplinary rules which cause a spiritual community not to be harmonious.
 
 Lay people make use of their power to prescribe doing certain kinds of bad deeds as precepts, such as asking to do something to kill a living being, etc., which also belong to the precepts for restraining evil, but they are not precepts for restraining evil.
 
-##### (18) When the bodhicitta of renunciation of vows encounters obstacles, and the bodhicitta of renunciation of vows is abandoned, it is a violation of the bodhisattva and precepts.
+##### (18) Abandoning either of the two types of bodhicitta (aspiring and engaging).
 
 After attaining bodhicitta, one should always pay attention to cultivating bodhichitta, and no matter what hardships are encountered, never give up bodhicitta.
 
