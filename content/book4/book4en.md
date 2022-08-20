@@ -7759,194 +7759,216 @@ After breakfast, I went to listen to the master again and lectured on the script
 
 After listening, I have to read a book when I come back, and then rush to lunch, because I have to debate the scriptures after dinner, and I have to do evening classes after the debates.
 
-At the very least, this kind of life will last for more than 20 years. For more than 20 years, I have to be so diligent, enterprising, and practice Dharma forbearance every day.
+At the very least, this kind of life will last for more than 20 years. For more than 20 years, I have to be so diligent, hard-working, and practice patience every day.
 
 We studied at the Ta'er Monastery when we were young, and in order to save time, we would make breakfast for several days at a time.
 
 In the past, the conditions were very poor, there was no frying oil, and when making fried noodles, we just boiled it in water.
 
-In the morning, while eating and reading, we do not speak for almost the whole day, and it is even more impossible to ask the teacher if there is a problem, and then listen to the scriptures and debate the scriptures.
+In the morning, while eating and reading, we did not speak for almost the whole day, and it is even more impossible to ask the teacher if there is a question, and then listen to the scriptures and debate the scriptures.
 
 In this way, after living for three years, I hardly had time to communicate with other people, I just studied hard.
 
 Three years later, one of my masters said, "It's too hard for you to be like this. You can relax and talk to others, and you will understand a lot of things."
 
-Only then did I slowly relax. During the process of cultivating and learning, I was cultivating forbearance at the same time.
+Only then did I slowly relax. During the process of cultivating and learning, I was cultivating patience at the same time.
 
-Once you have cultivated the Dharma to a certain level of forbearance, you will naturally be very happy. It may seem like a lot of hard work to others, but in fact you are very happy.
+Once you have cultivated patience to a certain level, you will naturally be very happy. It may seem like a lot of hard work to others, but in fact you are very happy.
 
-##### 4. Diligent Paramita
+##### 4. Paramita of Diligence
 
-The desire for good karma, the yearning for good deeds, and the enterprising mind is diligence.
+The mind that yearns for progress towards good karma and good deeds is diligence.
 
-Jing, Jin is the heart that is aggressive towards good karma and good deeds, and the heart that yearns for things that are good or bad or evil. It is not called diligence.
+This paramita is the enlightened quality of energy, vigour, vitality, endurance, diligence, enthusiasm, continuous and persistent effort. To practice the first three paramitas of generosity, virtuous conduct, and patience in the face of difficulties, we need this paramita of joyous effort and perseverance.
 
-For example, some people who are still in this world are very dedicated to their careers, which can only be called hard-work, not diligence.
+Diligence is the heart that is aggressive towards good karma and good deeds. The heart that yearns for things that are good or bad or evil is not called diligence.
 
-There are three types of diligence: armoured diligence, diligence in acquiring goodness, diligence in benefiting others, and diligence in producing.
+For example, some people very dedicated to their worldly careers, which can only be called hard-work, not diligence.
 
-##### (1) When wearing armor and diligently doing good deeds, doing good deeds, or learning and cultivating the Dharma, just like a soldier wearing armor on the battlefield, he is not afraid of dangers and injuries, and he moves forward bravely to break all obstacles. Such diligence is called diligence in armor.
+There are three types of diligence: armour-like diligence, diligence in action, and insatiable (or unstoppable) diligence in producing benefit for others.
 
-##### (2) Harmony Diligence 
+##### (1) Armour-like Diligence
 
-Diligently practising on the six paramitas is called Harmony Diligence.
+When doing good deeds or learning the Buddhadharma, just like a soldier in armor on the battlefield, he is not afraid of danger and injury, and he moves forward bravely to break all obstacles. Such diligence is called diligence in armor.
 
-##### (3) Benefiting sentient beings 
+##### (2) Harmonious Diligence 
 
-making progress to benefit sentient beings is a precept, and diligence in the aspect of benefiting sentient beings means making progress for the benefit of sentient beings.
+Diligently practising on the six paramitas is called Harmonious Diligence.
+
+##### (3) Diligence in producing benefit for others 
+
+Diligence in the aspect of benefiting sentient beings means making progress for the benefit of sentient beings.
 
 Diligence eliminates laziness and at the same time prevents evil.
 
-When studying and diligently practicing paramita, one should start from the view of impermanence.
+When studying and diligently practicing the perfection of diligence, one should start from the view of impermanence.
 
 If you understand the principle of impermanence, and the concept of the impermanence of life  arises in your heart, you will naturally be diligent.
 
 ##### 5. Meditation Paramita 
 
-There are many ways to practice meditation Paramita.
+There are many ways to practice  the Paramita of Meditation.
 
-The Middle Path talks about precepts, and Hui Shi has talked a lot about this, and I will add it here.
+The path of the Middle Scope talks a lot about morality, concentration, and wisdom, and I will add it here..
 
 ##### (1) Types of Meditation 
 
 There are many kinds of meditation, which can be simply divided into three types according to the function of meditation: 
 
-Meditation for the benefit of all living beings, Meditation for physical and mental well-being, and Meditation for cultivating merit.
+Meditation for the benefit of all living beings, 
 
-##### (2) The sufficiency of Meditation
+Meditation for physical and mental well-being
 
- to practice meditation requires a certain amount of resources. If you don’t have the resources to practice, you will not be able to get meditation for hundreds of years. It is very important to have the resources to practice meditation.
+Meditation for accumulating merit.
 
-The scriptures say:
+##### (2) Resources for Meditation
+
+Practicing meditation requires a certain amount of resources. If you don’t have the resources to practice, you will not be able to meditate for hundreds of years. It is very important to have the resources to practice meditation.
+
+The sutras say:
 
 There are many ways to cultivate resources, the fundamental thing is to purify the precepts
 
-Keep your mind and body quiet from chores, and stick to the Four Sunnahs in your life.
+Keep your mind and body free from distraction, and stick to the Four Truths in your life.
 
-That is to say, the most important sustenance for meditating is: the precepts are pure, pure, away from chores, and satisfying the four holy practices.
+That is to say, the most important resources for meditating are: the purity of precepts, freedom from distraction, and satisfying the Four Dhyanas.
 
-Purity of Vows 
+##### 1. Purity of Precepts 
 
-You may have noticed that many parts of the San Shi Dao mention that precepts must be pure, because precepts are the foundation of all merit, and it is no exception to meditation, and it is more important.
+You may have noticed that many parts of the Three Aspects of the Path mention that precepts must be pure, because precepts are the foundation of all merit, and meditation is no exception, and it is even more important.
+
 To practice meditation is to eliminate all kinds of distractions inside and outside the body and mind.
 
-If you want to put an end to the subtle distractions of the mind, you must first get rid of the gross distractions of the body and mouth.
+If you want to put an end to the subtle distractions of the mind, you must first get rid of the gross distractions of the body and speech.
 
-The precepts are pure, that is, to use the precepts to cover up the evil deeds of the body and mouth, so as to cut off the gross distractions created by the body and mouth.
+The precepts are pure, that is, to use the precepts to eliminate the evil deeds of the body and speech, so as to cut off the gross distractions created by the body and mouth.
 
-Keep away from chores 
+##### 2. Free from distraction 
 
-During the meditation practice, the body, speech, and mind must stay away from chores, and it is especially required that the body must stay away from chores.
-Keeping the body away from chores means that the body cannot be involved in too many things, energy.
+During meditation practice, the body, speech, and mind must remain undistracted, and especially the body must be free of distraction.
+Keeping the body free of distraction means that the body cannot be involved in too many things.
 
-In addition, doing things like predicting fate, doing calendar calculations, and watching Feng Shui, these things are difficult to settle down, and it is even more necessary to stay away from them.
+Doing things like predicting someone's fate, doing calendar calculations, and performing Feng Shui, will make it difficult for the mind to settle down, and it is even more necessary to stay undistracted.
 
-Keeping the mind away from chores means that the mind should not have distracting thoughts, but keep quiet.
+Keeping the mind free of distraction means that the mind should not have distracting thoughts, but keep quiet.
 
-Four Sunnahs 
+##### 3. The Four Dhyanas
 
-##### (1) Food and drink must be adequately prepared when practicing meditation.
+##### (1) Food for meditation.
 
-It is not required to have a good diet, as long as it can satisfy food and clothing, and there should be no excessive requirements for diet.
+When meditating, you need to prepare enough food.
 
-##### (2) Clothes should meet the needs of clothing and should be prepared adequately.
+It is not required to have a lot of food, as long as it can satisfy hunger and thirst, and there should be no excessive requirements for diet.
 
-In the process of meditation, it is generally necessary to retreat for a period of time. If, due to changing seasons and other reasons, one finds that the clothes are not adequately prepared, and has to go out to prepare clothes, it will disrupt the meditation.
+##### (2) Clothes for meditation
 
-##### (3) Choose a quiet place to live in a place that satisfies you when you meditate.
+Adequate clothing should also be prepared in advance.
 
-In a house with no sound for four or four weeks, concentrate on meditating.
+In the process of meditating, it is generally necessary to retreat for a period of time. If you find that the clothes are not suitable due to changing seasons and other reasons, and you have to go out to prepare clothes, it will disrupt the meditation.
 
-In the city, yes, but too noisy around is not suitable.
+##### (3) Location for meditate
 
-In addition, before the meditation practice is successful, try not to change it as much as possible. Changing the place of residence and moving from place to place will also become an obstacle to the practice of meditation.
+Choose a quiet place to live in a place that satisfies you when you meditate.
+
+In a quiet house with no sound for four weeks, concentrate on meditating.
+
+It's ok in the city, but it's not suitable if the surrounding is too noisy.
+
+In addition, until the meditation practice is successful, try as far as possible not to change the place of residence. Moving from place to place will also become an obstacle to the practice of meditation.
 
 ##### (4) The body and mind like tranquility. 
 
-The mind and body like tranquility means to get rid of greed and other evil thoughts, no greed for profit and nourishment.
+To love tranquility in body and mind means to get rid of greed and other evil thoughts and don't be greedy for profit.
 
-Coveting the enjoyment of the five desires will not only affect the practice of meditation, but will also destroy other virtues.
+Craving the enjoyment of the five desires will not only affect the practice of meditation, but will also destroy other virtues.
 
-Thinking of impermanence can counteract this. It is very important that the mind and body like tranquility.
+Thinking of impermanence can counteract this kind of thinking, and it is important that the mind and body enjoy tranquility.
 
-Generally speaking, if you want to practice meditation, you need to find a house with a clean environment, quiet, and basic living conditions such as water, electricity, clothing and food.
+Generally speaking, if you want to practice meditation, you need to find a quiet house with a clean environment, and basic amenities such as water, electricity, clothing and food.
 
 In the past, Master Pabongka had many disciples. He said to his disciples, "Do you want to practice meditation? I can provide the conditions for meditation and concentration."
 
-Then, a Mongolian lama said, "I think, practise meditation."
+Then, a Mongolian lama said, "I want
+to practise meditation."
 
-This lama was not even a Geshe in the three monasteries at that time, yes, just an ordinary monk.
+This lama was not even a Geshe in the three monasteries at that time, just an ordinary monk.
 
-Master Pabongka taught him the method of meditation, and provided the conditions, places, and places for meditation.
+Master Pabongka taught him the method of meditation, and provided the conditions and place for meditation.
 
-He practiced earnestly, and finally attained meditation.
+He practiced earnestly, and finally attained samadhi.
 
-After he achieved meditation, Master Pabongka taught meditation later, and he often took him by his side to demonstrate the breathing of meditation, etc. After that, everyone came to see and learn.
+After he achieved samadhi, whenever Master Pabongka taught meditation, he often took him by his side to demonstrate the breathing techniques of meditation, etc. After that, everyone came to see and learn.
 
 ##### (3) How to practice meditation
 
-The method of practising meditation 
+##### 1. The method of practising meditation 
 
-The way, the method of practising meditation has already been discussed in the Taoist Taoism when he talked about precepts, concentration and wisdom, and I will simply repeat it here.
+The way, or the method of practising meditation has already been discussed in the Path of the Middle Scope when we talked about precepts, concentration and wisdom, and I will simply repeat it here.
 
 First choose an object of meditation.
 
 We generally take the Buddha as the object of meditation, which is to visualize the sitting Buddha Sakyamuni.
 
-It is the size of a thumb or a pea or a bean, and the minimum size is not less than a grain of rice. Choose a good location, and then keep your mind fixed on it.
+He is the size of a thumb or a pea or a bean, and the minimum size is not less than a grain of rice. Choose a good object, and then keep your mind fixed on it.
 
-When breathing, the breath in the nostrils has different sizes. At the beginning, you can't distinguish it during the practice. As the mind becomes more and more calm, you can gradually feel the thickness and size of the breath.
+When breathing, the breath in the nostrils has different qualities. At the beginning, you can't distinguish it during the practice. As the mind becomes more and more calm, you can gradually feel the thickness and quality of the breath.
 
 When the mind is truly still, the breathe becomes very even.
 
-Then, as the mind stays in concentration, the breath gradually becomes smaller and smaller.
+Then, as the mind stays in concentration, the breath gradually becomes lighter and lighter.
 
-When one truly attains meditation, the breath will be gone. People are alive, but the breath will be gone.
+When one truly attains meditation, the breath will be gone. You are alive, but the breath will be gone.
 
 When practicing meditation, you must focus on it, and don't do other things, not even in morning and evening classes.
 
-After getting up in the morning, recite the Heart Sutra three times to eliminate the demons, and then make offerings to the seven branches, and then practice meditation.
+After getting up in the morning, recite the Heart Sutra three times to eliminate demons, and then make the seven branch offerings, and then practice meditation.
 
-With uninterrupted concentration and practice, meditation can be achieved in six months.
+With uninterrupted concentration and practice, meditation can be mastered in six months.
 
-If you practice stagnation and stagnation, although your mind is still and relatively pure, you will not be able to achieve true meditation.
+If your practice proceeds by fits and starts, although your mind is still and relatively pure, you won't be able to get true dhyana.
 
-It's like rubbing wood to make a fire. Always grind it for a while and then put it down. It won't start a fire. That's the truth.
+It's like rubbing sticks together to make a fire. If you always rub them for a while and then put it down, t won't start a fire. That's what we mean here.
 
 Once the meditation practice is successful, you can enter it at any time.
 
-After entering meditation, you can exit meditation by making a wish.
+After entering samadhi, you can come out by making a wish.
 
 For example, if you want to meditate for an hour, just make a wish: "I want to meditate for an hour."
 
-You can get out of meditation after an hour, this is meditation.
+You will come out of meditation after an hour. Meditation is like this.
 
-##### 2. Five Faults and Eight Elements in Meditation 
+##### 2. Five Faults and Eight Antidotes in Meditation 
 
-In the process of practising meditation, one has to experience five faults and eight lines.
-The five faults refer to the five faults that will occur during the practice process, and the eight elements are the eight methods to counteract these five faults.
+In the process of practising meditation, one has to experience five faults and eight antidotes.
 
-(1) Wu Guo 
+The five faults refer to the five faults that will occur during the practice process, and the eight antidotes are the eight methods to counteract these five faults.
 
-said in the "Discrimination of the Middle and Borders":
+##### (1) The five faults 
+
+In "Distinguishing the Middle Way from
+the Extremes" says:
 
 257
 
-Relying on the causes of the eight elements, eliminate the five faults.
+>
+>Abandoning the five faults, relying on the eight applications which arise from the cause.
+>
+>Laziness, forgetting the oral instructions, stupor and excitement,
+>
+>under-reacting and over-reacting are described as the five faults.
+>
 
-Slackening and forgetting the professor, drowsy and lethargic,
+##### 1) Laziness
 
-Not doing what you do is for five faults.
-
-1) Laziness and lethargy will not achieve meditation.
+Laziness and lethargy will not achieve meditation.
 
 The first of the five mistakes is not to be lazy.
 
-2) Forgetting teachers 
+##### 2) Forgetting the instruction
 
 Forgetting the methods and objects of visualization, forgetting to meditate, methods and tips taught by masters, etc., all belong to forgetting teachers.
 
-3) Drowsiness 
+##### 3) Agitation and dullness
 
 refers to the drowsy mind or the restless mind that occurs during meditation. These two types are obstacles to the mind.
 
@@ -7954,9 +7976,13 @@ When drowsiness arises, the mind becomes weary;
 
 When it arises, it falls, and the mind becomes chaotic, and the mind cannot be settled in one place.
 
-4) When the failure to do something sinks, because of understanding or other reasons, you do not take it and take the remedy. This is a fault.
+##### 4) Non-application
 
-5) It is also a fault to practice antidote when the behavior does not sink.
+When the failure to do something sinks, because of understanding or other reasons, you do not take it and take the remedy. This is a fault.
+
+##### 5) Over-application
+
+It is also a fault to practice antidote when the behavior does not sink.
 
 There are nine abiding minds in the practice of meditation, that is, to experience the nine levels of abiding, the experience of the mind, only then can meditation be achieved.
 
