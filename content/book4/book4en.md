@@ -669,9 +669,9 @@ Everyone was very happy and said: "Come in and stay in my house." "
 
 When the door was about to be closed, the ugly woman steps up and says, "Don't close the door, I'll come in too, she's a lucky girl, I'm an unlucky woman, and I'm inseparable from the lucky girl.
 
-Lucky women are like wealth, and unlucky women are like disasters. If you have wealth, there will be disasters. When people have no blessings, wealth is a disaster.
+Lucky women are like wealth, and unlucky women are like disasters. If you have wealth, there will be disasters. When people have no merit, wealth is a disaster.
 
-Therefore, wealth without blessings is a disaster, and there is no fortune. If you have money, you will definitely get sick or have other problems.
+Therefore, wealth without merit is a disaster, and there is no fortune. If you have money, you will definitely get sick or have other problems.
 
 15
 
@@ -1277,7 +1277,7 @@ Before death, the heavenly beings are like corpses that make people fearful and 
 
 When there are no signs of death, everyone plays together every day. If the signs of death appear, other heavenly being will keep far away from him, because the body is very smelly, and other heavenly beings can't stand it.
 
-Some relatives and friends may pick up a few flowers from a branch, put them on his head, and say, "May you be born in this world after your death, and come to see us after accumulating blessings!" There will be no other expressions. There is no way to help him, only to let him die there in pain.
+Some relatives and friends may pick up a few flowers from a branch, put them on his head, and say, "May you be born in this world after your death, and come to see us after accumulating merit!" There will be no other expressions. There is no way to help him, only to let him die there in pain.
 
 What is even more painful is that the celestial beings are called "those who know the three worlds", that is to say, after the celestial beings are born, they will know why they were born and became celestial beings;
 
@@ -1303,7 +1303,7 @@ Since the heavenly beings know in advance where they will go in the next life, a
 
 When we human beings die, most people do not know the next life, whether it will be good or bad, and they pass away in confusion, so the pain and anxiety are not so intense.
 
-In addition, the blessings of the gods are not all the same. If the blessings are small, the gods will panic and fear when they see great power and benefit. The gods with great blessings often oppress the gods with lesser blessings.
+In addition, the merit of the gods are not all the same. If the merit are small, the gods will panic and fear when they see great power and benefit. The gods with great merit often oppress the gods with lesser merit.
 
 The light from the body of gods with great merit is very strong, and the light from the body of gods with lesser merit is relatively weak. When the two meet, the pressure on the gods with lesser merit is very, very large, and the gods with lesser merit will be driven away from their dwelling places and suffer great pain and sorrow.
 
@@ -1353,7 +1353,7 @@ and they will still fall from there.
 
 Therefore, it is not good to be reborn as a god. Many people think that it is a good thing to be a god. In fact, it is a big loss to be a god.
 
-Just keep consuming the blessings, not accumulating Reward;
+Just keep consuming the merit, not accumulating Reward;
 
 40
 
@@ -1518,7 +1518,7 @@ Sometimes there is also anger towards inanimate objects, such as getting angry a
 
 Among all the afflictions, hatred is the worst kind, and it is the main culprit that destroys the good roots and leads into the three evil realms.
 
-When hatred arises, it is like oil on fire, and there is no time to stop it. Every act of hatred can destroy the good virtues and blessings of many kalpas. The fault is extremely serious.
+When hatred arises, it is like oil on fire, and there is no time to stop it. Every act of hatred can destroy the good virtues and merit of many kalpas. The fault is extremely serious.
 
 Most of the murders, and fights in the world are caused by hatred. It even starts wars, causing ever more sentient beings to lose their lives.
 
@@ -1660,7 +1660,7 @@ Good or evil, the karma is not bad at all, if you stole in a past life, you will
 
 If you recite a lot of Manjushri mantras, you will be able to see Manjushri in person.
 
-However, even if you can see me, I can't make you no rich, I can only teach you to sell the coral and make offerings to the monks, your blessings will increase, and naturally someone will come to support you. "
+However, even if you can see me, I can't make you no rich, I can only teach you to sell the coral and make offerings to the monks, your merit will increase, and naturally someone will come to support you. "
 
 A master who can see Manjushri is so poor that he can't eat, and then he is full of three meals. How can this happen? It is because the merits are different. Master Zunzhi Sanger has the merit of practicing the Dharma, but not the reward of abundance.
 
@@ -1690,7 +1690,7 @@ There are also some kind people whose karma in the previous life made them poor 
 
 On the contrary, after the evil retribution of many wicked people is revealed, they lose the chance to be saved.
 
-Some people have done bad things, but they live very comfortably. This is because of the blessings of their past lives. Although they have done a lot of bad things in this life, the blessings of their past lives are great and have not been exhausted. If you can continue to maintain it, you will fall into the evil path after the blessings are exhausted.
+Some people have done bad things, but they live very comfortably. This is because of the merit of their past lives. Although they have done a lot of bad things in this life, the merit of their past lives are great and have not been exhausted. If you can continue to maintain it, you will fall into the evil path after the merit are exhausted.
 
 So, no, you can doubt and misunderstand cause and effect, cause and effect are inconceivable, not so easy and easy to understand.
 
@@ -2106,7 +2106,7 @@ To save is to be stingy.
 
 Saving is formed by greed, but saving and greed are also different.
 
-Covetousness means wanting more. Covetous people do not necessarily save money. Covetous people only hope that their wealth will continue to increase. However, when others have needs, they may give, give, or even take the initiative to give because of greed for merit and blessings.
+Covetousness means wanting more. Covetous people do not necessarily save money. Covetous people only hope that their wealth will continue to increase. However, when others have needs, they may give, give, or even take the initiative to give because of greed for merit and merit.
 
 To save is to have and be reluctant to give it to others. Those who save are bound to be greedy, because those who save are reluctant to give up anything, and even their own property is reluctant to use it for themselves, let alone share it with others.
 
@@ -2210,7 +2210,7 @@ Now, we have understood that getting sick is due to our own karma, and no one ca
 
 Therefore, it cannot be said that if you study the Buddhist scriptures and recite the scriptures, you will be guaranteed not to get sick.
 
-However, studying Buddhism and reciting sutras will eliminate karma and increase blessings. Yes, it is of great help in curing diseases.
+However, studying Buddhism and reciting sutras will eliminate karma and increase merit. Yes, it is of great help in curing diseases.
 
 Moreover, if you persist in studying Buddhism and reciting sutras, your karma will be eliminated, and your illness will be cured.
 
@@ -2263,7 +2263,7 @@ For example, seeing someone very happy after a relapse, I am very eager and go, 
 
 "Yes, thinking, this kind of mentality is called letting go.
 
-Because you don't care about anything, if you don't do the good things you should do, you won't be able to increase your good deeds and blessings.
+Because you don't care about anything, if you don't do the good things you should do, you won't be able to increase your good deeds and merit.
 
 Do not care about the afflictions and karma of the antidote, do not control it, and let words and deeds be driven by greed, hatred, and delusion.
 
@@ -2506,7 +2506,7 @@ Refers to those who will hinder our practice, not necessarily really bad people.
 
 For example, people who like to eat and drink and argue, etc., are all bad friends.
 
-The words and deeds of evil friends are easy to cause confusion, or make people reappear in the world, the blessings are less than the practice;
+The words and deeds of evil friends are easy to cause confusion, or make people reappear in the world, the merit are less than the practice;
 
 Or cause people to fall into troubles that could have been avoided, unable to extricate themselves, or even relapse.
 
@@ -2631,7 +2631,7 @@ The karma created by greed is not necessarily bad karma. For example, greed, lib
 
 The predestined relationship of death is not the same for all living beings.
 
-Some are caused by the exhaustion of life, some are caused by the exhaustion of blessings, and some are caused by obstacles.
+Some are caused by the exhaustion of life, some are caused by the exhaustion of merit, and some are caused by obstacles.
 
 There are many causes of human death, including death from illness, death due to disasters, death due to demonic obstacles, and so on.
 
@@ -2676,7 +2676,7 @@ Generally speaking, a peaceful demeanor at death is a good omen.
 
 90
 
-But some people create karma in their lifetime, but die very peacefully. It is very likely that they have exhausted their blessings in life and life. After the blessings are exhausted, only karma is left, so they will definitely go to hell after death.
+But some people create karma in their lifetime, but die very peacefully. It is very likely that they have exhausted their merit in life and life. After the merit are exhausted, only karma is left, so they will definitely go to hell after death.
 
 ##### (3) Precautions before and after death
 
@@ -2696,7 +2696,7 @@ At this time, you can use the "Diamond Sutra" or "The Way of Bodhi, the Extensiv
 
 In the past, there was a monk who broke the precepts in Labrang Monastery. When he died, his body temperature became cold from the upper part of his body, and he showed signs of falling into evil and Taoism.
 
-Rako Rinpoche used "The Broad Treatise on the Stages of the Path of Bodhi", patted the top of his head, and his body temperature turned upside down, and he was reborn in a good path. The blessings of Dharma and power were truly incredible.
+Rako Rinpoche used "The Broad Treatise on the Stages of the Path of Bodhi", patted the top of his head, and his body temperature turned upside down, and he was reborn in a good path. The merit of Dharma and power were truly incredible.
 
 Therefore, if a person dies, he should immediately use the "Guangdong Theory on the Stages of the Path of Bodhi" or "Diamond Sutra" to knock three times on the top of the deceased's head, and then he can move his body, and don't move before he strikes.
 
@@ -2732,7 +2732,7 @@ The body is a light body of consciousness, not wisdom, a light body of wisdom.
 
 There are five supernatural powers that can traverse obstacles.
 
-Except for India, the Vajra seat where Bodhgaya Buddha attained enlightenment, or other Buddha statues with great blessings, as well as his own mother's womb, all of them can pass through without hindrance.
+Except for India, the Vajra seat where Bodhgaya Buddha attained enlightenment, or other Buddha statues with great merit, as well as his own mother's womb, all of them can pass through without hindrance.
 
 The bardo body to be reborn in the Pure Land is golden;
 
@@ -2782,7 +2782,7 @@ The sound you hear is also more terrifying, and you will hear the sounds of the 
 
 Or at the end of the robbery, the sound of the explosion of the universe, the sound of the fire of the fire destroying all things in the universe, the sound of the wind, the sound of breaking the universe, the sound of the flood of cement and gravel washing the universe, etc., will feel very frightening.
 
-However, for those who have great blessings or who did good deeds during their lifetime, when they enter the bardo, it is different. It is like entering heaven, and what they hear and see is wonderful.
+However, for those who have great merit or who did good deeds during their lifetime, when they enter the bardo, it is different. It is like entering heaven, and what they hear and see is wonderful.
 
 94
 
@@ -2896,7 +2896,7 @@ There are five paths:
 
 ##### (1) Path of Accumulation
 
-In order to achieve liberation, it is necessary to accumulate a lot of resources and blessings. 
+In order to achieve liberation, it is necessary to accumulate a lot of resources and merit. 
 
 This stage is called the path of accumulation.
 
@@ -3146,7 +3146,7 @@ Only after attaining Buddhahood is the true path of non-learning. At this time, 
 
 107
 
-After all the obstacles of vexation and knowledge are cut off, from the perspective of accumulating blessings, in terms of degrees, the blessings are complete;
+After all the obstacles of vexation and knowledge are cut off, from the perspective of accumulating merit, in terms of degrees, the merit are complete;
 
 From the perspective of wisdom, wisdom is round and full;
 
@@ -3312,15 +3312,15 @@ Whoever observes a good precept day and night when the good Dharma is destroyed 
 
 That is to say, if a person makes offerings, such as food, umbrellas, banners, lamps, etc., to the Buddhas and Tathagatas devoutly during the ages of kalpas as many as the number of sands in the Ganges, this kind of merit must be very, great.
 
-But there is a kind of merit that is even greater than this, that is, in the era of the end of the Dharma when the Buddhist Dharma is destroyed, if you keep a single precept day and night, your blessings will exceed the former.
+But there is a kind of merit that is even greater than this, that is, in the era of the end of the Dharma when the Buddhist Dharma is destroyed, if you keep a single precept day and night, your merit will exceed the former.
 
 113
 
 At the end of the Dharma period, if someone can really practice hard and become liberated, he will be very fast, and he will become a Buddha very fast.
 
-Because liberation is achieved during this period, there are many causes and conditions for liberation, and it is relatively easy to accumulate blessings.
+Because liberation is achieved during this period, there are many causes and conditions for liberation, and it is relatively easy to accumulate merit.
 
-Every stimuli from the outside world, every affliction of oneself, every encounter, and debtor, if one can deal with it with bodhicitta, it is an opportunity to accumulate blessings and eliminate karmic obstacles.
+Every stimuli from the outside world, every affliction of oneself, every encounter, and debtor, if one can deal with it with bodhicitta, it is an opportunity to accumulate merit and eliminate karmic obstacles.
 
 The bodhisattvas in the Land of Ultimate Bliss saw this, so they vowed to be reborn in our southern Zhanbu continent.
 
@@ -3427,7 +3427,7 @@ In the past, high-level outsiders all had meditation. When they practiced medita
 
 If you use these for concentration, you can get concentration, but this kind of concentration is not good for you.
 
-We also have to choose an object of meditation, and what can we use to do it so that we can not only get meditation, but also increase the blessings? We choose Buddhas and Bodhisattvas as the center.
+We also have to choose an object of meditation, and what can we use to do it so that we can not only get meditation, but also increase the merit? We choose Buddhas and Bodhisattvas as the center.
 
 117
 
@@ -3455,7 +3455,7 @@ First of all, we must grasp the whole of the Buddha's body. The Shakyamuni Buddh
 
 The body is golden-yellow, with the right hand stamped on the ground, and the left hand holding the bowl, which is filled with nectar.
 
-When practising meditation, the Buddha must be in a sitting posture, so that Dependent Origination will be better. Although visualizing a standing Buddha, there are also blessings, but the Dependent Origination of meditation is not so good.
+When practising meditation, the Buddha must be in a sitting posture, so that Dependent Origination will be better. Although visualizing a standing Buddha, there are also merit, but the Dependent Origination of meditation is not so good.
 
 After visualizing the outline of the Buddha's body clearly, visualize each part.
 
@@ -3864,7 +3864,7 @@ Therefore, an Arhat, once entered into meditation, will stay in it for a long ti
 
 At this time, if someone asks for help, the Arhat cannot hear it.
 
-When an Arhat does not enter the time, with the power of his vows and the power of blessings, sentient beings will naturally receive some kind of help and some kind of blessing.
+When an Arhat does not enter the time, with the power of his vows and the power of merit, sentient beings will naturally receive some kind of help and some kind of blessing.
 
 After the Buddha passed away, a king in India was very sad when he heard the news of the Buddha's passing away. The Buddha's eldest disciple, Venerable Kasyapa, came to see the king.
 
@@ -3938,7 +3938,7 @@ Afterwards, he went on to practice the Shido, with the goal of attaining Buddhah
 
 After attaining Buddhahood, the hindrances of knowledge are broken again;
 
-At the same time, when wisdom, blessings, and abilities are all consummated, the conditions for saving sentient beings are met.
+At the same time, when wisdom, merit, and abilities are all consummated, the conditions for saving sentient beings are met.
 
 In addition, in terms of the fruition of the practice, compared with the Buddhahood of the Mahayana, the Arhatship of Theravada is not perfect.
 
@@ -3950,7 +3950,7 @@ Since the karmic obstacles are not exhausted, in the stage of residual nirvana, 
 
 Moreover, after completing the Hinayana path of liberation, one must eventually enter the Mahayana path. In this way, it is better to enter the Mahayana path all at once.
 
-More importantly, it is very, very difficult to meet the Mahayana gate, and it is possible to have enough blessings.
+More importantly, it is very, very difficult to meet the Mahayana gate, and it is possible to have enough merit.
 
 In the "Opening Verse" it says:
 
@@ -3966,7 +3966,7 @@ In the "Opening Verse" it says:
 
 ---
 
-What The Training for Excellent Individuals talks about is the Dharma door. It is a door that can only be encountered after going through hundreds of thousands of kalpas. It requires great blessings.
+What The Training for Excellent Individuals talks about is the Dharma door. It is a door that can only be encountered after going through hundreds of thousands of kalpas. It requires great merit.
 
 In the previous life, one must make offerings to the guru's Three Jewels, get close to the guru, and have heard the Mahayana teachings and Dharma. Only such people can have the opportunity to meet the Mahayana door.
 
@@ -3980,7 +3980,7 @@ Ten Paramitas;
 
 Four shots.
 
-What we need to deal with is the hindrance of knowledge, so we must cultivate both blessings and wisdom.
+What we need to deal with is the hindrance of knowledge, so we must cultivate both merit and wisdom.
 
 What we need to know is that all sentient beings in the six realms are our own fathers and mothers, even if they are not in this life, but in previous lives, such as the previous life, the previous life, and so on, they were all very kind to us.
 
@@ -4020,7 +4020,7 @@ The present bodhicitta is false bodhicitta, also known as artificial bodhichitta
 
 When talking about bodhicitta, we must first understand the merits and benefits of bodhicitta.
 
-From the moment when a practitioner develops Bodhicitta, he can be called a Bodhisattva, a Sagittarius, or a son of Buddha. He will continue to receive the blessings of the Buddhas and Tathagatas, and obtain and achieve numerous extraordinary merits and benefits.
+From the moment when a practitioner develops Bodhicitta, he can be called a Bodhisattva, a Sagittarius, or a son of Buddha. He will continue to receive the merit of the Buddhas and Tathagatas, and obtain and achieve numerous extraordinary merits and benefits.
 
 ##### (1) Entering the Mahayana door
 
@@ -4048,7 +4048,7 @@ Since the Bodhisattva of the Seventh Bhumi, he has surpassed Arhats in wisdom.
 
 ##### (4) Receive the merit of Buddhas
 
-After receiving the blessings of the Buddhas and Tathagatas and attaining bodhicitta, one can quickly practice and become a Buddha, and it is difficult to achieve bodhicitta.
+After receiving the merit of the Buddhas and Tathagatas and attaining bodhicitta, one can quickly practice and become a Buddha, and it is difficult to achieve bodhicitta.
 
 The energy of bodhicitta is very great. If one cultivates bodhicitta, the thrones of all Buddhas and Tathagatas will vibrate. If they see the practitioner who has aroused bodhicitta, they will immediately come to bless him.
 
@@ -4056,7 +4056,7 @@ Nagarjuna Bodhisattva quoted the sutra in "The Essence of Mahayana Treasures" an
 
 Because the Bodhisattva is the successor of the Buddhas and Tathagatas, the sons of the Buddhas, and the Buddhas, the Tathagatas will continue to bless him, just like a child sitting in a carriage, his father and mother love him and will pull the carriage.
 
-##### (5) Accumulating blessings day and night 
+##### (5) Accumulating merit day and night 
 
 and sending bodhicitta is the most excellent way to accumulate merit.
 
@@ -4066,7 +4066,7 @@ Exhaust the two grains,
 
 point gold and stones, 
 
-and gather blessings in the boundless sea of ​​goodness.
+and gather merit in the boundless sea of ​​goodness.
 
 All the masters of the Buddha see and know, 
 
@@ -4090,9 +4090,9 @@ and are accepting and upholding that heart.
 
 That is to say, from that time on, in sleep or relaxation, the meritorious power is constant, and the quantity and so on are produced in emptiness.
 
-After receiving the Bodhisattva Precepts and attaining Bodhicitta, the blessings continue to increase day and night.
+After receiving the Bodhisattva Precepts and attaining Bodhicitta, the merit continue to increase day and night.
 
-Even in sleep or in relaxation, there will be blessings as great as emptiness.
+Even in sleep or in relaxation, there will be merit as great as emptiness.
 
 ##### (6) Elimination of karmic obstacles 
 
@@ -4168,7 +4168,7 @@ One day, wolves began to eat sheep again, and some people said that maybe the ma
 
 ##### （8）Not disturbed by obstacles
 
-After developing bodhicitta undisturbed by obstacles, in addition to receiving the blessings and upholdings of the Buddhas and Tathagatas, you will also receive offerings and respect from the earth gods, dragons, and heavenly protectors.
+After developing bodhicitta undisturbed by obstacles, in addition to receiving the merit and upholdings of the Buddhas and Tathagatas, you will also receive offerings and respect from the earth gods, dragons, and heavenly protectors.
 
 From the day of attaining bodhicitta, one will receive the protection of the Dharma protector.
 
@@ -4193,7 +4193,7 @@ However, after developing Bodhicitta, it will not harm sentient beings.
 
 Everyone thinks that becoming a Buddha is difficult, but it is not.
 
-If you get bodhicitta, it will be very easy to accumulate blessings and eliminate karmic obstacles, and you will become a Buddha very quickly, so it is not difficult to become a Buddha.
+If you get bodhicitta, it will be very easy to accumulate merit and eliminate karmic obstacles, and you will become a Buddha very quickly, so it is not difficult to become a Buddha.
 
 Where is the difficulty? The most difficult thing is to achieve impermanence in life, to observe, and then to obtain renunciation, and then to obtain bodhicitta.
 
@@ -5947,7 +5947,7 @@ We should always recite this, the rituals, when Master Zhu Kangwa sees everyone,
 
 When giving tantric empowerments, this ritual is usually used to pass the bodhisattva vows.
 
-There is also a great ritual for developing bodhicitta. It is relatively long and requires a lot of offerings. Then, follow the master to learn to develop bodhi and mind. Frequently reciting this ritual can accumulate great blessings.
+There is also a great ritual for developing bodhicitta. It is relatively long and requires a lot of offerings. Then, follow the master to learn to develop bodhi and mind. Frequently reciting this ritual can accumulate great merit.
 
 The above mentioned are the rituals of cultivating bodhicitta. There are two ways to truly generate bodhichitta: the seven-factor cause and effect to generate bodhichitta, the exchange from others, and the bodhichitta.
 
@@ -6028,7 +6028,7 @@ First, it will be more difficult at the beginning. You can ask for the blessing 
 
 When some karmic obstacles have disappeared, there will be a feeling: when you see an ant, you will feel that you are a mother, and when you see a mosquito, you will also feel that it must be a mother, and you will have such a mentality and feeling.
 
-There is a great siddhis named Shangpa Rinpoche. His achievements are very, very high. When he preaches the Three Ways, because of his blessing power, a small or small house can accommodate 3,000 people, and the blessing power is very large.
+There is a great siddhis named Shangpa Rinpoche. His achievements are very, very high. When he teaches the Three Ways, because of his blessing power, a small or small house can accommodate 3,000 people, and the blessing power is very large.
 
 Every spring and autumn, Shangpa Rinpoche would lecture on the Three Ways, and every time he lectured, he would say: "Those who sincerely practice Mahayana Buddhism must first recognize that all sentient beings are mothers, and they must make great efforts in this regard.
 
@@ -6161,7 +6161,7 @@ The master's mother wrote him a letter saying, "My child, I want to see you."
 
 She cut off a lock of white hair and sent it to Tsongkhapa, Master.
 
-Master Tsongkhapa has been preaching the Dharma in Tibet. At that time, he was at the peak of his teaching career. He taught a lot of sutras every day.
+Master Tsongkhapa has been teaching the Dharma in Tibet. At that time, he was at the peak of his teaching career. He taught a lot of sutras every day.
 
 After seeing his mother's letter, Master Tsongkhapa said: "Mother's kindness is the greatest kindness. Since I can't go back, I will paint a Thangka to accompany me, mother."
 
@@ -6194,7 +6194,7 @@ Great compassion for all the Buddhas, seeing all as oneself,
 
 Since the living Buddha is of the same body, why not respect all living beings?
 
-That is to say, the Buddha sees all living beings as he sees himself. Since all living beings are of the same nature as the Buddha, why not respect all living beings the same way as respecting the Buddha? Respecting the Buddha will bring blessings, and treating all living beings with respect will also give birth and bring blessings. .
+That is to say, the Buddha sees all living beings as he sees himself. Since all living beings are of the same nature as the Buddha, why not respect all living beings the same way as respecting the Buddha? Respecting the Buddha will bring merit, and treating all living beings with respect will also give birth and bring merit. .
 
 Therefore, we should treat the six realms and sentient beings as we treat our mothers, and do our best to honor them.
 
@@ -6204,7 +6204,7 @@ Moreover, we must realize that the material help in this world can only temporar
 
 Therefore, we should think: "I want to make one, all sentient beings become Buddhas as soon as possible!" To achieve this, we must first become Buddhas, and to become Buddhas, we must first obtain Bodhicitta.
 
-If there is really no way to help sentient beings, when we see poor sentient beings, we will recite a few six-character mantras, and then return the blessings to them.
+If there is really no way to help sentient beings, when we see poor sentient beings, we will recite a few six-character mantras, and then return the merit to them.
 
 Doing this regularly will also help develop compassion.
 
@@ -6292,7 +6292,7 @@ If you are unable to liberate,
 
 This means that if someone gives three hundred jars of food and drink to sentient beings three times a day, the merit is of course very, very great, but no, the merit of cultivating loving-kindness in an instant.
 
-Cultivating kindness and love can also gain people's blessings, such as God's protection, comfort and joy, avoiding the poison of swords and soldiers, doing things without hard work, you can achieve success through hard work, and reincarnating Brahma in future generations.
+Cultivating kindness and love can also gain people's merit, such as God's protection, comfort and joy, avoiding the poison of swords and soldiers, doing things without hard work, you can achieve success through hard work, and reincarnating Brahma in future generations.
 
 Even if you don't have this life, you can get liberated, and you will get the benefits of the eight great virtues of loving kindness.
 
@@ -6559,7 +6559,7 @@ Not to mention guiding sentient beings in the six realms, right now, he doesn't 
 
 Think again, just think, who has this ability? There are no Arhats, no ordinary Bodhisattva, no Sagittarius, and no Bodhisattva who has reached the ground. Only Buddhas have this ability.
 
-Because the Buddha's ability is the greatest, the wisdom is the greatest, the blessings and retribution are the greatest, and the great compassion is also the greatest.
+Because the Buddha's ability is the greatest, the wisdom is the greatest, the merit and retribution are the greatest, and the great compassion is also the greatest.
 
 With these conditions and conditions, it is possible to save sentient beings in the six realms.
 
@@ -6653,7 +6653,7 @@ Because Shakyamuni Buddha is a supreme incarnation, his retinue includes both Ma
 
 The Buddha's Sambhogakaya does not speak the Theravada scriptures.
 
-Ordinary people don't even have the predestined fate and blessings to see the extraordinary incarnation, let alone the retribution body of a Buddha, so the Buddha turned into an ordinary person, and incarnates to teach and transform sentient beings.
+Ordinary people don't even have the predestined fate and merit to see the extraordinary incarnation, let alone the retribution body of a Buddha, so the Buddha turned into an ordinary person, and incarnates to teach and transform sentient beings.
 
 What is an ordinary incarnation? That is to say, some sentient beings cannot see the Buddha's extraordinary incarnation. The Buddha just looks at these sentient beings and accepts whatever appearance they can accept, and transforms that appearance to save them.
 
@@ -6663,7 +6663,7 @@ At this time, Manjushri Bodhisattva came to rescue him, but even if Manjusri Bod
 
 As a result, Manjushri turned into a monkey, which is reasonable.
 
-However, it is not enough to transform into a big, strong monkey. His blessings are not enough, but he can't accept it, so he can only transform into a weaker monkey, so that he will not be afraid when he sees it.
+However, it is not enough to transform into a big, strong monkey. His merit are not enough, but he can't accept it, so he can only transform into a weaker monkey, so that he will not be afraid when he sees it.
 
 Then, he saw this every day, monkeys crawling around in the hole.
 
@@ -6705,9 +6705,9 @@ Talent, Master Qin has achieved this in his life.
 
 Master Caiqin eventually became a great siddha, but in the process of his practice, he could not see or recognize the appearance of the Dakini Buddha.
 
-Therefore, Buddhas and Bodhisattvas are everywhere. If our karma is light and our blessings are enough, we will see Buddhas and Bodhisattvas everywhere around us.
+Therefore, Buddhas and Bodhisattvas are everywhere. If our karma is light and our merit are enough, we will see Buddhas and Bodhisattvas everywhere around us.
 
-Now, our karma is very heavy. When the Buddha and Bodhisattva appear, it may be a mosquito or a cockroach. With our blessings, we can only see these.
+Now, our karma is very heavy. When the Buddha and Bodhisattva appear, it may be a mosquito or a cockroach. With our merit, we can only see these.
 
 When Buddhas and Bodhisattvas save sentient beings, they can have countless manifestations, thoughts, and manifestations, and they can manifest in an instant.
 
@@ -6893,7 +6893,7 @@ exchange one's own merits for another's faults,
 
 Exchange your own happiness with the troubles of others.
 
-When meditating, visualize the above-mentioned happiness, wisdom, blessings, etc., which will become immeasurable white light, emanating from your right nostril, entering the left nostril of beings in the six realms, and then visualizing that all beings in the six realms have obtained, very Great happiness and good fortune.
+When meditating, visualize the above-mentioned happiness, wisdom, merit, etc., which will become immeasurable white light, emanating from your right nostril, entering the left nostril of beings in the six realms, and then visualizing that all beings in the six realms have obtained, very Great happiness and good fortune.
 
 Then visualize the karma and afflictions of the above-mentioned beings in the six realms, etc., all of which turn into black air, flow out from the right nostril of the six realms, inhale it through your left nostril, and visualize hitting your ego and destroy it. ego.
 
@@ -7115,7 +7115,7 @@ If the released animals were bought with money, this is the giving of wealth.
 
 To release life and save the lives of sentient beings is to give protection from fear.
 
-Dedication of merit after the release is also very important, especially if you can dedicate yourself to your own guru or to a great siddhi, you can live in the world forever and turn the Wheel constantly. The merit will be great and there will be great blessings.
+Dedication of merit after the release is also very important, especially if you can dedicate yourself to your own guru or to a great siddhi, you can live in the world forever and turn the Wheel constantly. The merit will be great and there will be great merit.
 
 Performing each of the three kinds of generosity will bring different results.
 
@@ -7515,7 +7515,7 @@ Taking possessions of the Three Jewels violates this precept.
 
 Therefore, one cannot steal offerings for the Three Jewels.
 
-However, if you want to eliminate karma and get blessings, you can eat and offer offerings.
+However, if you want to eliminate karma and get merit, you can eat and offer offerings.
 
 As stated in the tantric Essays:
 
@@ -7575,7 +7575,7 @@ If there is demolition, it is reasonable and lawful to help him relocate, comfor
 
 ##### (11) Teaching emptiness to those whose minds are unprepared.
 
-If you know that someone is an immature root of emptiness, it is still true. He preaches emptiness, which makes him suspicious of the Three Jewels.
+If you know that someone is an immature root of emptiness, it is still true. He teaches emptiness, which makes him suspicious of the Three Jewels.
 
 If you do this, you will break this precept.
 
@@ -7962,27 +7962,27 @@ the Extremes" says:
 
 Laziness and lethargy will not achieve meditation.
 
-The first of the five mistakes is not to be lazy.
+The first of the five faults is not to be lazy.
 
 ##### 2) Forgetting the instruction
 
-Forgetting the methods and objects of visualization, forgetting to meditate, methods and tips taught by masters, etc., all belong to forgetting teachers.
+Forgetting the methods and objects of visualization, forgetting to meditate, methods and tips taught by masters, etc., all belong to forgetting the instruction.
 
 ##### 3) Agitation and dullness
 
-refers to the drowsy mind or the restless mind that occurs during meditation. These two types are obstacles to the mind.
+Refers to the drowsy mind or the restless mind that occurs during meditation. These two types are obstacles to the mind.
 
 When drowsiness arises, the mind becomes weary;
 
 When it arises, it falls, and the mind becomes chaotic, and the mind cannot be settled in one place.
 
-##### 4) Non-application
+##### 4) Under-application
 
 When the failure to do something sinks, because of understanding or other reasons, you do not take it and take the remedy. This is a fault.
 
 ##### 5) Over-application
 
-It is also a fault to practice antidote when the behavior does not sink.
+It is also a fault to apply an antidote when not necessary.
 
 There are nine abiding minds in the practice of meditation, that is, to experience the nine levels of abiding, the experience of the mind, only then can meditation be achieved.
 
@@ -7994,13 +7994,13 @@ Of the five faults, the first two will prevent practitioners from entering medit
 
 The third type will destroy the essence and quality of meditation, especially the subtle drowsiness, which many practitioners will not notice.
 
-The latter two can affect achievement meditation.
+The latter two can affect achievement of samadhi.
 
 Therefore, as practitioners we must recognize and try to remedy and remove these five faults.
 
-##### (2) The Eight Elements 
+##### (2) The Eight Antidotes 
 
-Eight Elements are the eight methods of dealing with the five faults.
+Eight Antidotes are the eight methods of dealing with the five faults.
 
 1) Faith means to develop firm confidence in the practice of meditation by understanding the merits of meditation.
 
@@ -8026,11 +8026,11 @@ We have a lot of troubles in our hearts all the time, so we always feel that our
 
 If the heart is heavy, no matter how light the body is, it will feel heavy.
 
-When the mind is relaxed, the body fat will also feel very relaxed.
+When the mind is relaxed, the body will also feel very relaxed.
 
-Master Ga Zang Qusong achieved meditation at the age of thirty-two, and when he was in his nineties, he still walked like a child, very, very light.
+Master Ga Zang Qusong achieved samadhi at the age of thirty-two, and when he was in his nineties, he still walked like a child, very, very light.
 
-After sitting cross-legged and preaching for a few hours, it is enough to stand up without touching the ground with both hands, which many young lamas cannot do.
+After sitting cross-legged and teaching for a few hours, it is enough to stand up without touching the ground with both hands, which many young lamas cannot do.
 
 Peace of mind in body and mind is a virtue after attaining meditation.
 
@@ -8339,7 +8339,7 @@ If you want to become a Buddha, you must learn all the knowledge. The more you l
 
 ##### 3. Wisdom of benefiting sentient beings 
 
-Wisdom of benefiting sentient beings is to teach sentient beings in this life and the next life, the methods of accumulating blessings, doing good and breaking evil, eliminating karmic obstacles, etc., as well as the wisdom of serving and doing things for all sentient beings.
+Wisdom of benefiting sentient beings is to teach sentient beings in this life and the next life, the methods of accumulating merit, doing good and breaking evil, eliminating karmic obstacles, etc., as well as the wisdom of serving and doing things for all sentient beings.
 Generally speaking, the wisdom paramita includes these three kinds of wisdom.
 
 Wisdom is very, very important, you need wisdom to do anything, and you can succeed if you have wisdom.
@@ -8661,7 +8661,7 @@ When one realizes emptiness, the original understanding of all dharmas and all t
 The importance of accumulating merits 
 
 We are still ordinary people, and we have not yet realized the true face of all things and myriad dharmas.
-Now, it is time to accumulate more blessings and reduce ego attachment;
+Now, it is time to accumulate more merit and reduce ego attachment;
 
 Listen to the scriptures, variety, seeds, and pay attention to the seeds of emptiness.
 
@@ -8706,7 +8706,7 @@ However, by accepting this understanding of emptiness, one can dilute one's own 
 
 For people with blunt roots, this is also a way to recognize emptiness - sexuality.
 
-But for the people of Ruigen, if they say that everything is in the outer world and does not exist, the people of Ruigen will say, it is impossible, this house is clearly here, and they say that it does not exist in the outer world, how can it be? Can it? How can it make sense to say that humans do not exist outside the world? , the same glass of water, the gods see it as nectar, it is because of the blessings of the gods, and the hungry ghost sees it as pus and blood, because of the karma of the hungry ghost.
+But for the people of Ruigen, if they say that everything is in the outer world and does not exist, the people of Ruigen will say, it is impossible, this house is clearly here, and they say that it does not exist in the outer world, how can it be? Can it? How can it make sense to say that humans do not exist outside the world? , the same glass of water, the gods see it as nectar, it is because of the merit of the gods, and the hungry ghost sees it as pus and blood, because of the karma of the hungry ghost.
 
 However, it does not mean that nothing exists in the external world, and the Madhyamika school rejects it, and the mind-only school talks about emptiness.
 
@@ -8843,7 +8843,7 @@ The purpose is to enable disciples to study the Dharma with peace of mind.
 
 The meaning of giving of the four elements and the giving of the six paramitas are completely different.
 
-The giving of the six paramitas can be said to be for the sake of saving oneself, such as giving money to oneself, whether it is to eliminate one's own greed, mindfulness, or to accumulate blessings, all of which are accumulated for oneself to become a Buddha.
+The giving of the six paramitas can be said to be for the sake of saving oneself, such as giving money to oneself, whether it is to eliminate one's own greed, mindfulness, or to accumulate merit, all of which are accumulated for oneself to become a Buddha.
 
 The purpose of giving in four sets is to gain the trust of others, so as to guide others to learn Buddhism and enter Buddhism.
 
@@ -9049,7 +9049,7 @@ This is the non-duality of emptiness and happiness. By practicing the Dharma, th
 
 We haven't reached that level yet, so we won't talk about it in detail, and we're not allowed to talk about it in detail.
 
-**Chapter 3  - Encountering the Difficulty of Secret Dharma** 
+**Chapter 3  - The Difficulty of Encountering Vajrayana** 
 
 The second Buddha, Tsongkhapa's "Song of Enlightenment" says:
 
@@ -9079,29 +9079,31 @@ Therefore, for the tantric vehicle, the supreme path of the Buddha, which is mor
 
 Two kinds of siddhi's source secret treasure, in-depth long-term study and cultivation.
 
+---
+
 There are two schools of Mahayana Buddhism: 
 
-Sutra and Tantra. 
+**Sutra and Tantra.**
 
 The two methods, the door is like the sun and the moon, the tantric method is like the sun, and the sutra method is like the moon. There are some contents in the tantra that cannot be explained in the sutra; many things that the sutra does not explain are very clearly explained in the tantra. For example, the process of death is not explained in detail in the Sutras. As for the real liberation, the sutras only say that if you cut off afflictions, you will be liberated, and you will be liberated if you are freed from suffering. The real liberation and nirvana are not mentioned, but these are clearly explained in the tantras.
 
- Xianzong also only talked a little bit about the pure land of Buddhas and Bodhisattvas, but about the true and complete pure land of Buddhas and Bodhisattvas, the tantric schools explained very clearly.
+Mahayana also only talked a little bit about the pure lands of Buddhas and Bodhisattvas, but about the true and complete pure lands of Buddhas and Bodhisattvas, the tantric schools explained very clearly.
 
-As far as becoming a Buddha is concerned, according to the teachings of Xianzong, after you have developed bodhicitta, you must accumulate the blessings of the three great asamkhya kalpas, and you will have to reincarnate many times before you can become a Buddha. In the process of rebirth, in addition to bodhicitta Yes, in addition to merit, some merit will also be withdrawn. If we study Tantra, we can become Buddhas in one lifetime, without having to go through the three major asamkhya kalpas.
+As far as becoming a Buddha is concerned, according to the teachings of Mahayana, after you have developed bodhicitta, you must accumulate merit of over three great asamkhya kalpas, and you will have to reincarnate many times before you can become a Buddha. In the process of rebirth, in addition to bodhicitta Yes, in addition to merit, some merit will also be withdrawn. If we study Tantra, we can become Buddhas in one lifetime, without having to go through the three major asamkhya kalpas.
 
 If he is the most outstanding Vajra disciple in Tantric Buddhism, he can become a Buddha in three years and three and a half months as quickly as possible; even an average disciple, after developing Bodhicitta, can become a Buddha in seven years by practicing Tantra. Or become a Buddha in ten or ten years; in this life, those who have not been able to become a Buddha can become a Buddha in the bardo stage. From this, we can see how special the secret method is, so the secret method is very precious, yes, it is very difficult to encounter.
 
-Seeing the Buddha is a million times more difficult than encountering tantric law. During the whole period of sage kalpas, there will be a thousand Buddhas born together, preaching scriptures and teaching the Dharma, and Buddha Shakyamuni is the fourth Buddha. Among these thousand Buddhas, there is a double cultivation of tantric and tantric teachings, and the only known one is Shakyamuni Buddha.
+Seeing the Buddha is a million times more difficult than encountering tantric law. During the whole period of sage kalpas, there will be a thousand Buddhas born together, teaching scriptures and teaching the Dharma, and Buddha Shakyamuni is the fourth Buddha. Among these thousand Buddhas, there is a double cultivation of tantric and tantric teachings, and the only known one is Shakyamuni Buddha.
 
 It is predicted in the scriptures that the eleventh Buddha is the incarnation of Master Tsongkhapa. Whether this Buddha can teach tantric Dharma is not good at the moment. It is said that if you reason according to the power of the master's vows before becoming a Buddha, he will be able to speak. Secret, legal.
 
 The fiftieth Buddha is Manjushri Bodhisattva coming again, so it is possible that he will teach the secret method.
 
-The last thousandth Buddha made a vow: "Previously, how the nine hundred and ninety-nine Buddhas teach the Dharma, so do I."
+The last thousandth Buddha made a vow: "Previously, however the nine hundred and ninety-nine Buddhas teach the Dharma, so do I."
 
-Because of this, with this kind of willingness, it is possible to speak tantric methods.
+Because of this, with this kind of willingness, it is possible to talk about tantric methods.
 
-In this case, only Buddha Shakyamuni taught the tantric Dharma, and there are three other Buddhas who could possibly speak the tantric Dharma, but none of them could be certain.
+In this case, only Buddha Shakyamuni taught the tantric Dharma, and there are three other Buddhas who could possibly teach the tantric Dharma, but none of them could be certain.
 
 That is to say, in the best case, among the thousand Buddhas of the virtuous eons, only the teachings of the four Buddhas will have tantric teachings.
 
@@ -9139,7 +9141,7 @@ Many schools adhere to the dual practice of Mind-Only View and Tantra, or the du
 
 Our Gelug School, holding the Middle Way, should have a right view and practicing the tantric method, is very, very rare, rare.
 
-Before he became a Buddha, Master Tsongkhapa made a vow that after becoming a Buddha, when turning the wheel of Dharma, he would only preach the dual cultivation of the Madhyamika Right View and the Tantra.
+Before he became a Buddha, Master Tsongkhapa made a vow that after becoming a Buddha, when turning the wheel of Dharma, he would only teach the dual cultivation of the Madhyamika Right View and the Tantra.
 
 Before the Master Tsongkhapa was born, Nagarjuna Bodhisattva said to his disciples: 
 
@@ -9165,55 +9167,61 @@ The Fourth Panchen Lama is the incarnation of the second coming of Tsongkhapa, w
 
 When a Geshe from Mongolia went to visit the Fourth Panchen Lama, he asked the Panchen Lama if he could obtain the precious human body of leisure in future generations. The fourth Panchen Lama said, "Yes, you can obtain the precious human body of leisure."
 
-"Then can I become a preacher in my next life?", 
+"Then can I become a teacher in my next life?", 
 
 "Yes, yes."
 
 "Then can I meet Master Tsongkhapa's Dharma?" After hearing this, the Fourth Panchen Lama pondered for a while.
 
-Said: "This is more difficult, and it is possible to accumulate great blessings."
+Said: "This is more difficult, and it is possible to accumulate great merit."
 
-Therefore, the fact that we can meet Master Tsongkhapa's rectification shows that we are not ordinary blessings. We have great blessings, which are accumulated, and the blessings we have accumulated for countless kalpas are worth encountering. To cherish this dharma condition that only appeared in countless kalpas, diligently pracice, and be liberated in this life.
+Therefore, the fact that we can meet Master Tsongkhapa's rectification shows that we are not ordinary merit. We have great merit, which are accumulated, and the merit we have accumulated for countless kalpas are worth encountering. To cherish this dharma condition that only appeared in countless kalpas, diligently pracice, and be liberated in this life.
 
 315 
 
-pictures ……
+![wheel](/images/bk4pg315.png)
 
-This instruction, the king of powerful jewels,
-
-Fulfills all the desired aims of the nine types of beings;
-
-It is an ocean of glorious and excellent explanations
-
-Gathering the rivers of a thousand fine scriptures.
-
----
-
-Through it, you can realize that all the teachings are without contradiction,
-
-Understand all the scriptures as an instruction,
-
-Easily find the intention of the Conqueror,
-
-And be protected from the abyss of very faulty conduct.
+>
+>This instruction, the king of powerful jewels,
+>
+>Fulfills all the desired aims of the nine types of beings;
+>
+>It is an ocean of glorious and excellent explanations
+>
+>Gathering the rivers of a thousand fine scriptures.
+>
 
 ---
 
-Therefore, this supreme instruction is relied on by many fortunate ones,
-
-The wise beings of India and Tibet.
-
-What analytical person would not be captivated
-
-By the stages of the path of the three types of beings?
+>
+>Through it, you can realize that all the teachings
+>
+>are without contradiction,
+>
+>Understand all the scriptures as an instruction,
+>
+>Easily find the intention of the Conqueror,
+>
+>And be protected from the abyss of very faulty conduct.
+>
 
 ---
 
-——"A Hymn of Experience (Lam rim nyam gur)"
+>
+>Therefore, this supreme instruction is relied on by many fortunate ones,
+>
+>The wise beings of India and Tibet.
+>
+>What analytical person would not be captivated
+>
+>By the stages of the path of the three types of beings?
+>
+>——"A Hymn of Experience (Lam rim nyam gur)"
+>
 
-Part 5 - practice, practice, second, first, "Treasures of the Dharma Sea" 
+### Part 5 - practice, practice, second, first, "Treasures of the Dharma Sea" 
 
-four pictures
+![middlescope](/images/bk4pg317middlescope.png)
 
 This time, we talked about the Three Ways, that is, the Bodhi Way, No. 1, because the whole process of the Way is the Three Ways.
 
@@ -9255,7 +9263,7 @@ Then pray: "With the inspiration of the Master, may I achieve the Three Paths."
 
 Next, keep thinking that the guru is in front of you and continues to bless you.
 
-After completing a practice, if you have cultivated well during visualization, you will feel that you have practiced well just now. At this time, you can visualize the teacher's face with a smile, his body glowing, and offer blessings for him.
+After completing a practice, if you have cultivated well during visualization, you will feel that you have practiced well just now. At this time, you can visualize the teacher's face with a smile, his body glowing, and offer merit for him.
 
 If you feel that your cultivation is not good, you can visualize the master criticizing you, saying, "This is not good, you have to work harder."
 
@@ -9387,7 +9395,7 @@ In the evening class, the same is true. First, practice the Outline of the Steps
 
 These are the real practices.
 
-If lay practitioners do not have time to meditate on The Three Principal Aspects of the Path from beginning to end, they can meditate on some of the more important methods in The Three Principal Aspects of the Path, which will also increase great blessings and accumulate a lot of merit.
+If lay practitioners do not have time to meditate on The Three Principal Aspects of the Path from beginning to end, they can meditate on some of the more important methods in The Three Principal Aspects of the Path, which will also increase great merit and accumulate a lot of merit.
 
 323
 
@@ -9474,7 +9482,7 @@ The puja at Tuole Monastery also has the characteristics of the integration of T
 
 The Mahavira Hall of Tuole Monastery was consecrated by eminent monks from Tibetan, Han and Southern traditions.
 
-The temple holds prayers for the blessings of Guotai and Min'an every year, such as the burial of the treasure vase and the Dakini Buddha's dharma meeting, which are also attended by believers from both Tibetan and Chinese communities.
+The temple holds prayers for the merit of Guotai and Min'an every year, such as the burial of the treasure vase and the Dakini Buddha's dharma meeting, which are also attended by believers from both Tibetan and Chinese communities.
 
 The integration of Tibetan and Chinese has become an important feature of Tuole Monastery.
 
@@ -9494,7 +9502,7 @@ Thangka: All murals in Tuola Temple are handwritten and painted by the lama of t
 
 The thangkas in the monastery are all handwritten by the most famous thangka painters, and they are the treasures of Tibetan Buddhism.
 
-Ganlu Pills: The Ganlu Pills of Tuole Temple are composed of the sweet dew, dew, various Tibetan medicines and the blessings of the guru from the Buddha statues of Tuole Temple, and are passed through the whole temple, and the lamas recite the sutras day and night, and are very precious.
+Ganlu Pills: The Ganlu Pills of Tuole Temple are composed of the sweet dew, dew, various Tibetan medicines and the merit of the guru from the Buddha statues of Tuole Temple, and are passed through the whole temple, and the lamas recite the sutras day and night, and are very precious.
 
 The monks of the Tuola Temple who cultivate the talents are simple and kind, pure and solemn, of high moral character and elegant in manners.
 
@@ -9525,7 +9533,7 @@ Over the years, Master Ngawang Gyatso has often taught scriptures and Dharma in 
 
 The guru emphasizes patriotism, love of education, and love of the people, and advocates great social harmony, great national unity, great world peace, and great perfection of practice.
 
-In 2009, as an outstanding representative of Tibetan Buddhist monks, Master Ngawang Gyatso participated in the 10th anniversary ceremony of Macao's return to the mainland, praying for Macao, and bestowing blessings on tens of thousands of believers.
+In 2009, as an outstanding representative of Tibetan Buddhist monks, Master Ngawang Gyatso participated in the 10th anniversary ceremony of Macao's return to the mainland, praying for Macao, and bestowing merit on tens of thousands of believers.
 
 In response to the great wish of Ngawang Gyatso to spread the Dharma and benefit students, the ever-growing number of monks and pilgrims, the infrastructure of the monastery is constantly being expanded.
 
