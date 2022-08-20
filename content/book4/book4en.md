@@ -8893,45 +8893,52 @@ To practice the tantric vehicle, the first and foremost foundation is the bodhic
 
 picture 
 
-#### Part Four - Vajra, Gang, Vehicle
+#### Part Four - Vajrayana - Tantra
 
 ...
-
-When I have become a [suitable] vessel by training in the common path,
-
-Please bless me to immediately enter
-
-The holy gateway of the fortunate beings—
-
-The supreme of all vehicles, the Vajrayana.
+>
+>When I have become a [suitable] vessel by training in the common path,
+>
+>Please bless me to immediately enter
+>
+>The holy gateway of the fortunate beings—
+>
+>The supreme of all vehicles, the Vajrayana.
+>
 
 ---
 
-At that time, the basis of accomplishing the two attainments
-
-Is keeping my vows and samayas purely.
-
-When I have gained effortless conviction in this,
-
-Please bless me to protect them even at the cost of my life.
+>
+>At that time, the basis of accomplishing the two attainments
+>
+>Is keeping my vows and samayas purely.
+>
+>When I have gained effortless conviction in this,
+>
+>Please bless me to protect them even at the cost of my life.
+>
 
 ---
 
-Then, when I have realized exactly the vital points of the two stages—
+>
+>Then, when I have realized exactly the vital points of the two stages—
+>
+>The essence of the tantric sets—
+>
+>And am enjoying the yoga of four sessions with effort, 
+>
+>without being distracted [by nonmeditation objects],
+>
+>Please bless me to accomplish these according to the teachings of the holy beings.
+>
 
-The essence of the tantric sets—
+>
+>—— "The Foundation of All Good Qualities"
+>
 
-And am enjoying the yoga of four sessions with effort, without being distracted [by nonmeditation objects],
+#### Chapter 1 - Requirements for Practicing Tantric Buddhism 
 
-Please bless me to accomplish these according to the teachings of the holy beings.
-
-...
-
-—— "The Foundation of All Good Qualities"
-
-Chapter 1 - Requirements for Practicing Tantric Buddhism 
-
-Section 1 - Empowerment to learn Tantric Buddhism 
+**Section 1 - Empowerment to learn Tantric Buddhism** 
 
 You must first receive the empowerment, and only after receiving the empowerment can one be qualified to practice Tantra.
 
@@ -9219,7 +9226,7 @@ Therefore, the fact that we can meet Master Tsongkhapa's rectification shows tha
 >——"A Hymn of Experience (Lam rim nyam gur)"
 >
 
-### Part 5 - practice, practice, second, first, "Treasures of the Dharma Sea" 
+### Part 5 - Sequence of the Path  "Dharma Ocean Treasures (4)" 
 
 ![middlescope](/images/bk4pg317middlescope.png)
 
