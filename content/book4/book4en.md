@@ -8895,7 +8895,7 @@ To practice the tantric vehicle, the first and foremost foundation is the bodhic
 
 #### Part Four - Vajrayana - Tantra
 
-...
+
 >
 >When I have become a [suitable] vessel by training in the common path,
 >
