@@ -8891,7 +8891,7 @@ After you have achieved the three ways, you can truly enter the tantric vehicle,
 
 To practice the tantric vehicle, the first and foremost foundation is the bodhicitta aspiration for enlightnment. After attaining the bodhicitta, and then cultivating the tantra, becoming a Buddha or liberation will be faster.
 
-picture 
+![middlescope](/images/bk4pg317middlescope.png)
 
 #### Part Four - Vajrayana - Tantra
 
