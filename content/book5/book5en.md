@@ -1,8 +1,9 @@
 ---
-title: "Dharma Ocean Treasures（5）"
-date: 2022-08-21T12:33:35+01:00
+title: "Dharma Ocean Treasures (5)"
+date: 2022-01-31T12:33:35+01:00
 draft: false
 ---
+
 
 ![front](/images/fa3frontgreet.png)
 
@@ -388,11 +389,11 @@ Appendix 2 - "The Heart Sutra" Ritual for Exorcism .............................
 
 Translated by Xuan Zang, a master of Tang Sanzang
 
->
->At that time, the Blessed One entered an absorption on categories of phenomena called ‘perception of the profound’. At the same time, noble Avalokiteśvara, the bodhisattva and great being, beheld the practice of the profound perfection of wisdom, and saw that the five aggregates are empty of nature. And all the sufferings of Sariputra are relieved.
->
->Form is emptiness; emptiness is form. Emptiness is not other than form; form is not other than emptiness.
->
+
+At that time, the Blessed One entered an absorption on categories of phenomena called ‘perception of the profound’. At the same time, noble Avalokiteśvara, the bodhisattva and great being, beheld the practice of the profound perfection of wisdom, and saw that the five aggregates are empty of nature. And all the sufferings of Sariputra are relieved.
+
+Form is emptiness; emptiness is form. Emptiness is not other than form; form is not other than emptiness.
+
 
 The emptiness of the Dharma does not arise, does not perish, is not defiled, is not pure, does not increase, and does not decrease. Therefore, the sky has no form, no feelings, thoughts, actions, consciousness, no eyes and ears.
 
