@@ -106,12 +106,15 @@ Shakyamuni Buddha Five-Nature Manjushri Bodhisattva Shakyamuni Buddha Five-Natur
 ![释迦牟尼佛](/images/shakyamunibuddha5.png)
 
 
-Four-armed Guanyin
+
 
 ![四臂观音](/images/4armedguanyin.png)
 
+Four-armed Guanyin
+
 ![玄奘法师](/images/masterxuanzang.png)
 
+Master Xuan Zang
 
 ![印度灵鹫山讲经台](/images/vulturepeak.png)
 
@@ -123,83 +126,83 @@ Vulture Peak in India
 
 ##### Chapter 1 - Overview of the Heart Sutra ................................................ 1
 
-The place and time of the first stanza of the "Heart Sutra"... 1
+Section 1 - The place and time of the "Heart Sutra"... 1
 
-Different Versions of the Second Section of the Heart Sutra………………. 3
+Section 2 - Different Versions of the Heart Sutra ………………. 3
 
-The meaning of the third section of the heart and the sutras……………… 4
+Section 3 - The meaning of the Heart Sutra ……………… 4
 
-An overview of the content of the fourth section "Heart Sutra" ................................................ 6
+Section 4 - Outline of the content of the Heart Sutra ........... 6
 
-##### Chapter 2 "The Heart Sutra" main text ................................................ 9
+##### Chapter 2 - Main Text of The Heart Sutra .............. 9
 
-The first section - Preparation …………………… 9
+Section 1 - Introduction …………………… 9
 
-1. Avalokitesvara Bodhisattva……………… 9
+1. Avalokitesvara Bodhisattva …… 9
 
-2. A brief introduction to six degrees ……………… 13
+2. Outline of the Six  ……………… 13
 
-3. The five aggregates without self-nature ……………… 14
+3. Five Aggregates Empty of self-nature ……………… 14
 
-4. The merits of the Heart Sutra ................................................ 17
+4. Merits of the Heart Sutra ....... 17
 
-5. Relics…………………….. 19
+5. Dedication …………………… 19
 
-##### Chapter 3 - Human beings without self and the way of bodhisattva resources……………… 21
+##### Chapter 3 - Selflessness of the individual and the Bodhisattva Path  ……………… 21
 
-The first section without me…………………… 25
+Section 1 - Selflessness of the individual …………………… 25
 
-1. The “I” that ordinary people think of ………………. 25
+1. The “I” of ordinary people ………………. 25
 
-2. The fault of ego ………………. 26
+2. Suffering of ego ………………. 26
 
 3. Searching for the “I” of ego ………………. 28
 
 4. Consciousness is not “I” ………… 30
 
-5. The “I” considered by the Madhyamika Yingcheng School …………. 31
+5. The Self of the Madhyamika Prasangika School …………. 31
 
-6. The general meaning and name of emptiness…………. 33
+6. The General Meaning of Emptiness …………. 33
 
-The second section of the Bodhisattva's Resource Path…………………….. 34
+Section 2 - The Way of the Bodhisattva .. 34
 
-1. Bodhicitta…………………….. 35
+1. Bodhicitta …………………….. 35
 
-2. Four mindfulnesses ................................................................................ 43
+2. Four Foundations of Mindfulness .. 43
 
-Three and four are broken…………………….. 49
+3. Four Right Exertions  …………………….. 49
 
-4. Four gods feet…………………….. 50
+4. Four Bases …………………….. 50
 
-5. The merits and virtues of the bodhisattva's sustenance path... 54
+5. The merits of the Way of the Bodhisattva... 54
 
-Sixth, the right view of the Middle Way………………. 58
+6. Right View of the Middle Way ……. 58
 
-##### Chapter 4 - Dharma-No-Self and Bodhisattva’s Additional Paths……………….. 61
+##### Chapter 4 - Dharma of No-Self and Way of the Bodhisattva ……………….. 61
 
-The first section of the law without me…………………… 61
+Section 1 - Dharma of No-Self ………… 61
 
-The second section of the Bodhisattva’s additional practice…………………….. 63
+Section 2 -  Way of the Bodhisattva ….. 63
 
-Section 3: The Dharma Door of Bodhisattva's Enhancing the Path of Practice... 65
+Section 3 - The Dharma Door of the  Way of the Bodhisattva ... 65
 
-1. The Five Pure Roots ................................................................ 65
+1. The Five Pure Roots ... 65
 
-2. The Five Forces……………………. 66
+2. The Five Powers  ………. 66
 
-Section 4: The merits and virtues of the Bodhisattva's additional practice of the Way ................................................................ 67
+Section 4 - The merits of the Way of the Bodhisattva .................. 67
 
-##### Chapter 5 The Bodhisattva Seeing the Way ................................................................ 73
+##### Chapter 5 The Bodhisattva Seeing the Way .......... 73
 
-Section 1 The difference between suppressing annoyance and cutting off annoyance…….. 73
+Section 1 - The difference between suppressing annoyance and cutting off annoyance…….. 73
 
-The second section of the Bodhisattva sees the way………………. 76
+Section 2 - Bodhisattva sees the way  ……. 76
 
 1. Seeing the Dao position and seeing the Dao without a break... 76
 
 2. Seeing the Dao, Liberation, Seeing the Dao... 80
 
-3. Obtaining the Dharma after seeing the position of the Tao……………….. 81
+3. Obtaining the Dharma after seeing the position of the Tao ……………….. 81
 
 4. Ultimate truth and mundane truth ................................................................................ 81
 
@@ -209,35 +212,35 @@ The second section of the Bodhisattva sees the way………………. 76
 
 ##### Chapter 6: The Bodhisattva's Path to Practice ................................................................................ 91
 
-Section 1 Bodhisattva Cultivation ………………. 92
+Section 1 - Bodhisattva Cultivation ………………. 92
 
-Section 2 The Noble Eightfold Path……………… 96
+Section 2 - The Noble Eightfold Path……………… 96
 
-The third section of the merits of the Bodhisattva on the ground………………. 98
+Section 3 -  merits of the Bodhisattva on the ground………………. 98
 
-##### Chapter 7 Learning the Way…………………… 103
+##### Chapter 7 - Learning the Way…………………… 103
 
-Section 1 Eighteen Realms…………………….. 103
+Section 1 - Eighteen Realms…………………….. 103
 
-Section 2 Twelve Dependent Origination……………… 104
+Section 2 - Twelve Dependent Origination……………… 104
 
-The third section of the Enlightenment Path…………………….. 109
+Section 3 -  the Enlightenment Path…………………….. 109
 
-Section 4: The Difficulty of Realizing Emptiness……………….. 112
+Section 4 - The Difficulty of Realizing Emptiness……………….. 112
 
-Section 5 The Four Noble Truths……………………. 115
+Section 5 - The Four Noble Truths……………………. 115
 
-1. Episodes………………………….. 116
+1. Episodes  ………………………….. 116
 
-2. Suffering…………………….. 116
+2. Suffering  …………………….. 116
 
-3. Tao…………………… 119
+3. Tao  …………………… 119
 
 4. Extinguishing …………………… 120
 
-The sixth section fully captures the voice-hearers of the Buddha's language... 121
+Section 6 -  fully captures the voice-hearers of the Buddha's language... 121
 
-Section 7 The Four Ways of Learning in the Three Vehicles ................................................................................ 122
+Section 7 - The Four Ways of Learning in the Three Vehicles ................................................................................ 122
 
 1. Views on Dharma Realization ................................................................ 123
 
@@ -247,129 +250,129 @@ Section 7 The Four Ways of Learning in the Three Vehicles ......................
 
 4. Post-modern view……………………. 127
 
-Section 8 The Difference Between Big and Small Multiplication ……………….. 129
+Section 8  - The Difference Between Big and Small Multiplication ……………….. 129
 
 1. Different intentions…………………….. 129
 
 2. Vows are different …………………….. 130
 
-3. Different fruit positions…………………….. 130
+3. Differences in results …………………….. 130
 
-##### Chapter 8: No Way of Cultivation……………………. 131
+##### Chapter 8 - Path of No-more-learning ……………………. 131
 
-Section 1 Extinction…………………… 131
+Section 1 - Extinction …………………… 131
 
-Section 2 Arahant Fruit ................................................................ 132
+Section 2 - Arahant Fruit ................. 132
 
-The third section of Mahayana does not cultivate the Tao………………. 134
+Section 3 - Mahayana does not cultivate the Tao………………. 134
 
-1. The merits of the Buddha's body ................................................ 134
+1. Merits of the Body of Buddha .......... 134
 
-2. The merits of the Buddha's speech ................................................ 136
+2. Merits of the Speech of Buddha ........ 136
 
-3. The Buddha's Intentional Merits 137
+3. Merits of the Mind of Buddha 137
 
-##### Chapter 9 Sanshido……………………. 141
+##### Chapter 9 - The Three Principal Aspects of the Path ……………………. 141
 
-##### Chapter Ten Bodhisattva …………………… 142
+##### Chapter 10 - Bodhisattva …………………… 142
 
 The first stanza of Bodhisattva…………………….. 142
 
-Section 2 Ten Paramitas (Perfections)................................................. 143
+Section 2 Ten Paramitas (Perfections)...3
 
-1. Generosity (dana) ………………. 143
+1. Generosity ………………. 143
 
-2. Moral conduct (sila) ................................................. 146
+2. Moral Discipline ..... 146
 
-3. Renunciation (nekkhamma) ………………. 148
+3. Patience ………………. 148
 
-4. Wisdom (paññā) ………………. 150
+4. Diligence ………………. 150
 
-5. Energy (viriya) ………………. 151
+5. Meditative concentration ………………. 151
 
-6. Patience (khanti) ………………. 153
+6. Wisdom ………………. 153
 
-7. Truthfulness (sacca) ………………. 154
+7. Skilful means ………………. 154
 
-8. Determination (adhitthana) ……………… 155
+8. Strength  ……………… 155
 
-9. Loving-kindness (metta) ……………… 156
+9. Aspiration prayers ……………… 156
 
-10. Equanimity (upekkha) ……………… 157
+10. Primordial wisdom ……………… 157
 
-##### Chapter 11 - Inner Reincarnation………………………….. 158
+##### Chapter 11 - Inner Reincarnation……………. 158
 
-Section 1 Anxiety……………………. 159
+Section 1 - Anxiety……………………. 159
 
-1. 6 Fundamental Annoyances ................................................................ 159
+1. 6 Fundamental Afflictions ............ 159
 
 2. Twenty afflictions with afflictions………………. 168
 
-Section 2 Karma…………………………. 180
+Section 2 - Karma…………………………. 180
 
 1. Killing ……………… 181
 
 2. Stealing…………………… 182
 
-3. Evil lewdness…………………… 182
+3. Sexual misconduct …………………… 182
 
-4. Liars …………………… 183
+4. Lying …………………… 183
 
-Five, two tongues……………… 184
+5. Sowing discord ……………… 184
 
-6. Evil tongue…………………… 184
+6. Harsh speech …………………… 184
 
-7. Whispering …………………… 185
+7. Idle gossip …………………… 185
 
-8. Greed…………………… 185
+8. Greed …………………… 185
 
 9. Hatred …………………… 186
 
-10. Perseverance in wrong views ………………. 187
+10. Wrong views ………………. 187
 
-Section 3 Obstacles ……………………. 188
+Section 3 - Obstructions ……………………. 188
 
-The fourth quarter four upside down…………………….. 189
+Section 4 - Four Errors …………………….. 189
 
-##### Chapter 12 - Nirvana ................................................................. 192
+##### Chapter 12 - Nirvana .... 192
 
-Section 1  - The Four Nirvanas ................................................ 192
+Section 1  - The Four Nirvanas ...... 192
 
-Section 2 - The Fruition of Buddhas in the Three Worlds……………….. 193
+Section 2 - Trikaya ……………….. 193
 
 1. The Buddha’s Sambhogakaya……………….. 194
 
-2. The incarnation of the Buddha …………………….. 195
+2. Nirmāṇakāya (physical incarnation of Buddha) ……….. 195
 
-3. The Dharma Body of the Buddha……………….. 197
+3. The Dharmakaya of the Buddha………  ……….. 197
 
 4. The Self-nature Body of the Buddha 197
 
-Section 3 - of fruition of consummation………………. 198
+Section 3 - Perfect Fruit ………………. 198
 
 ##### Chapter 13 - Mantra ………………………. 199
 
-The merits of the first mantra……………… 199
+Section 1 - Merits of the mantra……………… 199
 
-The most accurate way of reciting the mantras in the second section of the Heart Sutra...... 201
+Section 2 - The most accurate way of reciting the mantra of the Heart Sutra...... 201
 
-1. Pronunciation of mantras……………….. 201
+1. Pronunciation ……………….. 201
 
-2. The meaning of the mantra…………………….. 204
+2. Meaning of the mantra …………………….. 204
 
-The third section is not translated, etc. ……………… 208
+Section 3 - Interpretations ……………… 208
 
-##### Chapter 14 - Likes…………………………. 210
+##### Chapter 14 - Likes …………………. 210
 
-##### Chapter 15 - The Meditation Method of the Heart Sutra ................................................ 212
+##### Chapter 15 - Meditation on the Heart Sutra ............... 212
 
-The first three victories …………………….. 212
+Section 1 - Three Supreme Points …………………….. 212
 
-The second section of the "Heart Sutra" meditation method... 213
+Section 2 -  Meditating on the Heart Sutra ... 213
 
-1. Method 1……………………. 213
+1. Method 1 ……………………. 213
 
-2. Method 2……………………. 217
+2. Method 2 ……………………. 217
 
 ##### Chapter 16 - The Secret Meaning of the Heart Sutra 220
 
@@ -377,7 +380,7 @@ The second section of the "Heart Sutra" meditation method... 213
 
 Appendix 1 - Other Versions of the Heart Sutra………….. 227
 
-Appendix 2 - "The Heart Sutra" Ritual for Exorcism ................................................ 240
+Appendix 2 - Heart Sutra Ritual for Exorcism ................................................ 240
 
 ##### Introduction to Tuole Monastery …………………………. 241
 
