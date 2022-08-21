@@ -5,7 +5,9 @@ weight = 10
 chapter = true
 pre = "<b>6. </b>"
 +++
+
 ### 法海宝藏（六）
+
 ## Master Ah Wang Gyatso
 
 This is the sixth book in a series of seven.

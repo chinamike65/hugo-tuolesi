@@ -5,6 +5,7 @@ weight = 11
 chapter = true
 pre = "<b>7. </b>"
 +++
+
 ### 法海宝藏（七）开示合集及原文
 ## Master Ah Wang Gyatso
 
