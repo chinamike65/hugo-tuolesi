@@ -3,6 +3,7 @@ title: "Dharma Ocean Treasures（5）"
 date: 2022-08-21T12:33:35+01:00
 draft: false
 ---
+
 ![front](/images/fa3frontgreet.png)
 
 Ngawang Gyatso Vajra Guru Opening Prayer

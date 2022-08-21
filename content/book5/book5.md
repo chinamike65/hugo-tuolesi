@@ -3,6 +3,7 @@ title: "法海宝藏（五）"
 date: 2022-01-31T12:33:35+01:00
 draft: false
 ---
+
 ![front](/images/fa3frontgreet.png)
 
 **阿旺嘉措金刚上师祈愿**

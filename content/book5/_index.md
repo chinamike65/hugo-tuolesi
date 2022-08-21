@@ -5,11 +5,12 @@ weight = 9
 chapter = true
 pre = "<b>5. </b>"
 +++
+
 ### 法海宝藏（五）
 ## Master Ah Wang Gyatso
 
 This is the fifth book in a series of seven.
 
-![Ah Wang](/images/fahaibao5.png)
+
 
 {{% children  %}}
