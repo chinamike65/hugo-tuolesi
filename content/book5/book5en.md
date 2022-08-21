@@ -1,118 +1,125 @@
 ---
 title: "Dharma Ocean Treasures（5）"
-date: 2022-01-31T12:33:35+01:00
+date: 2022-08-21T12:33:35+01:00
 draft: false
 ---
 ![front](/images/fa3frontgreet.png)
 
-Ngawang Gyatso Vajra Guru Prayer
+Ngawang Gyatso Vajra Guru Opening Prayer
 
 Advocated by Ngawang Gyatso Vajra Guru
 
-Three loves
+**Three loves:**
 
-patriotic
+Country
 
-love the people
+People
 
-love teaching
+Dharma Teachings
 
-four practices
+**Four practices:**
 
-Based on self-purification
+Self-purification
 
-Altruistic
+Altruism
 
-in the spirit of harmony
+Spirit of harmony
 
 Aim for enlightenment
 
-five wishes
+**Five Wishes:**
 
-Great social harmony
+Great Social Harmony
 
-national unity
+National Unity
 
-Great prosperity of the country
+Great Prosperity of the country
 
-world peace
+World Peace
 
-practice Dzogchen
+Practice the Dharma
 
-Introduction to Ngawang Gyatso Vajra Guru
-Guru Ngawang Gyatso Vajra in
+---
 
-He was born on the fifteenth day of the first lunar month in 1969 in Hainan Tibetan Autonomous Prefecture, Qinghai Province.
+#### Introduction to Ngawang Gyatso Vajra Guru
 
-The master entered Buddhism at the age of six and became a monk at the age of eighteen. He had studied with seven masters, including Dharma King Lamaoyong Zengjian, Master Gazang Qusong King Kong, and the 10th Panchen Lama.
+Master Ngawang Gyatso was born on March 3, 1969 (the fifteenth day of the first lunar month) in Hainan Tibetan Autonomous Prefecture, Qinghai Province.
 
-Master Ngawang follows the teacher like a li, and has completely obtained the inheritance of the seven masters.
+The master began to practice Buddhism as a novice monk at the age of six, and became an ordained monk at the age of eighteen. He studied with Dharma Master Lama Yong Zeng, Geshe Rinpoche, Lobsang Dorje Vajra Guru, Gejia Rinpoche, Dharma Master Yeshe Gyatso, Gazang Qusong Vajra Guru and the 10th Panchen Lama.
 
-He received more than 200 kinds of empowerment, followed Xu to empower more than 300 kinds, guided more than 280 kinds, and possessed more than 500 scriptures and teachings and more than 80 ear-transmission secret formulas.
+Master Ah Wang, having followed the precepts of his teachers, received complete transmission of the teachings from his seven masters, the forty-sixth generational heirs of the "Perfection of Wisdom Sutra", the most important classic of Buddhism. From them he obtained more than 200 kinds of empowerments, more than 300 advanced special empowerments, more than 280 guiding precepts, with more than 500 scriptural sutras and more than 80 oral transmissions of intangible secrets. Therefore, the lineage of the master's doctrinal transmission is extremely complete and especially rare.
 
-Dharma King Lamaoyong Zengzeng is the holder of the Gelug sect of Tibetan Buddhism. His master has followed the Dharma King for more than 20 years and has gained the experience of the Dharma King throughout his life. The "Great Prajna Sutra" was passed on to Master Ngawang for the 40th year. Six generations, the inheritance is very pure and complete.
+His Holiness Dharma Master Yongzeng, who was once the sutra teacher of the living Buddha, Sechi, in Lamodeqin Monastery was a person of superior virtue and the complete holder of the transmissions of the Gelugpa tantric teachings. Master Ah Wang studied with Master Yongzeng for more than 20 years and absorbed all of the wisdom and experience of the Venerable Dharma Master. The other six masters are also highly proficient in the esoteric secrets and have sufficient evidence of exceptional scholarly achievements. 
 
-Master Ngawang also studied at Qinghai Buddhist College and Ta'er Monastery Debating School, and with his diligence and wisdom beyond ordinary people, he completed the five major theories and the second esoteric courses of the five great vajras in advance.
+In addition, Master Ah Wang studied at Qinghai Buddhist College and the Ta'er (Kumbum) Monastery Debating College of Dialectics (Debating College).
+With a single-minded commitment to study and wide erudition, he completed the study of sutra and tantra, the five major theories of the five great Dharma masters, well ahead of schedule.
 
-After graduation, Master Ngawang has been serving as the Vajra Guru and abbot at Tuole Monastery in Qinghai. He teaches the Five Great Treatises, the Three Ways, and the Four Tantras to the monks in different classes every day.
+Since graduating from Qinghai Buddhist Academy and Ta'er Monastery Debating Academy with excellent grades, the master has been living at Qinghai Tuole Monastery, serving as the Vajra Guru and the abbot of the monastery. He teaches the monks of Tuole Monastery every day in groups: lectures on the five traditional monastic subjects, the "Three Principal Aspects of the Path", and the four classes of tantra, and has set up a new sutra debating school at the monastery.
 
-At present, Tuola Monastery has cultivated several batches of Buddhist Geshes (equivalent to a Ph.D. in Buddhism), and the construction of the sangha has reached a certain scale, laying a solid foundation for guiding and teaching monks.
+Master Ah Wang has now produced several batches of lamas with a Geshe degree (equivalent to a Ph.D. in Buddhism).
 
-While cultivating monks, the master himself never forgets to study and practice, and has been insisting on retreating for two months every year.
+The master also insists on going into retreat for two months every year.
 
-Before Lamaoyong Enlarged His Holiness, he instructed Guru Ngawang:
+Lama Yongzeng once told Master Ah Wang: "Your whole career in this life is to turn the wheel of Dharma widely and spread the Dharma for the benefit of all living beings."
 
-** "Your entire career is to turn the Falun widely, spread the Dharma and benefit life." **
+Master Ah Wang often gives sermons, teachings, lectures, and holds empowerment ceremonies in both Tibetan and Chinese areas, and often holds patriotic teachings, and patriotic activities in monasteries, making due contributions to the promotion of social harmony and stable development.
 
-The guru strictly abides by the teacher's instructions, and often holds sermons, precepts, and empowerment pujas.
+At the invitation of believers from other places, the master has travelled all over the world to teach the sutras and the Dharma to those who are destined to hear them.
 
-Due to the compassion and teachings of the master, many believers of different nationalities and ethnic groups have converted to Master Ngawang.
-
-In 2009 and 2014, invited by the Buddhist community in Macau, the master, as the representative of Tibetan Buddhist monks, presided over the Dharma for the 10th and 15th anniversary of Macau's return to the motherland.
+In 2009 and 2014, invited by the Buddhist community in Macau, the master, as a representative of Tibetan Buddhist monks, presided over the Puja for the 10th and 15th anniversary of Macau's return to the mainland.
 
 In October 2015, the master was also invited to participate in the 2015 Chongsheng International Forum co-organized by the Yunnan Buddhist Association and the Dali Chongsheng Temple.
 
-Master Ngawang is not only perfect in his practice and perfect in his eloquence, but he is also rich in writing.
+Master Ngawang is not only perfect in his practice and perfect in his eloquence, but he is also the author of a rich collection of writings.
 
-The master's writings include "Annotation of Prajna Sutra", "Dictation by Masters of the Three Ways and Three Schools", "Treasures of the Dharma Sea" series and so on.
+The Master's writings include Commentary on Philosophy, Commentary on the Diamond Sutra, Dictation from the Three Masters of the Three Paths and Three Schools, Vajrasattva Ritual and Practice, and Dakini Mother of Buddha Ritual, Tracks and Practical Practices, Practice of Retreat, Simmering Sang Ritual, Biography of Vajra Guru Gazang Qusong, History of Tibetan Buddhism, Dabao Motto, Nectar Dharma Rain, Tantric Buddhism Feng Shui and the "Dharma Ocean Treasures" series (this is the third volume), etc.
 
-The master's writings are concise and concise, and the analysis is profound and thorough.
+The master's writings are concise and comprehensive, and the analysis is profound and thorough, and has been praised and acclaimed by many great scholars in Buddhist circles at home and abroad.
 
-Master Ngawang once studied under the 10th Panchen Lama, who is deeply loved by the people. The Panchen Lama was called "a great patriot and an outstanding leader of Tibetan Buddhism" by the Central Committee of the Communist Party of China. made an important contribution.
+Master Ah Wang once studied under the 10th Panchen Lama, who is deeply loved by the people. The Panchen Lama was called "a great patriot and an outstanding leader of Tibetan Buddhism" by the Central Committee of the Communist Party of China and made many important contributions to Buddhism in China.
 
-Master Ngawang was deeply influenced by the Panchen Lama. In religious thought, he advocated that Buddhist disciples should have the heart of the common people, cherish the "three great loves" and practice the "four practices" in order to achieve the harmony and perfection of the "five vows".
+Master Ah Wang was deeply influenced by the Panchen Lama. In his religious thought, he advocated that Buddhist disciples should be concerned with the common people, cherish the "Three Great Loves" and practice the "Four Practices" in order to achieve the harmony and perfection of the "Five Vows".
 
-Under the leadership of Master Ngawang, the Sangha of Tuola Monastery adheres to the style of Gelugzong. The results are among the best.
+"Three Loves": patriotism, love for the people, and love for education.
 
-Master Ngawang said that whether it is Southern Buddhism, Chinese Buddhism or Tibetan Buddhism, they are all Buddha's Dharma, and they are all very special.
+"Four Practices": take self-purification as the foundation, take altruism as the principle, take harmony as the spirit, and take enlightenment as the goal.
 
-Buddhists should go deeper into the scriptures, diligently study and think, and establish a right view.
+"Five Wishes": Great social harmony, great national unity, great national prosperity, great world peace, great perfection in practice.
 
-At the same time, it is necessary to develop Bodhicitta widely and truly think for the sake of all sentient beings, in order to achieve a perfect life for oneself and others.
+Under the leadership of Master Ah Wang, the Sangha of Tuole Monastery adheres to the rule of the Gelug School. The results are among the best. Master Ah Wang said that it does not matter if we are talking about Southern Buddhism, Chinese Buddhism or Tibetan Buddhism, they are all Buddha's Dharma, and they are all very special.
 
-Series Five
+Buddhists should go deeper into the scriptures, diligently study and think, and establish a right view. At the same time, it is necessary to develop Bodhicitta widely and truly think for the sake of all sentient beings, in order to achieve a perfect life for oneself and others.
 
-Master Ngawang Gyatso Vajradhara explains the fifth of the series "Treasures of the Dharma Sea" at Tuole Monastery
+---
 
-Manjusri Bodhisattva
+
+![系列之五](/images/series5.png)
+
+Vajra Master Ngawang Gyatso gave talks on the fifth of the series "Dharma Ocean Treasures" at Tuole Monastery.
+
+![五性文殊菩萨](/images/manjusribodhi.png)
 
 Shakyamuni Buddha Five-Nature Manjushri Bodhisattva Shakyamuni Buddha Five-Nature Manjushri
 
-Shakyamuni Buddha
+![释迦牟尼佛](/images/shakyamunibuddha5.png)
 
-Four-armed Guanyin Master Xuanzang Four-armed Guanyin Master Xuanzang
 
 Four-armed Guanyin
 
-Master Xuanzang
+![四臂观音](/images/4armedguanyin.png)
 
-Vulture Hill pulpit in India
+![玄奘法师](/images/masterxuanzang.png)
+
+
+![印度灵鹫山讲经台](/images/vulturepeak.png)
 
 Vulture Peak in India
 
-Table of contents
+---
 
-Chapter 1 Overview of the Heart Sutra ................................................ 1
+**Table of Contents**
+
+##### Chapter 1 - Overview of the Heart Sutra ................................................ 1
 
 The place and time of the first stanza of the "Heart Sutra"... 1
 
@@ -122,9 +129,9 @@ The meaning of the third section of the heart and the sutras……………… 4
 
 An overview of the content of the fourth section "Heart Sutra" ................................................ 6
 
-Chapter 2 "The Heart Sutra" main text ................................................ 9
+##### Chapter 2 "The Heart Sutra" main text ................................................ 9
 
-The first section to move forward…………………… 9
+The first section - Preparation …………………… 9
 
 1. Avalokitesvara Bodhisattva……………… 9
 
@@ -136,7 +143,7 @@ The first section to move forward…………………… 9
 
 5. Relics…………………….. 19
 
-Chapter 3 Human beings without self and the way of bodhisattva resources……………… 21
+##### Chapter 3 - Human beings without self and the way of bodhisattva resources……………… 21
 
 The first section without me…………………… 25
 
@@ -156,7 +163,7 @@ The second section of the Bodhisattva's Resource Path…………………….. 
 
 1. Bodhicitta…………………….. 35
 
-2. Four mindfulness ................................................................................ 43
+2. Four mindfulnesses ................................................................................ 43
 
 Three and four are broken…………………….. 49
 
@@ -166,7 +173,7 @@ Three and four are broken…………………….. 49
 
 Sixth, the right view of the Middle Way………………. 58
 
-Chapter 4: Dharma-No-Self and Bodhisattva’s Additional Paths……………….. 61
+##### Chapter 4 - Dharma-No-Self and Bodhisattva’s Additional Paths……………….. 61
 
 The first section of the law without me…………………… 61
 
@@ -180,7 +187,7 @@ Section 3: The Dharma Door of Bodhisattva's Enhancing the Path of Practice... 65
 
 Section 4: The merits and virtues of the Bodhisattva's additional practice of the Way ................................................................ 67
 
-Chapter 5 The Bodhisattva Seeing the Way ................................................................ 73
+##### Chapter 5 The Bodhisattva Seeing the Way ................................................................ 73
 
 Section 1 The difference between suppressing annoyance and cutting off annoyance…….. 73
 
@@ -198,7 +205,7 @@ The second section of the Bodhisattva sees the way………………. 76
 
 6. Seeing the virtues of the Bodhisattva ……………… 86
 
-Chapter 6: The Bodhisattva's Path to Practice ................................................................................ 91
+##### Chapter 6: The Bodhisattva's Path to Practice ................................................................................ 91
 
 Section 1 Bodhisattva Cultivation ………………. 92
 
@@ -206,7 +213,7 @@ Section 2 The Noble Eightfold Path……………… 96
 
 The third section of the merits of the Bodhisattva on the ground………………. 98
 
-Chapter 7 Learning the Way…………………… 103
+##### Chapter 7 Learning the Way…………………… 103
 
 Section 1 Eighteen Realms…………………….. 103
 
@@ -246,7 +253,7 @@ Section 8 The Difference Between Big and Small Multiplication ………………
 
 3. Different fruit positions…………………….. 130
 
-Chapter 8: No Way of Cultivation……………………. 131
+##### Chapter 8: No Way of Cultivation……………………. 131
 
 Section 1 Extinction…………………… 131
 
@@ -260,9 +267,9 @@ The third section of Mahayana does not cultivate the Tao………………. 134
 
 3. The Buddha's Intentional Merits 137
 
-Chapter 9 Sanshido……………………. 141
+##### Chapter 9 Sanshido……………………. 141
 
-Chapter Ten Bodhisattva …………………… 142
+##### Chapter Ten Bodhisattva …………………… 142
 
 The first stanza of Bodhisattva…………………….. 142
 
@@ -288,7 +295,7 @@ Section 2 Ten Paramitas (Perfections)...........................................
 
 10. Equanimity (upekkha) ……………… 157
 
-Chapter 11 Inner Reincarnation………………………….. 158
+##### Chapter 11 - Inner Reincarnation………………………….. 158
 
 Section 1 Anxiety……………………. 159
 
@@ -322,7 +329,7 @@ Section 3 Obstacles ……………………. 188
 
 The fourth quarter four upside down…………………….. 189
 
-Chapter Twelve Nirvana ................................................................. 192
+##### Chapter 12 - Nirvana ................................................................. 192
 
 Section 1  - The Four Nirvanas ................................................ 192
 
@@ -336,9 +343,9 @@ Section 2 - The Fruition of Buddhas in the Three Worlds……………….. 193
 
 4. The Self-nature Body of the Buddha 197
 
-The third section of the fruition of consummation………………. 198
+Section 3 - of fruition of consummation………………. 198
 
-Chapter Thirteen Spells………………………. 199
+##### Chapter 13 - Mantra ………………………. 199
 
 The merits of the first mantra……………… 199
 
@@ -350,9 +357,9 @@ The most accurate way of reciting the mantras in the second section of the Heart
 
 The third section is not translated, etc. ……………… 208
 
-Chapter 14 Likes…………………………. 210
+##### Chapter 14 - Likes…………………………. 210
 
-Chapter 15 The Meditation Method of the Heart Sutra ................................................ 212
+##### Chapter 15 - The Meditation Method of the Heart Sutra ................................................ 212
 
 The first three victories …………………….. 212
 
@@ -362,27 +369,29 @@ The second section of the "Heart Sutra" meditation method... 213
 
 2. Method 2……………………. 217
 
-Chapter 16 - The Secret Meaning of the Heart Sutra 220
+##### Chapter 16 - The Secret Meaning of the Heart Sutra 220
 
-Appendix ................................................................................ 227
+**Appendices**
 
-Appendix 1 Other Versions of the Heart Sutra………….. 227
+Appendix 1 - Other Versions of the Heart Sutra………….. 227
 
-Appendix 2 "The Heart Sutra" Ritual for Exorcism ................................................ 240
+Appendix 2 - "The Heart Sutra" Ritual for Exorcism ................................................ 240
 
-Introduction to Tuole Monastery …………………………. 241
+##### Introduction to Tuole Monastery …………………………. 241
 
-Overview
+##### Overview
 
-Heart Sutra
+##### Heart Sutra
 
-Prajna-paramita Heart Sutra
+**Prajna-paramita Heart Sutra**
 
 Translated by Xuan Zang, a master of Tang Sanzang
 
-At that time, the Blessed One entered an absorption on categories of phenomena called ‘perception of the profound’. At the same time, noble Avalokiteśvara, the bodhisattva and great being, beheld the practice of the profound perfection of wisdom, and saw that the five aggregates are empty of nature. And all the sufferings of Sariputra are relieved.
-
-Form is emptiness; emptiness is form. Emptiness is not other than form; form is not other than emptiness.
+>
+>At that time, the Blessed One entered an absorption on categories of phenomena called ‘perception of the profound’. At the same time, noble Avalokiteśvara, the bodhisattva and great being, beheld the practice of the profound perfection of wisdom, and saw that the five aggregates are empty of nature. And all the sufferings of Sariputra are relieved.
+>
+>Form is emptiness; emptiness is form. Emptiness is not other than form; form is not other than emptiness.
+>
 
 The emptiness of the Dharma does not arise, does not perish, is not defiled, is not pure, does not increase, and does not decrease. Therefore, the sky has no form, no feelings, thoughts, actions, consciousness, no eyes and ears.
 
