@@ -205,7 +205,7 @@ The fourth of the series "Dharma Ocean Treasures" in Tuole Temple
 
 (2) Dharma giving
 
-(3) Fearless Giving
+(3) Giving Protection from Fear
 
 (4) The Six Right Ways and Six Degrees of Giving
 
@@ -217,23 +217,23 @@ The fourth of the series "Dharma Ocean Treasures" in Tuole Temple
 
 (2) Benefit all sentient beings
 
-(3) The Dharma Precepts of Virtue
+(3) Dharma Precepts of Virtue
 
 3. Paramita of Patience
 
-(1) Tolerance of Pain
+(1) Forbearance of Pain
 
-(2) Tolerance of Suffering
+(2) Forbearance of Suffering
 
 (3) Practicing Forbearance
 
 4. Paramita of Diligence
 
-(1) Armoured diligence
+(1) Armour-like diligence
 
-(2) Be good and diligent
+(2) Diligence in action
 
-(3) Benefit all sentient beings
+(3) Insatiable (or unstoppable) diligence
 
 5. Paramita of Meditative concentration
 
@@ -245,7 +245,7 @@ The fourth of the series "Dharma Ocean Treasures" in Tuole Temple
 
 (4) The Six Powers of Meditation
 
-(5) The Nine Abstinences of Meditation
+(5) Nine ways of resting the mind
 
 6. Paramita of Wisdom 
 
@@ -271,7 +271,7 @@ The fourth of the series "Dharma Ocean Treasures" in Tuole Temple
 
 (1) The immature can mature
 
-(2) Thoe mature can deliver liberation
+(2) The mature can reach liberation
 
 4. Exchanging Self for Others
 
@@ -2720,9 +2720,9 @@ You can't move until you knock. This is a very important cause for the deceased.
 
 ##### 4. Bardo - Intermediate State
 
-After a person in the bardo dies, they enter the bardo, also known as the yin body. 
+After a person dies, they enter the bardo, also known as the yin body. 
 
-Before reincarnating, they are all in the bardo state. At this time, they are called the middle and yin body. This state can last for the longest time. Forty-nine days.
+Before reincarnating, they are all in the bardo state. At this time, they are called the bardo body. This state can last for the longest time. Forty-nine days.
 
 ##### (1) The state of the bardo
 
@@ -8114,7 +8114,7 @@ Therefore, at this time, it is no longer necessary to observe the mind, but to u
 
 ##### (4) Six Powers of Meditation 
 
-When practising meditation, in addition to paying attention to the five faults, and using the eight elements to treat them, you must also experience the mind of abiding, that is, the mind of nine abiding. In fact, Liuli has already talked about it before, so I will introduce it here.
+When practising meditation, in addition to paying attention to the five faults, and using the eight elements to treat them, you must also experience the mind of abiding, that is, Nine ways of resting the mind. In fact, Liuli has already talked about it before, so I will introduce it here.
 
 Hearing power is listening to the teacher's teaching.
 
@@ -8137,15 +8137,15 @@ After the force of habit has been completely eliminated and removed, the mind th
 
 These are very important for meditation practice.
 
-(5) Meditation practitioners who practice meditation, so that their minds are not scattered and stay in one state, will experience nine levels of abiding minds during the process, that is, nine abiding minds.
+(5) Meditation practitioners who practice meditation, so that their minds are not scattered and stay in one state, will experience nine levels of abiding minds during the process, that is, Nine ways of resting the mind.
 
-Jiuzhu heart map
 
-![Map of the 7 minds](/images/map7minds.png)
 
-Map of the 7 minds.
+![Map of the 9 minds](/images/map7minds.png)
 
-##### 1. Peace of Mind
+Map of the 9 minds.
+
+##### 1. Resting the Mind
 
 Resting the mind can rest the mind in the place of concentration, that is, resting the mind.
 This stage mainly relies on the "hearing power" of the six powers, and the mind rests on the object of meditation.
@@ -8154,9 +8154,9 @@ At this stage, the mind can only be settled on the object of meditation for a sh
 
 At this time, you will find that there are more thoughts in your mind than when you don’t practice meditation. In fact, it’s not that there are more thoughts, but because you haven’t practiced meditation, your mind hasn’t calmed down, and you don’t know that your mind will produce so many different thoughts.
 
-##### 2. Capturing the Mind
+##### 2. Resting the Mind Longer
 
-When the mind reacts to an external object, it can bring the mind back, which is the Capturing the Mind.
+When the mind reacts to an external object, it can bring the mind back, which is the Resting the Mind Longer.
 This stage mainly relies on the "thinking power" of the six powers.
 
 Cultivation, after meditating for a period of time, the mind will stay in the place of concentration for a little longer, and it will not be so scattered.
@@ -8165,7 +8165,7 @@ At this time, you can experience that there are not so many thoughts in your hea
 
 In the stage of calming the mind and holding the mind, the time for the mind to be scattered should be longer than the time for resting, the time for sinking is more, and the time for resting is less.
 
-##### 3. Releasing the Mind
+##### 3. Continuously Resettling the Mind
 
 When the mind is understood (understood separately) when it acts on external objects, it can make the mind quickly return to the place of concentration, which is the liberation of the mind.
 At this stage, the mind continues to rest in the samādhi.
@@ -8174,7 +8174,7 @@ Be careful, when the mind is occasionally scattered, and when it leaves the conc
 
 Compared with the previous two stages, the time of distraction is already very short, and part of mindfulness can arise.
 
-##### 4. Turning the Mind
+##### 4. Fully Settling the Mind
 
 To turn the mind is to stop the mind of knowing and to be happy to be at rest.
 
@@ -8186,7 +8186,7 @@ The third and fourth abiding minds mainly rely on the "mindfulness, power" of th
 
 From then on, mindfulness matures.
 
-##### 5. Holding the mind
+##### 5. Taming the Mind
 
 The time of subduing the mind in meditation is too long. When the mind feels tired, it can subdue the tired mentality, which is to subdue the mind.
 At this stage, there is no gross lethargy and lethargy.
@@ -8195,7 +8195,7 @@ But because the control of the mind is too tight, it is possible to be drowsy.
 
 Therefore, we must generate the "right knowledge" in the six powers to observe, and at the same time, think about the merits of practicing meditation as mentioned in the "faith" in the eight elements, so that the mind will be more active and no longer drowsy.
 
-##### 6. Resting the mind
+##### 6. Pacification of the Mind
 
 When there is a moving thought in the mind, you can make the thought stop immediately, that is, rest, stop the mind.
 
@@ -8209,13 +8209,13 @@ The fifth and sixth abiding minds mainly rely on the "power of comprehension".
 
 If the abiding mind at this stage is complete, the power of right comprehension will also be complete.
 
-##### 7. Extinguishing the mind
+##### 7. Complete Pacification of the Mind
 
 When the mind is extinguished, when it arises and sinks, it can be extinguished immediately, that is, the mind is extinguished.
 
 In the seventh stage, since the first six sedative minds have already been fully completed, there is basically no drowsiness and sluggishness at this time, but one must still be alert to sinking and slumping, and generate the "energy force" of the six powers, and thoroughly , break off the sink.
 
-##### 8. 性住心
+##### 8. One-pointedness
 
 When the delusions stop, you can realize that the nature of the mind is original and pure, and then keep the natural tranquility.
 
@@ -8227,7 +8227,9 @@ Therefore, starting from No. 8, the mind of eight dwellings, it is no longer nec
 
 The seventh and eighth abiding minds mainly rely on the "power of energy".
 
-##### 9. Calm-abiding
+##### 9. Resting in Equanimity
+
+'one-pointed mind of the desire realm'
 
 After holding the mind to achieve meditation, you must practice it regularly, and you will naturally be able to live in meditation, and you will naturally be able to do good and stop evil.
 
@@ -8237,9 +8239,9 @@ Therefore, at this time, it is possible to enter samadhi without the slightest e
 
 The ninth abiding mind mainly relies on the "training force" of the six forces.
 
-In the time of the Middle Path, we talked about the practice of meditation;
+In the talk about the Path of the Middle Scope, we talked about the practice of meditation;
 
-The Dharma Master talks about the conditions that need to be met to achieve meditation, as well as the understanding and handling of the changes in the mind during the practice process.
+The Guru talked about the conditions that need to be met to achieve meditation, as well as the understanding and handling of the changes in the mind during the practice process.
 
 The combination of the two parts is the perfect method of meditation practice.
 
@@ -8257,15 +8259,13 @@ It can be divided into: ultimate truth wisdom, mundane truth wisdom, wisdom, and
 
 Ultimate Truth Wisdom speaks of emptiness, that is, the emptiness of dependent origination, yes, the essence and nature of all things.
 
-Nagarjuna
+
 ![Nagarjuna](/images/nagarjuna.png)
 
-
-
-
+##### 龙树菩萨 Nagarjuna
 ![Asanga](/images/unsungbodhi.png)
 
-无著菩萨 Asanga
+##### 无著菩萨 Asanga
 
 Regarding the emptiness of dependent origination, various schools have different views. The Gelug School, which holds the middle view, is based on the six theories of Nagarjuna Bodhisattva.
 
@@ -8279,7 +8279,7 @@ Nagarjuna Bodhisattva is also known as Longmeng. In the history of Buddhism, he 
 >His name is called the dragon, which can break through the boundless.
 >
 
-It means that at that time, in the southern country of Beida in India, there will be an auspicious monk named Longmeng in the future. After the Buddha's nirvana, when there is a dispute within Buddhism, he will stand up and promote the Mahayana, the right view, and the elimination of Boundless and boundless, interpreting the prajnaparamita method.
+It means that in the future, in the southern country of Beida in India, there will be an auspicious monk named Longmeng in the future. After the Buddha's nirvana, when there is a dispute within Buddhism, he will stand up and promote the Mahayana, the right view, and the elimination of Boundless and boundless, interpreting the prajnaparamita method.
 
 In many other classics, such as the "Drum Sutra", "The Great Cloud Sutra", "Manjushri Root Tantra" and other Mahayana classics and tantras, there are also clear prophecies for Longmeng Bodhisattva and Sagittarius. Some say that he is a bodhisattvas in one place, some say he is a bodhisattva in seven places, and some say he has become a Buddha.
 
