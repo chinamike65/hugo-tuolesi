@@ -1,5 +1,5 @@
 ---
-title: "Three Paths - San Shi Dao"
+title: "Three Principal Aspects of the Path - San Shi Dao"
 date: 2022-01-31T12:33:35+01:00
 draft: false
 ---

@@ -43,7 +43,7 @@ World Peace
 
 Practice the Dharma
 
-**Introduction to Vajra Master Ngawang Gyatso**
+**Brief Biography of Vajra Master Ngawang Gyatso**
 
 Master Ngawang Gyatso was born on March 3, 1969 (the fifteenth day of the first lunar month) in Hainan Tibetan Autonomous Prefecture, Qinghai Province.
 
@@ -127,7 +127,7 @@ There is no savior, one's own destiny should be changed by oneself.
 
 Stop worrying.
 
-General religions talk about good and evil, but the methods for dealing with suffering are incomplete.
+Other religions talk about good and evil, but the methods for dealing with suffering are incomplete.
 
 **4. End of Suffering**
 
@@ -166,7 +166,7 @@ Tibetan Buddhism has five characteristics:
 
 Complete teaching
 
-Complete inheritance
+Complete lineage
 
 Complete practice
 
@@ -3749,13 +3749,15 @@ In 1984, Yigen Living Buddha moved the Monastery to its current location.
 
 In 2004, construction began on the new Mahavira Hall and Dharma Protector Hall by Master Ngawang Gyatso, which were also jointly built by Tibetan and Chinese believers.
 
-Therefore, no matter the past or the present, Tuole Monastery is a testimony to the harmony between Tibetan and Chinese people.
+Therefore, throughout its history, Tuole Monastery is a testimony to the harmony between Tibetan and Chinese people.
 
-The architecture of Tuole Monastery fully embodies the characteristics of the integration of Tibetans and Chinese.
+The architecture of Tuole Monastery fully embodies the characteristics of the integration of Tibetan and Chinese styles.
 
 For example, the stone pillars and dragon pillars of the Mahavira Hall highlight the Han culture; the Maitreya Buddha at the entrance of the monastery, Jigong, Master Xuan Zang, Bodhidharma on the Thangka in the Buddhist Temple, and the sixteen Han-style Arhats in the Mahavira Hall all reflect the introduction of Han Buddhist culture.
 
 The collection of scriptures in Tuole Monastery also shows the characteristics of Tibetan-Chinese fusion.
+
+There are Chinese versions of "Qianlong Tripitaka" and so on in the Collection Pavilion.
 
 There are also collections of Chinese Buddhist texts, such as the Complete Works of Master Hongyi.
 
@@ -3765,13 +3767,13 @@ The Mahavira Hall of Tuole Monastery was consecrated by eminent monks from Tibet
 
 The temple holds prayers for the blessings of Guotai and Min'an every year, such as the burial of the treasure vase and the Dakini Buddha's dharma meeting, which are also attended by believers from both Tibetan and Chinese communities.
 
-The integration of Tibetan and Chinese has become an important feature of Tuole Monastery.
+The fusion of Tibetan and Chinese has become an important feature of Tuole Monastery.
 
-Tuole Monastery, where treasures are preserved
+**Tuole Monastery, where treasures are preserved**
 
-Tuole Monastery is located in the holy place of the Dakini Buddha, and there have always been many deeds and exchanges between the dakini and eminent monks.
+Tuole Monastery is located in the holy place of the Dakini Buddha, and there have always been many deeds and exchanges between the dakinis and eminent monks.
 
-On the 10th and 25th of every month, the monastery holds the Dakini Buddha's Dharma Ceremony. Therefore, after the death of the monks and believers here, there are countless people who are reborn in the Dakini Buddha's Pure Land and the Land of Ultimate Bliss.
+On the 10th and 25th of every month, the monastery holds the Ceremony of Dakini Buddha's Dharma. Therefore, after the death of the monks and believers here, there are countless people who are reborn in the Dakini Buddha's Pure Land and the Land of Ultimate Bliss.
 
 There are many magical Buddha treasures in the Tuole Monastery.
 
@@ -3783,9 +3785,9 @@ There is a Guanyin statue in the Tantric Hall, about two feet high, which contai
 
 In addition, there are three Buddha statues of Tsongkhapa in the temple, which contain the relics of Tsongkhapa's body, which are extremely special.
 
-Buddhist scriptures: There are golden scrolls of Prajna Sutra in the collection of Tuole Monastery, several chapters of Buddhist scriptures copied by Venerable Gyaltshap (one of the two disciples of Master Tsongkhapa), and the golden character "Great Prajna Sutra" inherited by Ngawang Gyatso's family.
+Buddhist scriptures: There are golden scrolls of Prajna Sutra in the collection of Tuole Monastery, several chapters of Buddhist scriptures copied by Venerable Gyaltsap Je (one of the two disciples of Master Tsongkhapa), and the golden character "Great Prajna Sutra" inherited by Ngawang Gyatso's family.
 
-Relics: The Tuole Monastery collects the relics of Sakyamuni Buddha, the bone relics of the Bodhisattva, and the bone relics of the Venerable Mujianlian.
+Relics: The Tuole Monastery collects the relics of Sakyamuni Buddha, the bone relics of the Bodhisattva Asanga, and the bone relics of the Venerable Moggallana.
 
 Treasures: Rare treasures such as Manjusri gems, antique instruments inherited from Master Saikangba, etc.
 
@@ -3809,7 +3811,7 @@ Today, the monks in the monastery are all flourishing and prosperous when they s
 
 Since 2002, the monastery has co-hosted the "Anda Dharma Conference" with the Laga Temple and Shizang Temple in Qinghai, and the "Dharma Debate Conference" with Hainan Prefecture and is highly praised by people from all walks of life.
 
-Today, Tuole Monastery has trained more than 30 lecturing masters from novice lamas, and many monks and lay believers worship them as teachers.
+As of today, Tuole Monastery has trained more than 30 lecturing masters from novice lamas, and many monks and lay believers follow them as teachers.
 
 In terms of practice, the monks in the monastery diligently study, think and practice, solemnly observe the precepts, and have been making retreats for two months every year.
 

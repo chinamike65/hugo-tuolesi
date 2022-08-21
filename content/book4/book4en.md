@@ -68,13 +68,12 @@ Practice the Dharma
 
 The fourth of the series "Dharma Ocean Treasures" in Tuole Temple
 
-**Continued from Dharma Ocean Treasures (3)**
+**Continued from Dharma Ocean Treasures (3) - The Three Principal Aspects of the Path (Initial Level)**
 
-The Three Principal Aspects of the Path (Initial Level)
-
-Talks by Ngawang Gyatso Vajra Guru
+#### Talks by Ngawang Gyatso Vajra Guru
 
 **Table of contents**
+#### {#toc-back}
 
 ### Part III - The Three Principal Aspects of the Path
 
@@ -230,7 +229,7 @@ Talks by Ngawang Gyatso Vajra Guru
 
 4. Paramita of Diligence
 
-(1) Armored diligence
+(1) Armoured diligence
 
 (2) Be good and diligent
 
@@ -276,7 +275,7 @@ Talks by Ngawang Gyatso Vajra Guru
 
 4. Exchanging Self for Others
 
-#### Part 4 - Vajrayana
+#### Part IV - Vajrayana
 
 ##### Chapter 1 - Conditions for Practicing the Tantric Vehicle
 
@@ -284,19 +283,19 @@ Talks by Ngawang Gyatso Vajra Guru
 
 **Section 2 - The Purity of Discipline**
 
-Chapter 2 -  Steps in the practice of tantra
+##### Chapter 2 -  Steps in the practice of tantra
 
-Section 1 - Generation Stage
+**Section 1 - Generation Stage**
 
-Section 2 - Completion Stage
+**Section 2 - Completion Stage**
 
-Chapter 3 - Encountering the Difficulties of Tantra
+##### Chapter 3 - Encountering the Difficulties of Tantra
 
-Chapter 4 - The Greatness of Master Tsongkhapa's Teaching
+##### Chapter 4 - The Greatness of Master Tsongkhapa's Teaching
 
-Part 5 -  The Graded Order of Practice
+#### Part V -  The Graded Order of Practice
 
-Introduction to Tuole Monastery
+##### [Introduction to Tuole Monastery]({{< relref "#intro-tuole" >}})
 
 ![Six Realms of Rebirth](/images/sixpathsreincarn.png)
 
@@ -326,8 +325,9 @@ Introduction to Tuole Monastery
 >You who desire liberation, should do likewise.
 >
 
-
-——"A Hymn of Experience (Lam rim nyam gur)"
+>
+>——"A Hymn of Experience (Lam rim nyam gur)"
+>
 
 ---
 
@@ -359,17 +359,17 @@ Buddha Shakyamuni turned the wheel of Dharma three times and gave eighty-four th
 
 The first turning of the Wheel is the Dharma Door of the Four Noble Truths, including the Path of the Initial Level, and the Path of the Middle Level.
 
-Among them, the goal pursued by the Path of the Middle Level is liberation from the six realms of rebirth (samsara). Here, there are two kinds of aspirants to liberation: Shravakas and Arhats.
+Among them, the goal pursued by the Path of the Middle Scope is liberation from the six realms of rebirth (samsara). Here, there are two kinds of aspirants to liberation: Shravakas and Arhats.
 
-Shravakas seek liberation through listening to others’ instruction,the Mahayana, but do not practice it themselves.
+Shravakas seek liberation through listening to others’ instruction, and the Mahayana, but do not practice it themselves.
 
 They follow the Hinayana, and finally obtain the fruit of Arhatship. This is the voice-hearer, the Shravaka.
 
-The Predestined Jue Arhat, also called the Solitary Arhat, mainly trains in the Twelve Causal Links of Dependent Origination.
+The Predestined Arhat, also called the Solitary Arhat, mainly trains in the Twelve Causal Links of Dependent Origination.
 
 In the beginning, this kind of person followed a guru and practiced the Dharma together with the Sangha. When they practiced in this way, they accumulated a hundred kalpas of good fortune. At this time, he made a vow: If he is reborn in the next life, and if there is no Buddha Dharma, or he finds the Dharma but there is no guru, to seek enlightenment on his own.
 
-Due to the power of this vow, the Solitary Arhat will appear in the era of annihilation of the Dharma.
+Due to the power of this vow, the Solitary Arhat will appear in the Degenerate Age of Dharma.
 
 4
 
@@ -387,16 +387,18 @@ Death comes only after life, so where does life come from?
 
 It comes from birth, birth follows pregnancy, and the cause of pregnancy is a defiled consciousness, so what is the cause of this consciousness? 
 
-The emaotions taint consciousness.
+The emotions taint consciousness.
 Where do the emotions come from? 
 
-It is because of the afflictions of ignorance that deeds arise... 
+It is because of the affliction of ignorance that deeds arise... 
 
 Just like that, they gradually understand that the root of samsara is the affliction of ignorance.
 
 They continue to think: 
 
-What is the affliction of ignorance. At this time, due to the accumulated merit of hundreds of kalpas during the time of the flourishing of the Dharma. When you think of it like this, you will follow the vows of the previous life into emptiness, and then you will have realized the truth of emptiness.
+What is the affliction of ignorance.
+
+Due to the accumulated merit of hundreds of kalpas during the time of the flourishing of the Dharma. When you think of it like this, you will follow the vows of the previous life into emptiness, and then you will have realized the truth of emptiness.
 
 Then, if you practice steadily, you will be liberated in one lifetime.
 
@@ -404,11 +406,11 @@ This type of Arhat is called an Arhat of Dependent Origination, an Arhat who has
 
 Solitary Arhats have not only cut off their afflictions, but also cut off part of cognitive obstructions. 
 
-Their level of enlightenment is higher than Shravaka Arhats. Therefore, their appearance has a little of the Buddha's thirty-two marks and eighty auspicious features. For example, they have a part of the topknot, which the Shravaka Arhats do not have.
+Their level of enlightenment is higher than Shravaka Arhats. Therefore, their appearance has a little of the Buddha's thirty-two excellent marks and eighty auspicious features. For example, they have part of the topknot, which the Shravaka Arhats do not have.
 
 5
 
-The goal of the Path of the Middle Scope training is to be liberated. To be liberated is to have an enlightened mind, the realisation of Buddha-nature.
+The goal of the training in the Path of the Middle Scope is to be liberated. To be liberated is to have an enlightened mind, the realisation of Buddha-nature.
 
 Everyone has Buddha-nature, not only humans. 
 
@@ -420,19 +422,19 @@ Mind-only schools believe that the mind is originally pure, but it is defiled by
 
 The Madhyamika school believes that the mind is inherently selfless, it is emptiness, and the mind with emptiness is Buddha-nature.
 
-We can think however we want, but we must understand that everyone has a heart that yearns for liberation, that is, the mind of awareness.
+We can think however we want, but we must understand that everyone has a heart that yearns for liberation, that is, the mind of awakening.
 
-How does an Arhat become liberated by practising the path of the middle scope? After birth, with this awakening mind, he began to practice.
+How does an Arhat become liberated by practising the path of the middle scope? After birth, with this awakening mind, he begins to practice.
 
 First, training in the path of accumulation. The path of accumulation is the way of accumulating good merit.
 
-Then enter the path of joining.
+They then enter the path of joining.
 
 The path of joining, is to prepare for the real entry into emptiness. At this time, you can analyse and realize emptiness.
 
-Quantitative enlightenment requires comparison and analogy to understand, and it is a state of vague understanding.
+Analytical enlightenment requires comparison and analogy to understand, and it is a state of vague understanding.
 
-When you reach the path of seeing, it is possible to realize the truth of emptiness. The nature of reality is clear, and you can understand it very clearly. It is like looking at the Amara fruit in the palm of your hand. It is the true realization of emptiness.
+When you reach the path of seeing, it is possible to realize the truth of emptiness directly. The nature of reality is clear, and you can understand it very clearly. It is like looking at the Amara fruit in the palm of your hand. It is the true realization of emptiness.
 
 After realizing the emptiness of reality, all defilements will be cut off.
 
@@ -442,7 +444,7 @@ Generally speaking, there are two kinds of afflictions: one type are the mental 
 
 When these two kinds of afflictions are completely cut off, the fruit of Arahantship will be obtained.
 
-What does the mind feel like after the troubles are over? 
+What does the mind feel like after the mental afflictions are eliminated? 
 
 Usually, our soul, consciousness and wind-energy are indistinguishable, dwelling in the central channel.
 
@@ -9423,23 +9425,25 @@ TODO
 
 #### Introduction to Tuole Monastery 
 
-The Tuole Monastery above the "lotus platform"
+### The Tuole Monastery above the "lotus platform"{#intro-tuole} 
 
-Tuole Monastery is a famous monastery belonging to the Gelug Sect of Tibetan Buddhism, located in the basin between the three grasslands of Muguitan, Balegetan and Dutan in Guinan County, Hainan Tibetan Autonomous Prefecture, Qinghai Province.
+[Back to Contents]({{< relref "#toc-back" >}})
 
-The monastery is surrounded by mountains, facing Baiguan Pilgrimage Mountain, backed by Bailong Mountain, flanked by Long Mountain on the left and Phoenix Mountain on the right.
+Tuole Monastery is a famous monastery belonging to the Gelug school of Tibetan Buddhism, located in the basin between the three grasslands of Muguitan, Balegetan and Dutan in Guinan County, Hainan Tibetan Autonomous Prefecture, Qinghai Province.
 
-There are Turtle Mountain, Peacock Mountain, Elephant Mountain, Ba Jixiang Mountain, Foshou Mountain and other hills around like lotus petals. The monastery is located on the hill in the middle that rises like a lotus platform. between green water.
+The monastery is surrounded by mountains, facing Baiguan Pilgrimage Mountain, backed by White Dragon Mountain, flanked by Dragon Mountain on the left and Phoenix Mountain on the right.
+
+There are Turtle Mountain, Peacock Mountain, Elephant Mountain, Ba Jixiang Mountain, Foshou Mountain and other hills around like lotus petals. The monastery is located on the hill in the middle that rises like a lotus platform from among green water.
 
 To the south of the temple, the Mangla River flows from south to north; to the north, the Yellow River flows from west to east.
 
-There are three holy lakes to the northeast of the monastery, like three stars falling into the world.
+There are three holy lakes to the northeast of the monastery, like three stars which have fallen to earth.
 
 The river is like a jade belt, and the holy lakes are like beads, protecting this Buddhist holy place.
 
 In 1916, the incarnation of Vajrapani Bodhisattva, Master Tanchen Nuori, founded the Tuole Monastery.
 
-The master recited the six-character mantra 600 million times for the construction of the temple, and recited the "Auspicious Sutra" to bless the consecration of the temple.
+The master recited the six-character mantra 600 million times for the construction of the temple, and recited the "Mangala Sutra" to bless the consecration of the temple.
 
 In 1927, the master passed away and was reborn as the 21st Dharma Master of the Pure Land of Shambhala.
 
@@ -9449,17 +9453,19 @@ In 2004, Guru Ngawang Gyatso began to rebuild the Tuole Monastery.
 
 The pure precepts and perfect teachings of Tuole Monastery attract more and more monks to join.
 
-Although this is a Gelugpa monastery, monks from various sects such as Nyingma, Kagyu, Sakya, and Joning have also gathered here to study and learn from each other.
+Although this is a Gelugpa monastery, monks from various schools such as Nyingma, Kagyu, Sakya, and Joning have also gathered here to study and learn from each other.
 
 Regarding the origin of the monastery, there have been many prophecies by the sages of the past dynasties.
 
-On April 15, 1935, after drinking yogurt in the Potala Palace, the former Tibetan Regent Rezhen Rinpoche turned the porcelain bowl inside out and foretelled that the Tuole Monastery would become the same as the Tibetan Ganden Monastery, Drepung Monastery and Sera Monastery. The sacred place of Tibetan Buddhism is equally famous, and it is supported by believers from all over the world. In its heyday, the number of monks will reach 5,500.
+On April 15, 1935, after drinking yogurt in the Potala Palace, the former Tibetan Regent Rezhen Rinpoche turned the porcelain bowl inside out and foretold that the Tuole Monastery would become the same as the Tibetan Ganden Monastery, Drepung Monastery and Sera Monastery. The sacred place of Tibetan Buddhism is equally famous, and it is supported by believers from all over the world.
+
+At its full capacity, the number of monks will reach 5,500.
 
 The living Buddha left the monk's hat and the shoulders of the Dharma Master Yama as evidence.
 
 **Tibetan-Chinese fusion of Tuole Temple**
 
-The place where Tuole Monastery is today is called Jiarigang (meaning the place where the Han people are concentrated in Chinese), which means the integration of Tibetan and Chinese.
+The place where Tuole Monastery is today is called Jiarigang (meaning 'the place where the Han people are concentrated' in Chinese), which means the integration of Tibetan and Chinese.
 
 In 1916, when Tuole Temple was built, the donations for the construction of the temple were donated by believers from both Tibetan and Han areas.
 
@@ -9471,13 +9477,13 @@ In 1981, Living Buddha Yigen rebuilt Tuole Monastery by the Yellow River with do
 
 In 1984, Yigen Living Buddha moved the Monastery to its current location.
 
-In 2004, the new Mahavira Hall and Dharma Protector Hall started to be built by Master Ngawang Gyatso, which were also jointly built by Tibetan and Chinese believers.
+In 2004, construction began on the new Mahavira Hall and Dharma Protector Hall by Master Ngawang Gyatso, which were also jointly built by Tibetan and Chinese believers.
 
-Therefore, no matter the past or the present, Tuole Monastery is a testimony to the harmony between Tibetan and Chinese people.
+Therefore, throughout its history, Tuole Monastery is a testimony to the harmony between Tibetan and Chinese people.
 
-The architecture of Tuole Monastery fully embodies the characteristics of the integration of Tibetans and Chinese.
+The architecture of Tuole Monastery fully embodies the characteristics of the integration of Tibetan and Chinese styles.
 
-For example, the stone pillars and dragon pillars of the Mahavira Hall highlight the Han culture; the Maitreya Buddha at the entrance of the monastery, Jigong, Xuanzang Master, Bodhidharma on the Thangka in the Buddhist Temple, and the sixteen Han-style Arhats in the Mahavira Hall all reflect the introduction of Han Buddhist culture.
+For example, the stone pillars and dragon pillars of the Mahavira Hall highlight the Han culture; the Maitreya Buddha at the entrance of the monastery, Jigong, Master Xuan Zang, Bodhidharma on the Thangka in the Buddhist Temple, and the sixteen Han-style Arhats in the Mahavira Hall all reflect the introduction of Han Buddhist culture.
 
 The collection of scriptures in Tuole Monastery also shows the characteristics of Tibetan-Chinese fusion.
 
@@ -9491,44 +9497,39 @@ The Mahavira Hall of Tuole Monastery was consecrated by eminent monks from Tibet
 
 The temple holds prayers for the merit of Guotai and Min'an every year, such as the burial of the treasure vase and the Dakini Buddha's dharma meeting, which are also attended by believers from both Tibetan and Chinese communities.
 
-The integration of Tibetan and Chinese has become an important feature of Tuole Monastery.
+The fusion of Tibetan and Chinese has become an important feature of Tuole Monastery.
 
-Tuole Monastery, where treasures are preserved
+**Tuole Monastery, where treasures are preserved**
 
-Tuole Monastery is located in the holy place of the Dakini Buddha, and there have always been many deeds and exchanges between the dakini and eminent monks.
+Tuole Monastery is located in the holy place of the Dakini Buddha, and there have always been many deeds and exchanges between the dakinis and eminent monks.
 
 On the 10th and 25th of every month, the monastery holds the Dakini Buddha's Dharma Ceremony. Therefore, after the death of the monks and believers here, there are countless people who are reborn in the Dakini Buddha's Pure Land and the Land of Ultimate Bliss.
 
-Buddhist scriptures: There are golden scrolls of "Prajna Sutra" in the collection of Tuola Temple, several chapters of Buddhist scriptures written by Jia, Cao Jie, (one of the two major disciples of Master Tsongkhapa), and passed down by the family of Ngawang Gyatso Vajra Master. , the golden word "Great Prajna Sutra".
+There are many magical Buddha treasures in the Tuole Monastery.
 
-Relics: There are Sakyamuni Buddha relics, Asanga relics, Bodhisattva bone relics, and Muganlian bone relics.
+Buddhist scriptures: There are golden scrolls of Prajna Sutra in the collection of Tuole Monastery, several chapters of Buddhist scriptures copied by Venerable Gyaltsap Je (one of the two disciples of Master Tsongkhapa), and the golden character "Great Prajna Sutra" inherited by Ngawang Gyatso's family.
 
-Treasures: rare treasures such as Manjusri gems, antique methods inherited by Master Saikangba, and utensils.
+Relics: The Tuole Monastery collects the relics of Sakyamuni Buddha, the bone relics of the Bodhisattva Asanga, and the bone relics of the Venerable Moggallana.
 
-Thangka: All murals in Tuola Temple are handwritten and painted by the lama of the temple;
+Treasures: Rare treasures such as Manjusri gems, antique instruments inherited from Master Saikangba, etc.
 
-The thangkas in the monastery are all handwritten by the most famous thangka painters, and they are the treasures of Tibetan Buddhism.
+Thangkas: All the murals in Tuole Monastery are painted by the lamas of the temple; the thangkas in the temple are all painted by the most famous thangka painters, which can be called real treasures of Tibetan Buddhism.
 
-Ganlu Pills: The Ganlu Pills of Tuole Temple are composed of the sweet dew, dew, various Tibetan medicines and the merit of the guru from the Buddha statues of Tuole Temple, and are passed through the whole temple, and the lamas recite the sutras day and night, and are very precious.
+Ganlu Pills: The Ganlu Pills of Tuole Monastery are composed of the nectar dropped by the Buddha statues of Tuole Monastery, various Tibetan medicines and the blessings of the guru, and are blessed by the lamas of the whole monastery day and night. They are very precious.
 
-The monks of the Tuola Temple who cultivate the talents are simple and kind, pure and solemn, of high moral character and elegant in manners.
+Tuole Monastery, where monks are cultivated
 
-In terms of cultivating monks, Tuola Temple pays attention to the combination of the study of the classics and the practice.
+The monks in the monastery are simple and kind, pure and dignified, of high moral character and elegant in manners.
 
-At present, there are hundreds of monks living in Tuola Temple, and there are many monks who come and go.
+In the training of monks, Tuole Monastery pays attention to the combination of the study of the classics and practice.
+
+At present, there are hundreds of resident monks at Tuole Monastery, as well as many visiting monks.
 
 Since presiding over the monastery in 1994, Master Ngawang Gyatso has worked tirelessly to teach the Five Great Treatises, the Three Ways of Buddhism, and the Four Tantras. The Buddhist Geshe (Doctor of Buddhist Studies).
 
-The guru is earnest and good at guiding, the monks study hard, and the monks are born in large numbers.
-The monks in the monastery are simple and kind, pure and dignified, of high moral character and elegant in manners.
+Since 2002, the monastery has co-hosted the "Anda Dharma Conference" with the Laga Temple and Shizang Temple in Qinghai, and the "Dharma Debate Conference" with Hainan Prefecture and is highly praised by people from all walks of life.
 
-In terms of cultivating monks, Tuole Monastery pays attention to the combination of the study of the classics and practice.
-
-At present, there are hundreds of resident monks at Tuole Monastery, and there are many visiting monks.
-
-Since 2002, the monastery has co-hosted the “An Da Dharma Conference” with the Laga Temple and the Shizang Temple in Qinghai, and jointly held the “Dharma Conference” with Hainan Prefecture, all of which have achieved good results and won a lot of eminent monks. Dade and people from all walks of life highly praised.
-
-Today, the monks in the monastery are all flourishing and prosperous when they study, think, practice, and debate.
+As of today, Tuole Monastery has trained more than 30 lecturing masters from novice lamas, and many monks and lay believers follow them as teachers.
 
 Since 2002, the monastery has co-hosted the "Anda Dharma Conference" with the Laga Temple and Shizang Temple in Qinghai, and the "Dharma Debate Conference" with Hainan Prefecture is highly praised by people from all walks of life.
 
@@ -9546,13 +9547,16 @@ In response to the great wish of Ngawang Gyatso to spread the Dharma and benefit
 
 In the next few years, Tuole Monastery will build a Maitreya Hall, a Tara Hall, two Dharma Protector Halls, a Buddha Hall, a Library, a Buddhist Academy, a Monk House, One Hundred stupas, a Mani Sutra Road and other buildings.
 
-With the support of the believers in the ten directions, in the near future, Tuole Monastery will be presented to the believers in the ten directions with a brand-new appearance.
+With the support of believers in the ten directions, in the near future, Tuole Monastery will be presented with a brand-new appearance.
 
 May all sentient beings be freed from the sea of ​​misery and be safe forever!
 
 Errata Statement: If you find proofreading errors in this book
+or have any suggestions, please contact us: 
 
-Or have better suggestions, please contact us: , Mobile: 138-2334-1763, Email:5854939@qq.com
+Mobile: +86 13823341763, 
+
+Email:5854939@qq.com
 
 ![EndLogo](/images/endlogo.png)
 
