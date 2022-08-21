@@ -210,33 +210,33 @@ Section 2 - Bodhisattva sees the way  ……. 76
 
 6. Seeing the virtues of the Bodhisattva ……………… 86
 
-##### Chapter 6: The Bodhisattva's Path to Practice ................................................................................ 91
+##### Chapter 6: The Bodhisattva's Path to Practice .................... 91
 
 Section 1 - Bodhisattva Cultivation ………………. 92
 
-Section 2 - The Noble Eightfold Path……………… 96
+Section 2 - The Noble Eightfold Path ……………… 96
 
-Section 3 -  merits of the Bodhisattva on the ground………………. 98
+Section 3 -  merits of the Bodhisattva on the ground ………………. 98
 
-##### Chapter 7 - Learning the Way…………………… 103
+##### Chapter 7 - Learning the Way …… 103
 
-Section 1 - Eighteen Realms…………………….. 103
+Section 1 - Eighteen Realms …………………….. 103
 
-Section 2 - Twelve Dependent Origination……………… 104
+Section 2 - Twelve Links of Dependent Origination……………… 104
 
-Section 3 -  the Enlightenment Path…………………….. 109
+Section 3 -  Path to  Enlightenment  ……………….. 109
 
 Section 4 - The Difficulty of Realizing Emptiness……………….. 112
 
-Section 5 - The Four Noble Truths……………………. 115
+Section 5 - The Four Noble Truths . 115
 
-1. Episodes  ………………………….. 116
+1. The truth of suffering  ………………………….. 116
 
-2. Suffering  …………………….. 116
+2. The truth of the cause of suffering  …………………….. 116
 
-3. Tao  …………………… 119
+3. The truth of the path that leads to the end of suffering  …………………… 119
 
-4. Extinguishing …………………… 120
+4. The truth of the end of suffering …………………… 120
 
 Section 6 -  fully captures the voice-hearers of the Buddha's language... 121
 
@@ -304,11 +304,11 @@ Section 2 Ten Paramitas (Perfections)...3
 
 Section 1 - Anxiety……………………. 159
 
-1. 6 Fundamental Afflictions ............ 159
+1. Six Root Afflictions ....... 159
 
-2. Twenty afflictions with afflictions………………. 168
+2. Twenty cognitive afflictions  ………………. 168
 
-Section 2 - Karma…………………………. 180
+Section 2 - Karmic Afflictions ………. 180
 
 1. Killing ……………… 181
 
