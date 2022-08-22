@@ -7,11 +7,17 @@ draft: false
 #### The Buddha Speaks the Ultimate Extinction of the Dharma Sutra
 
 
-Thus I have heard. At one time the Buddha was in the state of Kushinagara. The Tathagata was to enter nirvana within three months and the bhikshus and Bodhisattvas as well as the great multitude of beings had come to pay homage to the Buddha and to bow in reverence. The World Honored One was tranquil and silent. He spoke not a word and his light did not appear. Worthy Ananda bowed and asked the Buddha,
+Thus I have heard. 
+
+At one time the Buddha was in the state of Kushinagara. The Tathagata was to enter nirvana within three months and the bhikshus and Bodhisattvas as well as the great multitude of beings had come to pay homage to the Buddha and to bow in reverence. 
+
+The World Honored One was tranquil and silent. He spoke not a word and his light did not appear. Worthy Ananda bowed and asked the Buddha,
 
 ”O Bhagavan, heretofore whenever you spoke the Dharma, awesome light would naturally appear. Yet today among this great assembly there is no such radiance. There must be a good cause for this and we wish to hear the Bhagavan’s explanation.”
 
-The Buddha remained silent and did not answer until the request had been repeated three times. He then told Ananda,
+The Buddha remained silent and did not answer until the request had been repeated three times. 
+
+He then told Ananda,
 
 ”After I enter nirvana, when the Dharma is about to perish, during the evil age of the five turbidities, the way of demons will flourish. Demonic beings will become shramanas; they will pervert and destroy my teachings. Monastics will wear the garb of laypersons and will prefer handsome clothes. Their precept sashes will be made of multi-colored cloth. They will use intoxicants, eat meat, kill other beings and they will indulge in their desire for flavorful food. They will lack compassion and they will bear hatred and exhibit jealousy even among themselves.
 
