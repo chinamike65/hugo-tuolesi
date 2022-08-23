@@ -224,7 +224,7 @@ Section 3 -  Merits of the Bodhisattva ………………. 98
 
 ##### Chapter 7 - Learning the Way …… 103
 
-Section 1 - Eighteen Realms …………………….. 103
+Section 1 - Eighteen Dhatus …………………….. 103
 
 Section 2 - Twelve Links of Dependent Origination……………… 104
 
@@ -232,7 +232,7 @@ Section 3 -  Path to  Enlightenment  ……………….. 109
 
 Section 4 - The Difficulty of Realizing Emptiness……………….. 112
 
-Section 5 - The Four Noble Truths . 115
+##### Section 5 - The Four Noble Truths . 115
 
 1. The truth of suffering  ………………………….. 116
 
@@ -244,9 +244,9 @@ Section 5 - The Four Noble Truths . 115
 
 Section 6 -  fully captures the voice-hearers of the Buddha's language... 121
 
-Section 7 - The Four Ways of Learning in the Three Vehicles ................................................................................ 122
+Section 7 - The Four Ways of Learning in the Three Vehicles .......... 122
 
-1. Views on Dharma Realization ................................................................ 123
+1. Views on Dharma Realization .................... 123
 
 2. The conception of righteousness………………. 125
 
@@ -280,7 +280,7 @@ Section 3 - Mahayana does not cultivate the Tao………………. 134
 
 ##### Chapter 10 - Bodhisattva …………………… 142
 
-The first stanza of Bodhisattva…………………….. 142
+The first stanza of Bodhisattva …………………….. 142
 
 Section 2 Ten Paramitas (Perfections)...3
 
@@ -304,9 +304,9 @@ Section 2 Ten Paramitas (Perfections)...3
 
 10. Primordial wisdom ……………… 157
 
-##### Chapter 11 - Inner Reincarnation……………. 158
+##### Chapter 11 - Inner Reincarnation ……………. 158
 
-Section 1 - Anxiety……………………. 159
+Section 1 - Afflictions ……………………. 159
 
 1. Six Root Afflictions ....... 159
 
@@ -358,7 +358,7 @@ Section 3 - Perfect Fruit ………………. 198
 
 Section 1 - Merits of the mantra……………… 199
 
-Section 2 - The most accurate way of reciting the mantra of the Heart Sutra...... 201
+Section 2 - The most accurate way of reciting the mantra of the Heart Sutra ...... 201
 
 1. Pronunciation ……………….. 201
 
@@ -2147,27 +2147,27 @@ When you leave the time, you can see the true face of the mundane truth, just li
 
 A Bodhisattva on the Path of Seeing mainly practices the Seven Factors of Awakening, sometimes translated as the seven points of enlightenment.
 
-The Seven Factors of Awakening are: Mindfulness, Investigation, Energy, Joy, Tranquility, Concentration, and Equanimity Bodhi.
+The Seven Factors of Awakening are: Mindfulness, Investigation, Energy, Joy, Tranquility, Concentration, and Equanimity.
 
 Mindfulness of bodhichitta is the root of enlightenment that can fix other bodhisattva as immovable in the object.
 
 Joy or rapture, investigation, and energy are to be developed when experiencing sloth and torpor. Relaxation, concentration, and equanimity are to be developed when experiencing restlessness or worry. Mindfulness should be constantly present to remain aware of physical change as well as mental change.
 
-Investigation (investigation-of-states) - begins with seeing the Dharma, thoroughly understands emptiness, and can obtain more thorough wisdom, and wisdom can break obstacles.
+Investigation (investigation-of-states or discernment of phenomena) - begins with seeing the nature of phenomena, thoroughly understanding emptiness, and can obtain more thorough wisdom, and wisdom can break obstacles.
 
-Energy - The energy of this Bodhi Point can continuously increase the Bodhisattva's status as a bodhisattva.
+Energy (diligence) - The energy of this factor of awakening can continuously increase the Bodhisattva's status as a bodhisattva.
 
 Most of us see that it takes a long time to become a Buddha, and we need to accumulate a lot of good fortune. If we feel that we cannot do it, we will become lazy.
 
-Bodhisattvas will not do this. Even if the kalpas of the total amount of sand in the universe are counted as one day, thirty days are one month, and twelve months are one year, and only in the time calculated in this way can one become a Buddha, the Bodhisattva will not be lazy, and will always be able to attain Buddhahood. With diligence, faith will not retreat until you become a Buddha.
+Bodhisattvas will not do this. Even if the kalpas of the total amount of sand in the universe are counted as one day, thirty days are one month, and twelve months are one year, and only in the time calculated in this way can one become a Buddha, the Bodhisattva will not be lazy, and will always be able to attain Buddhahood. With energy and hard work, faith will not retreat until you become a Buddha.
 
-If you get the blissful bodhi points, you will be very happy when you practice all the dharmas.
+If you attain the element of Joy, you will be very happy in all of your practice.
 
-From the moment of seeing the path, the bodhisattva can give to his own body.
+From the moment of entering the path of seeing, the bodhisattva can give to his own body.
 
-At this time, even if his hand is cut off, he will be happy, there is no unhappy.
+At this time, even if his hand is cut off, he will be happy, there is no unhappiness.
 
-Ordinary Bodhisattvas below the Dao level can't donate their bodies, because they haven't obtained the blissful Bodhi points, they will feel painful.
+Ordinary Bodhisattvas below the Dao level can't give their bodies, because they haven't obtained the element of Joy, and they will feel pain.
 
 When suffering, you will regret giving your body, you will lose the merit of giving, and your body will be wasted in vain.
 
@@ -2187,59 +2187,62 @@ But in Tantra, this is absolutely forbidden, because there are many meridians on
 
 Therefore, Tantra requires that the body should not be harmed and must be well protected.
 
+Pliancy -
 At this time, the Bodhisattva's body is very light, and some can even fly around.
 
-To be able to fly does not necessarily have to reach the position of seeing the Dao, not only Buddhism, but also some outsiders have this kind of supernatural power, and some can also fly by relying on incantations and medicinal talismans.
+To be able to fly one does not necessarily have to reach the path of seeing. Not only Buddhists, but also some outsiders have this kind of supernatural power, and some can also fly by relying on incantations and medicinal talismans.
 
-But here it only refers to the bodhisattvas who have attained the Bodhi points of light peace.
+But here it only refers to the bodhisattvas who have attained the light body of peace, or pliancy of body.
 
-When the Bodhisattva of Ding Bodhi and Dao enters into meditation, apart from his own power of vows and Buddha power, neither sentient beings nor the ruthless world can be disturbed, and his mind can stay in one place, without being distracted, and without vexation and delusion.
+When the Bodhisattva with the element of Pliancy enters into samadhi, apart from his own power of vows and Buddha power, neither sentient beings nor the ruthless world can be disturbed, and his mind can stay focused, without being distracted, and without vexation and delusion.
 
-The renunciation of bodhisattva means to abandon all distinctions, to be equal to things, and to have an unbiased mind.
+The equanimity of the Bodhisattva means to abandon all distinctions, to be equal to things, and to have an unbiased mind.
 
-Seeing the meditation obtained by a Bodhisattva of the Taoist position is very happy, but he will give up this kind of happiness, and no matter how great the happiness is, he will not be greedy.
+The samadhi obtained by a Bodhisattva on the Path of Seeing is very happy, but he will give up this kind of happiness, and no matter how great the happiness is, he will not be greedy.
 
-Seeing the Seven Factors of Awakening of the Bodhisattva Path are like the seven treasures of the wheel-turning holy king.
+The Seven Factors of Awakening of the Bodhisattva Path of Seeing are like the seven treasures of the wheel-turning holy king.
 
 Mindfulness is like a wheel treasure, which can counteract unbroken obstacles; Investigation is like an elephant treasure, which can eliminate the discriminating mind of the enemy; Energy is like a horse treasure, which can promote all things to be accomplished quickly; Joy ​​is like wishful thinking. Treasures can fill practitioners with Dharma joy and wish fulfillment; Tranquility is like the Queen's treasure, which can make practitioners happy in body and mind; Concentration (samadhi) is like the treasure of the head of the household, which can make practitioners' merits and virtues at ease and wishful luck; Equanimity is like the treasure of ministers, It can make the traveler's heart not delay, and his wishes come true.
 
 6. Seeing the virtues of Bodhisattva
 
-When the Bodhisattva sees the Dao, he can see the Buddha. The Buddha's body is originally a light body of consciousness and wisdom. Before reaching the Dao position, the naked eye cannot see the Buddha.
+The Bodhisattva on the Path of Seeing, he can see the Buddha. The Buddha's body is originally a light body of consciousness and wisdom. Before reaching the Path of Seeing, the naked eye cannot see the Buddha.
 
-Bodhisattvas who have reached the path of Seeing and above can see the Buddha's thirty-two excellent marks, and the eighty follow the sambhogakayas that like solemn appearances.
+Bodhisattvas who have reached the Path of Seeing and above can see the Buddha's thirty-two excellent marks, and the eighty solemn appearances of the sambhogakaya.
 
-When the Bodhisattva sees the beginning of the path, he can fly to the Buddha's Pure Land.
+When the Bodhisattva reaches the path of seeing, he can fly to the Buddha's Pure Land.
 
-Those who can fly to the Pure Land do not necessarily reach the position of seeing the Dao. In the past, there were several great virtues who practiced the dakini tantra in Tibetan areas and brought their bodies to the Pure Land, but they did not reach the position of seeing the Dao.
+Those who can fly to the Pure Land do not necessarily reach the position of seeing the Dao. In the past, there were several great virtues who practiced the dakini tantra in Tibet and brought their bodies to the Pure Land, but they did not reach the path of seeing.
 
 Seeing that a Bodhisattva in the Taoist position can turn an instant blessing into a hundred kalpas, and a hundred kalpas can be turned into an instant.
 
-In the past, there was a 16-year-old young lama in Sera Monastery in Lhasa who went to the back mountain of Drepung Monastery to find cow dung and make a fire.
+In the past, there was a 16-year-old lama in Sera Monastery in Lhasa who went to the mountains behind Drepung Monastery to find cow dung for making a fire.
 
-At that time, many practitioners practiced in the cave behind the Drepung Monastery. When the young lama was looking for cow dung, an old lama came out of the cave and asked the young lama to come and drink tea.
+Many practitioners meditated in the caves behind Drepung Monastery. When the young lama was out looking for cow dung, an old lama came out of the cave and asked him to come and drink tea.
 
-They drank milk tea and chatted for a day. At sunset, the little lama said, "I'm chatting with you today. I didn't pick up the cow dung. I'm going back."
+They drank milk tea and chatted for a day. At sunset, the young lama said, "I've been chatting with you all day. I haven't collected the cow dung yet. I'm going back."
 
-The old lama said, where are you going now? He said that I would go to Sera Monastery. The old Lama said, Sera Monastery doesn’t have your home anymore. The young Lama said how could there be no home for me? I want to go back.
+The old lama said, where are you going now? He said that I would go to Sera Monastery. The old Lama said, you have no home in Sera Monastery anymore. The young Lama said, "How can there be no home for me? I want to go back."
 
-The old lama said, you should just stay, it has been a long time, and there is no home for you in Sera Monastery.
+The old lama said, "You should just stay, it has been a long time, and there is no home for you in Sera Monastery."
 
-The little lama did not understand what he was talking about, so he went back to the Sera Monastery.
+The young lama did not understand what he was talking about, so he went back to the Sera Monastery.
 
-The young lama returned to the Sera Monastery and found that the entire Sera Monastery had changed. He was very surprised.
+The young lama returned to Sera Monastery and found that the entire monastery had changed. He was very surprised.
 
-When he got home, he found an old lama living there, and he said to the old lama, why are you in my house? The old lama said that this was my home, and they started arguing about it.
+When he got home, he found an old lama living there, and he said to the old lama, "Why are you in my house?"
 
-The old lama said that my master lived in this house and left the house to me after he passed away. This room has been around for more than 100 years.
+The old lama said that this was his home, and they started arguing about it.
 
-Little Lama said how is it possible? I just came back from going out this morning.
+The old lama said "My master lived in this house and left the house to me after he passed away. This room has been around for more than 100 years."
 
-The two continued to quarrel, and the other lamas didn't care when they heard the quarrel. A 116-year-old old lama heard about the incident and said he wanted to see it. The old lama was surprised when he saw the young lama, because this The old Lama and this young Lama are the same age, come from the same place, and they are good friends at the same time.
+The young lama asked "How is this possible? I went out only this morning, and I have just got back."
 
-He said to the young lama: You were lost a hundred years ago. The lamas of the entire Sera Monastery came to look for you, and the old lama who took care of you also looked for you for a few years. Everyone didn’t know where you were and thought you were dead. , also chanting over you.
+The two continued to quarrel, and the other lamas didn't like it when they heard the quarrel. A 116-year-old old lama heard about the incident and said he wanted to see them. The old lama was surprised when he saw the young lama, because this old Lama and this young Lama were the same age, from the same place, and they were good friends in the past.
 
-It turned out that the old lama who lived in the cave behind the Drepung Monastery was a great siddha named Dolungwa Osai Dorje, who had blessed one hundred years into one day.
+He said to the young lama: "You went missing a hundred years ago. The lamas of the entire Sera Monastery went to look for you, and the old lama who took care of you also looked for you for a few years. No one knew where you were and thought you were dead. We chant mantras for you too.
+
+It turned out that the old lama who lived in the cave behind the Drepung Monastery was a great siddha named Dolungwa Osai Dorje, who had compressed one hundred years into one day.
 
 From the moment of seeing the Bodhisattva on the Taoist position, with such merits, one can bless a moment for a hundred years, or even thousands of years.
 
@@ -2253,7 +2256,7 @@ The great achiever Dolongwa Osai Dorje mentioned earlier did not pass away. He i
 
 Master Ben Gongjia of Kadampa did not pass away either, and he was seen before.
 
-When you meet a Bodhisattva who has seen the Way or above, you need a lot of good fortune.
+To meet a Bodhisattva on the Path of Seeing or above, you need a lot of good fortune.
 
 My disciple Sonam Gyatso and I went to the back mountain of Drepung Monastery, and wanted to go to the cave where Gyalm Dang Shepa retreated to worship. The master had retreated in that cave for thirty-two years.
 
@@ -2279,25 +2282,27 @@ For them, wherever they are is bliss.
 
 Moon called Bodhisattva
 
-Chapter 6 The Bodhisattva Cultivation
+##### Chapter 6 The Bodhisattva Cultivation
+
 "Therefore, there is no form, no feeling, thoughts, actions, consciousness, no eyes, ears, nose, tongue, body, mind, no form, body, fragrance, touch, and Dharma".
 
 In the emptiness meditation of the Bodhisattva, there is only the emptiness of the ultimate truth, and there is no mundane truth.
 
-There is no form, feeling, thought, action, and consciousness, no eyes, ears, nose, tongue, body, or mind, no form, sound, smell, taste, touch, or dharma.
+There is no form, feeling, thought, action, and consciousness, no eyes, ears, nose, tongue, body, or mind, no form, sound, smell, taste, touch, or things.
 
 The hidden meaning is to talk about Mahayana Bodhisattva cultivating the way.
 
-The moment when you realize emptiness, you will see the Dharma at the beginning. The time for the Bodhisattva to see the Dharma will be a little longer, because you need to accumulate a lot of resources, and the moment of seeing the Dharma in the Hinayana is over.
+The moment when you realize emptiness, you will see the Dharma at the beginning. The time for the Bodhisattva to see the Dharma will be a little longer, because you need to accumulate a lot of merit, and the moment of seeing the Dharma in the Hinayana is over.
 
-Beginning with the removal of the obstacles of co-birth knowledge, the Bodhisattva Path of Seeing entered the cultivation way.
+Beginning with the removal of the obstacles of co-birth knowledge, the Bodhisattva enters the Path of Seeing.
 
 91
 
-The first section of the bodhisattva practice
-Bodhisattvas from one place to ten places belong to Taoism.
+##### Section 1 - of the bodhisattva practice
 
-Therefore, there are different levels of cultivation, from the cultivation of a bodhisattva in one place, a bodhisattva in two places, a bodhisattva in three places, to the cultivation of a bodhisattva in ten places.
+Bodhisattvas of the first bhumi to of the tenth bhumi belong to Taoism.
+
+Therefore, there are different levels of cultivation, from the cultivation of a bodhisattva of the first bhumi, a bodhisattva of the second bhumi, a bodhisattva of the third bhumi, up to the cultivation of a bodhisattva of the tenth bhumi.
 
 The afflictions that are broken during the cultivation stage are the innate afflictions, and the knowledge that is broken is also the innate afflictions.
 
@@ -2401,89 +2406,91 @@ Wisdom Paramita is the emptiness of all dharmas in the mind.
 
 After the Buddhas and Tathagatas imparted the great light empowerment to the Bodhisattvas of the Ten Grounds, the Bodhisattvas of the Ten Grounds will soon be able to master all the dharmas and realize the Great Bodhi.
 
-From one place to ten places, the Bodhisattva and Bodhisattvas who have attained the Way are called after attaining the Way. At this time, the way to cultivate is the Eighth Noble Way.
+From one place to ten places, the Bodhisattva and Bodhisattvas who have attained the Way are called after attaining the Way. At this time, the way to cultivate is the Noble Eightfold Path.
 
-Section 2 Noble Eightfold Path
-After the Bodhisattva from the first place to the ten places of the cultivating position has left the concentration, it is called after cultivating the Dao and attaining the Dao.
+##### Section 2 - Noble Eightfold Path
+
+After the Bodhisattva of the first bhumi up to the tenth bhumi of the path of concentration, it is called the post-meditation of the path of meditation.
 
 At this time, we need to cultivate the Noble Eightfold Path. The function of the Noble Eightfold Path is to obtain the Dharma before attaining the order, but to achieve Consummation after attaining the Dharma.
 
-The Noble Eightfold Path is right view, right thought, right speech, right action, right livelihood, right effort, right mindfulness, and right concentration.
+The Noble Eightfold Path is Right View, Right Thought, Right Speech, Right Action, Right Livelihood, Right Effort, Right Mindfulness, and Right Concentration (Samadhi).
 
-Right View The correct view of the Four Noble Truths , etc.
+**Right View** - The correct view of the Four Noble Truths, etc.
 
-Right thinking , also called right thinking and right aspiration, is the correct thinking and understanding of the Four Noble Truths and other Buddhist principles.
+**Right Thought** - also called Right Thinking and Right Intention, is the correct thinking and understanding of the Four Noble Truths and other Buddhist principles.
 
 96
 
-Right speech Don't speak any non-Buddhist language.
+**Right Speech** - Don't speak any non-Buddhist language.
 
 The principles taught are the same as those taught by the Buddha, and they are in accordance with the principles and the Dharma.
 
-Righteousness Make oneself abide in pure and righteousness, and eliminate all wrong and wrong conduct.
+**Right Action** - Make oneself abide in purity and right behaviour, and eliminate all wrong and unwholesome conduct.
 
-Right Livelihood Live a pure and legitimate life in accordance with the teachings of the Buddha.
+**Right Livelihood** - Live a pure and legitimate life in accordance with the teachings of the Buddha.
 
-Zheng diligently cultivate the path of Nirvana with one heart and one mind.
+**Right Effort** - diligently cultivate the path of Nirvana with one heart and one mind.
 
-Bodhisattvas on the Taoist level focus on the pursuit of the Buddha’s land of indwelling nirvana. Bodhisattvas below the Taoist level still have distracting thoughts. For example, the Bodhisattva on the path of resources not only pursues the fruition of Buddhahood, but also pursues the five supernatural powers and a clean body.
+Bodhisattvas on the Path of Meditation focus on the pursuit of the Buddha’s land of indwelling nirvana. Bodhisattvas below the Taoist level still have distracting thoughts. For example, the Bodhisattva on the path of resources not only pursues the fruition of Buddhahood, but also pursues the five supernatural powers and a clean body.
 
-Mindfulness clearly remembers Buddhist truths such as the Four Noble Truths.
+**Right Mindfulness** - clearly remembers Buddhist truths such as the Four Noble Truths.
 
-Right Concentration Practise meditation, concentrate on one situation, and observe the principles of the Four Noble Truths in meditation.
+**Right Concentration** - Practise meditation, single-pointed concentration, and observe the principles of the Four Noble Truths in meditation.
 
-The object of the Noble Eightfold Path is the Four Noble Truths.
+The object of the Noble Eightfold Path is to realise the Four Noble Truths.
 
-To practice the Dharma is to cultivate the Noble Eightfold Path according to the wisdom of the later attained Dao after leaving the concentration.
+To practice the Dharma is to cultivate the Noble Eightfold Path according to the wisdom of the post-meditation of the path of meditation..
 
 After attaining the Dao, the main practice is the illusory method. After the practitioner comes out of concentration, the five sense organs will see, hear, and perceive the five realms, such as the art of contemplating illusions.
 
-For example, when observing people without self, you will see that the various "Is" that you originally imagined are like illusions, and in the end there is only the "I" in the famous saying, and then you will understand: the real me is In this way, although it is an illusion, it can create good and bad karma and receive various results.
+For example, when observing people without self, you will see that the various "I's" that you originally imagined are like illusions, and in the end there is only the "I" in the famous saying, and then you will understand: the real me is Tathata, although it is an illusion, it can create good and bad karma and receive various results.
 
-Then, the various Dependent Origination Laws related to it are also something that I have to understand and accept.
+Then, the Twelve Links of Dependent Origination related to it are also something that we have to understand and accept.
 
-The third section of the merits of the Bodhisattva
-The merits of the Bodhisattva ascended to the ground are incredible, and can be subdivided. Every time a Bodhisattva rank increases, the merits will increase thousands of times.
+Section 3 - Merits of the Bodhisattva
 
-The first bodhisattva can obtain twelve hundred kinds of merits in an instant: transform into a hundred incarnations; each incarnation is surrounded by a hundred bodhisattvas; can see the birth and death of a hundred kalpas; shake a hundred worlds; enter a hundred kinds of samadhi; see a hundred people Buddha; received the blessing of hundreds of Buddhas; manifested in hundreds of Buddha-fields; visited hundreds of pure lands; opened hundreds of Dharma doors; matured and liberated hundreds of sentient beings; lived in the world for hundreds of kalpas.
+The merits of the Bodhisattva on the First Bhumi are incredible, and can be subdivided. Every time a Bodhisattva's rank increases, the merit will increase thousands of times.
 
-The twelve merits are compared one by one. The merits of Bodhisattvas in the second bhumi are one thousand, the third is one hundred thousand, the fourth is a hundred kos, the fifth is a thousand kos, the sixth is a hundred thousand kos, and the seventh is a hundred thousand kos. In Nayuta, the number of dust particles in the 103,000 Great Thousand Worlds is the eighth bhumi, the number of dust particles in the million Asamky worlds is the number of the ninth bhumi, and the number of dust particles in the indescribable and unspeakable 3,000 Great Thousand Worlds is the tenth bhumi.
+The Bodhisattva of the first bhumi can obtain twelve hundred kinds of merits in an instant: transform into a hundred incarnations; each incarnation is surrounded by a hundred bodhisattvas; can see the birth and death of a hundred kalpas; shake a hundred worlds; enter a hundred kinds of samadhi; see a hundred people Buddha; received the blessing of hundreds of Buddhas; manifested in hundreds of Buddha-fields; visited hundreds of pure lands; opened hundreds of Dharma doors; matured and liberated hundreds of sentient beings; lived in the world for hundreds of kalpas.
 
-We now have a lot of afflictions and karmic obstacles, but now that we understand the five realms, we will rejoice in the merits of Bodhisattva.
+The twelve merits are compared one by one. The merits of Bodhisattvas in the second bhumi are one thousand, the third is one hundred thousand, the fourth is a hundred kos, the fifth is a thousand kos, the sixth is a hundred thousand kos, and the seventh is a hundred thousand kos. In Nayuta, the number of dust particles in the 103,000 Great Thousand Worlds is the eighth bhumi, the number of dust particles in the million Asamkhaya worlds is the number of the ninth bhumi, and the number of dust particles in the indescribable and unspeakable 3,000 Thousand-Fold Worlds is the tenth bhumi.
 
-For example, in the past, when I thought of a Bodhisattva of the Ten Grounds, such as Mahasattva Bodhisattva, my mind would be confused, unable to think of the merits and virtues of Mahathirst Bodhisattva.
+We now have a lot of afflictions and karmic obstacles, but now that we understand the five paths, we will rejoice in the merits of Bodhisattva.
 
-Now you can think of it, what kind of merit does Mahasattva Bodhisattva possess? In an instant, the Bodhisattva can see as many Buddhas as there are grains of sand in the universe; in an instant, he can enter the pure land of so many Buddhas; in an instant, he can preach so many dharmas. It is very important to understand these.
+For example, in the past, when I thought of a Bodhisattva of the Tenth Bhumi, such as Mahasattva Bodhisattva, my mind would be confused, unable to imagine the merits and virtues of Mahasattva Bodhisattva.
 
-Bodhisattvas from the first bhumi to the tenth bhumi can originally live in the world for hundreds of thousands of kalpas, but some bodhisattvas sometimes want to be reincarnated in the three realms, for example, they want to be reincarnated to save sentient beings.
+Now you can think of it, what kind of merit does Mahasattva Bodhisattva possess? In an instant, the Bodhisattva can see as many Buddhas as there are grains of sand in the universe; in an instant, he can enter the pure land of so many Buddhas; in an instant, he can teach so many dharmas. It is very important to understand these.
 
-If he were to be reincarnated, he would be reincarnated as the king of heaven.
+Bodhisattvas on the first bhumi to the tenth bhumi can originally live in the world for hundreds of thousands of kalpas, but some bodhisattvas sometimes want to be reincarnated in the three realms, for example, they want to be reincarnated to save sentient beings.
 
-A bodhisattva of the first bhumi can be reincarnated as King Iron Wheel, a bodhisattva of the second bhumi can be reincarnated as King of the Golden Wheel, a bodhisattva in three bhumi can be reincarnated as Dishatian, a bodhisattva in four bhumi can be reincarnated as King Yemo, and a bodhisattva in five bhumi can be reincarnated as King Tusita. Bodhisattvas of the sixth bhumi can be reincarnated as Heavenly King Huale, Bodhisattvas of the Seventh bhumi can be reincarnated as Heavenly Kings of Zizai, Bodhisattvas from the Eighth bhumi can be reincarnated as Heavenly Kings of Brahma, Bodhisattvas from the Ninth bhumi can be reincarnated as Heavenly Kings of Brahma, and Bodhisattvas of the Tenth bhumi can be reincarnated as Heavenly Kings of Great Freedom.
+At this stage, a bodhisattva can take birth as a ruler over Jambudvīpa.
 
-For example, according to the common saying in Tibet, Tibetan King Songtsen Gampo is the incarnation of Guanyin Bodhisattva, King Chisong Detsun  is the incarnation of Manjushri Bodhisattva, and Chiran Tile Tip is the incarnation of Vajrapani Bodhisattva.
+A bodhisattva of the first bhumi can be reincarnated as a ruler over Jambudvīpa, a bodhisattva of the second bhumi can be reincarnated as a ruler over the four continents, a bodhisattva on the third bhumi can be reincarnated a ruler over the Heaven of Thirty-three, like Indra, a bodhisattva in fourth bhumi can be reincarnated as a ruler of the House of Gemini, and a bodhisattva in fifth bhumi can be reincarnated as ruler of Enjoying Emanations. Bodhisattvas of the sixth bhumi can be reincarnated as ruler of Tuṣita, Bodhisattvas of the Seventh bhumi can be reincarnated as a ruler of Controlling Others’ Emanations, Bodhisattvas from the Eighth bhumi can be reincarnated as a ruler over a first-order universe of a thousand realms, Bodhisattvas from the Ninth bhumi can be reincarnated as Brahma, the ruler over a second-order universe of one thousand times one thousand worlds, and Bodhisattvas of the Tenth bhumi can be reborn as the ruler of the gods of a pure realm.
+
+For example, it is commonly said in Tibet that Tibetan King Songtsen Gampo was the incarnation of Guanyin Bodhisattva, King Trisong Detsen was the incarnation of Manjushri Bodhisattva, and Tridé Songtsen was the incarnation of Vajrapani Bodhisattva.
 
 Only when these Bodhisattvas have become Tibetans can they save Tibetans, and this is also a way for Buddhas and Bodhisattvas to save sentient beings.
 
 Some emperors of the Qing Dynasty were also incarnations of Bodhisattvas.
 
-In the past, there was a master in Tibet named Rondo Rinpoche. He wanted to be a good emperor in his next life, and it would be easier to save sentient beings.
+In the past, there was a master in Tibet named Rondo Rinpoche. He wanted to be a good emperor in his next life, since it would be easier to save sentient beings.
 
 When he was about to pass away, he observed with his supernatural powers and saw that several Bodhisattvas were already waiting for the throne.
 
 Bodhisattvas are emperors for the convenience of saving sentient beings, and demons will also fight for the throne, so there were bodhisattvas and demons who were emperors in the past.
 
-Only the sentient beings with stronger willpower and greater blessings can become emperors.
+Only the sentient beings with stronger willpower and greater merit can become emperors.
 
 Bodhisattvas also have dreams that mortals cannot dream of.
 
-Bodhisattvas from one place to ten places will have different levels of dreams. For example, a bodhisattva in one place will dream that he is sitting on a lion throne to save sentient beings in the six realms; in two places, a bodhisattva will dream that he goes to innumerable lands, sees innumerable Buddhas, and appears innumerable. Supernatural and so on.
+Bodhisattvas from the first bhumi to tenth bhumi will have different levels of dreams. For example, a bodhisattva on the first bhumi will dream that he is sitting on a lion throne to save sentient beings in the six realms; on the second bhumi, a bodhisattva will dream that he goes to innumerable lands, sees innumerable Buddhas, and appears innumerable. Supernatural and so on.
 
-There is no difference in the emptiness of a bodhisattva from one place to ten places of cultivation, but there is a difference between a bodhisattva from one place to ten places of enlightenment and cultivation.
+There is no difference in the emptiness of a bodhisattva of the first bhumi to the tenth bhumi of cultivation, but there is a difference between a bodhisattva fof the first bhumi to the tenth bhumi of enlightenment and cultivation.
 
 The vajra metaphor of the final stage of the Bodhisattva in the tenth stage of cultivation can cut off all obstacles, and all the very subtle obstacles of affliction and knowledge will be cut off. Wisdom and the four bodies.
 
-Xianzong's cultivation of the Bodhisattva path is relatively slow, and he needs to accumulate the good fortune of three Asamkhya kalpas in order to become a Buddha.
+Mahayana's cultivation of the Bodhisattva path is relatively slow, and he needs to accumulate the good fortune of three Asamkhya kalpas in order to become a Buddha.
 
 If you practice tantra on the basis of sutra, you will become a Buddha faster.
 
@@ -2491,32 +2498,33 @@ At the birth stage of Tantra, the bardo of birth and death can become the three 
 
 Especially when practicing Tantric Buddhism, you need to cultivate the qi meridian in the body. All the qi in the human body is integrated into the central meridian. This way, the central meridian can be opened. After the central meridian is opened, the achievement will be very fast. Buddha.
 
-The four mindfulness, the four right severance, the four spiritual feet, the five powers, the five pure roots, the seven enlightenment factors, and the Noble Eightfold Path are called the thirty-seven path.
+The four applications of mindfulness, the four correct abandonments, the four spiritual feet, the five powers, the five pure roots, the seven enlightenment factors, and the Noble Eightfold Path are called the The Thirty Seven Practices of the Path of the Bodhisattva.
 
-Thirty-seven paths are the common path of Mahayana and Hinayana. To become a Buddha in Mahayana, one must cultivate thirty-seven paths.
+The Thirty Seven Practices of the Path of the Bodhisattva are the common path of Mahayana and Hinayana. To become a Buddha in Mahayana, one must cultivate The Thirty Seven Practices.
 
-To become an Arhat in Theravada also requires thirty-seven steps, but there is a big difference between Theravada and Mahayana.
+To become an Arhat in Theravada also requires Thirty Seven Practices, but there is a big difference between Theravada and Mahayana.
 
 101
 
-Shantaguard Bodhisattva
+![寂护菩萨](/images/shantaguard.png)
 
 Shantaguard Bodhisattva
 
-Chapter 7 Learning the Dharma
-The Five Ways of Theravada and the Way of the Bodhisattva are called learning the Way.
+##### Chapter 7 - Learning the Dharma
 
-From the point of view of cutting off afflictions, there is no need to learn and cultivate when the Hinayana does not learn the Dharma, which can be called the non-learning Dharma.
+The Five Paths of Theravada and the Path of the Bodhisattva are called paths of learning.
 
-However, at this time, the Hinayana practitioners have not yet broken the barriers of knowledge and have not attained Buddhahood. In order to break the barriers of knowledge and attain the status of Buddha, they still need to continue to study and cultivate, so they have learned the Way.
+From the point of view of cutting off afflictions, there is no need to learn and cultivate when the Hinayana does not learn the Dharma, which can be called the path of no-more-learning.
 
-##### Section 1 - Eighteen Realms
+However, at this time, Hinayana practitioners have not yet broken the barriers of knowledge and have not attained Buddhahood. In order to break the barriers of knowledge and attain the status of Buddha, they still need to continue to study and cultivate, so they have the path of learning.
+
+##### Section 1 - Eighteen Dhatus
 
 "Unsightly and Unconscious"
 
 This sentence is about the practice of the eighteen dhatus (elements).
 
-Eyes, ears, nose, tongue, body and mind are the six human faculties; color, sound, smell, smell, touch, and dharma are the six external worlds; when the six senses meet the six states, the six senses of the eyes, ears, nose, tongue, body, mind, and consciousness will arise. The six senses, the six states, and the six senses together are called the eighteen dhatus .
+Eyes, ears, nose, tongue, body and mind are the six human sense faculties; color, sound, smell, smell, touch, and dharma are the six external objects; when the six sense faculties meet the six sense objects, the six sense consciousnesses of the eyes, ears, nose, tongue, body, mind, and consciousness will arise. The six sense organs, the six sense objects, and the six sense consciousnesses together are called the eighteen dhatus .
 
 The Eighteen Dhatus is a special practice.
 
@@ -2526,7 +2534,7 @@ Likewise, when your ears hear praise from others, don't become greedy; when you 
 
 When the nose smells stinky things, there is no anger and hatred, and when it smells fragrant things, there is no greed.
 
-When the tongue tastes delicious, it is free from greed, and when it tastes bad, it is free from hatred.
+When the tongue tastes something delicious, it is free from greed, and when it tastes something bad, it is free from hatred.
 
 When the body touches something comfortable, it is not greedy, and when it touches something uncomfortable, there is no anger.
 
@@ -2536,15 +2544,19 @@ The practice of the Eighteen dhatus is roughly like this.
 
 ##### Chapter 2 - Twelve Links of Dependent Origination
 
+---
+
 "No ignorance, no end of ignorance, no end of old age and death, no end of old age and death"
 
-This sutra talks about the Twelve Links of Dependent Origination.
+---
 
-All three vessels will practice Twelve Links of Dependent Origination. Shravaka generally attains achievement according to the Four Noble Truths, but there are also those who practice the Twelve Links of Dependent Origination and attain Arhatship.
+This line of the Heart Sutra talks about the Twelve Links of Dependent Origination.
+
+All three vessels will practice Twelve Links of Dependent Origination. Shravakas generally attain awakening according to the Four Noble Truths, but there are also those who practice the Twelve Links of Dependent Origination and attain Arhatship.
 
 Bodhisattvas also practice the Twelve Links of Dependent Origination.
 
-In the three vehicles, liberation mainly depends on the Twelve Links of Dependent Origination, which is the conditioned enlightenment.
+In the three vessels, liberation mainly depends on the Twelve Links of Dependent Origination, which is conditioned enlightenment.
 
 The Twelve Links of Dependent Origination are ignorance, formation, consciousness, name and form, six senses, contact, feeling, craving, grasping, existence, birth, old age and death, which describe a person's past life, present life, and future life.
 
@@ -2574,49 +2586,53 @@ Consciousness A soul defiled by good and evil karma is called consciousness, and
 
 Name-form means that after consciousness entered the womb, it did not form the form before the six entrances.
 
-Entering the womb can be divided into the womb through karma and the womb through the power of vows. There is a big difference between the two. The dirty soul enters the womb through the power of karma, while the pure soul enters the womb through the power of vows. For example, a bodhisattva wants to become an ordinary person. To save sentient beings, is to enter the womb through the power of will.
+Entering the womb can be divided into entering the womb through karma and entering the womb through the power of vows. There is a big difference between the two. The defiled soul enters the womb through the power of karma, while the pure soul enters the womb through the power of vows. For example, when a bodhisattva wants to become an ordinary person in order to save sentient beings, he enters the womb through the power of will.
 
-The eyes, ears, nose, tongue, body, mind, and mind are formed in the womb, which is called the Six Paths.
+The eyes, ears, nose, tongue, body, mind, and mind are formed in the womb, which is called the Six Senses.
 
-After touching the womb, the six senses come into contact with the six realms, which is called touch.
+After entering the womb, the six senses come into contact with the six objects, which is called touch.
 
-Feeling After having touch, a feeling arises, which is called feeling .
+**Feeling** 
 
-Love has a distinction between pain and pleasure, and the willingness to choose pleasure is love.
+After contact, a feeling arises, which is called feeling.
 
-Taking and continuing to pursue after choosing pleasant feeling is taking.
+**Craving** has a distinction between pain and pleasure, and the willingness to choose pleasure is love.
+
+**Grasping** and continuing to pursue after choosing pleasant feeling is taking.
 
 Humans can pursue love from the age of two or three.
 
-To create karma in the process of pursuing love is to have .
+To create karma in the process of pursuing love is Becoming.
 
 Both existence and action are karma, action is the karma of the previous life, and existence is the karma of the present life.
 
-Reincarnation in the six realms of reincarnation is life.
+**Rebirth** in the six realms of reincarnation is life.
 
-After birth, you will grow old and die, that is, old age and death.
+After birth, you will grow old and die, that is, **old age and death**.
 
 106
 
-When the Arhats practiced, they were thinking about the Twelve Dependent Origination Laws.
+When the Arhats practiced, they were thinking about the Twelve Links of Dependent Origination.
 
-When they see the bones in the tomb, they think: Where did the bones come from? There are bones because someone died; where did that death come from? It is because people grow old and die gradually after birth.
+When they see the bones in the tomb, they think: Where did the bones come from? There are bones because someone died; where did that death come from? It is because people grow old and die gradually from birth.
 
-Then continue to think, where does life come from? Why are people born? How did it come about? You will think that it is because of consciousness, that is, the soul of the previous life; after the soul enters the womb, it is the name and form; when the six sense organs in the womb are full, it is the six senses; after the six senses come into contact with the six realms, there is contact; When a touch has perception, it is feeling; the feeling of touch can produce a distinction, like pleasant feeling, hate painful feeling, it is love; greed for pleasant feeling, and continue to pursue it, it is grasping; in the process of pursuit, it is created again. A lot of karma is existence; when the karma contaminates the soul, it is consciousness; when it dies, the consciousness polluted by the karma enters the womb, which is birth; when the good karma enters the womb, it will enter the good path, and the evil karma enters the womb. Down to the three evil paths.
+Then continue to think, where does life come from? Why are people born? How did it come about? You will think that it is because of consciousness, that is, the soul of the previous life; after the soul enters the womb, it is  name and form; when the six sense organs in the womb are full, it is the six senses; after the six senses come into contact with the six objects, there is contact; When a touch has perception, it is feeling; the feeling of contact can produce a distinction, like pleasant feeling, hate painful feeling, it is craving; greed for pleasant feeling, and continue to pursue it, it is grasping; in the process of pursuit, it is created again. A lot of karma is existence; when the karma contaminates the soul, it is consciousness; when it dies, the consciousness polluted by the karma enters the womb, which is birth; when the good karma enters the womb, it will enter the good path, and the evil karma enters the womb. Down to the three evil realms.
 
-After birth, one must die, so it is called death of old age, because it is not necessarily that one will die when one is old, so it is called death of old age.
+After birth, one must die, so it is called old age and dying, because it is not necessarily so that one will die when one is old, so it is called death of old age.
 
-The Twelve Dependent Origination can also be thought in reverse: old age and death come from birth; birth comes from existence; existence comes from taking; taking comes from love; love comes from receiving; feeling comes from touch; touch comes from six senses; six senses come from name and form come; name and form come from consciousness; consciousness comes from action, action is karma; where does karma come from? from ignorance.
+The Twelve Links of Dependent Origination can also be thought of in reverse: old age and death come from birth; birth comes from existence; existence comes from grasping; grasping comes from craving; craving comes from feeling; feeling comes from contact; contact comes from six senses; six senses come from name and form; name and form come from consciousness; consciousness comes from formations, action is karma; where does karma come from? From ignorance.
 
 107
 
-After doing this, we will understand: when ignorance and afflictions are cut off, we cut off our actions; when we cut off our actions, we cut off our consciousness; when we cut off our consciousness, we cut off name and form; when we cut off name and form, we cut off the six senses; Cut off the touch; cut off the touch, cut off the feeling; cut off the feeling, cut off the love; cut off the love, cut off the grasping; cut off the grasping, cut off the existence; cut off the existence, cut off the birth; cut off the living, cut off Old age and death; when old age and death are cut off, samsara is cut off, and there is liberation.
+After doing this, we will understand: when ignorance and afflictions are cut off, we cut off our formations; when we cut off our foramations, we cut off our consciousness; when we cut off our consciousness, we cut off name and form; when we cut off name and form, we cut off the six senses we cut off contact; cut off the contact, cut off the feeling; cut off the feeling, cut off the craving; cut off the craving, cut off the grasping; cut off the grasping, cut off becoming; cut off becoming, cut off rebirth; cut off the rebirth, cut off Old age and death; when old age and death are cut off, samsara is cut off, and there is liberation.
 
-Therefore, if the initial ignorance defilements are cut off, all the following twelve Dependent Originations will be cut off.
+Therefore, if the initial ignorance defilements are cut off, all the following Twelve Links of Dependent Origination will be cut off.
 
 The affliction of ignorance is the source of all afflictions and karma, the source of all suffering, the source of our samsara.
 
 Cause and Effect Diagram of the Three Worlds
+
+![三世因果图](/images/causeeffect3worlds.png)
 
 Ignorance
 
@@ -2628,54 +2644,56 @@ The result of the future life The result of the present life The result of the p
 
 108
 
-The third section of the path of enlightenment
-The Hinayana saints are divided into the Marginal Arhats and the Shravakas.
+Section 3 -The Path of Enlightenment
 
-After awakening according to the twelve conditions, he is liberated, and he is called the Arhat of Yuanjue.
 
-Because predestination is often practiced alone, it is also called solitary enlightenment.
+The Hinayana saints are divided into the Solitary Arhats and the Shravakas.
 
-When you are on the path of predestined enlightenment, you can practice the Twelve Dependent Origination Laws. By thinking about the twelve Dependent Origination, you can get renunciation. On the basis of renunciation, you have accumulated a hundred kalpas of good fortune, and you can pursue karma with the power of faith that does not turn back. Feel the Arhat fruit bit.
+After awakening according to the twelve links, he is liberated, and he is called the Solitary Arhat.
 
-When you practice the path of predestination and enlightenment, you will constantly cultivate the twelve dependent origins, and think about what is ego-clinging and what people are without self.
+Because Solitary Arhats often practice alone, it is also called solitary enlightenment.
 
-When you reach the predestined enlightenment and see the Dao, you will immediately realize that there is no self in human beings.
+When you are on the path of solitary enlightenment, you can practice the Twelve Links of Dependent Origination. By contemplating the Twelve Links of Dependent Origination, you can attain renunciation. On the basis of renunciation, you have accumulated a hundred kalpas of good fortune, and you can pursue karma with the power of faith that does not turn back. Feel the Arhat fruit bit.
 
-Continuing to cultivate after seeing the Dao is cultivating the Dao.
+When you practice the path of solitary enlightenment, you will constantly cultivate the Twelve Links of Dependent Origination, and think about what is ego-clinging and what people are without self.
 
-Until the afflictions are cut off by relying on the twelve Dependent Origination, one will attain the Arhat Status of Dependent Enlightenment.
+When you reach the solitary enlightenment and realise the nature of emptiness, you will immediately realize that there is no self in human beings.
+
+Continuing to cultivate after seeing the nature of emptiness is cultivating the Dao.
+
+Until the afflictions are cut off by relying on the Twelve Links of Dependent Origination, one will attain the Arhat Status of Dependent Enlightenment.
 
 There is a difference between karmic awareness and shravaka Arhats.
 
-In terms of appearance, because the Arhats have accumulated the blessings of a hundred kalpas, they have solemn appearances similar to the Buddha's Sambhogakaya, such as having a bun, white hair, etc., but the sravaka Arhats do not have these.
+In terms of appearance, because the Arhats have accumulated the merit of a hundred kalpas, they have solemn appearances similar to the Buddha's Sambhogakaya, such as having a bun, white hair, etc., but the sravaka Arhats do not have these.
 
-In terms of realization, the Madhyamika Self-Continuity School believes that the Arhats not only cut off the obstacle of afflictions, but also cut off the obstacle of discernment and knowledge.
+In terms of realization, the Madhyamika Prasanghika School believes that the Arhats not only cut off the obstacle of afflictions, but also cut off the obstacle of discernment and knowledge.
 
-However, the Madhyamika Yingcheng school believes that the Arhats of the predestined enlightenment have only broken the vexation obstacle, but not the obstacle of distinguishing and knowing.
+However, the Madhyamika Prasanghika school believes that the Arhats of the predestined enlightenment have only broken the vexation obstacle, but not the obstacle of distinguishing and knowing.
 
-When practicing, Yuanjue likes to practice alone, and there are at most four people or less, usually alone, walking, eating, practicing, and living all by one person.
+When practicing, the solitary Arhat likes to practice alone, or in groups of at most four people, usually alone, walking, eating, practicing, and living all by oneself.
 
-Shravaka likes to practice together, and there are at least four senior brothers. This is the difference in their behavior.
+Shravakas likes to practice together, and there are at least four senior brothers in the community. This is the difference in their behavior.
 
 Although some Arhats have attained Arhatship, their karma is inconceivable, and there will still be some karma.
 
-For example, Venerable Mujianlian.
+For example, Venerable Maudgalyayana.
 
-The venerable often went to hell to save sentient beings. Once, he saw a patriarch suffering in hell. The patriarch said to the venerable, you have a message for my disciples, and take out the gold and silver that I have hidden at home to make offerings to Sakyamuni Buddha, help me transcend.
+The Venerable Maudgalyayana often travelled to hell to save sentient beings. Once, he saw a brahmin suffering in hell. The brahmin said to Venerable Maudgalyayana, "Please take a message to my disciples, and tell them to take out the gold and silver that I have hidden at home to make offerings to Sakyamuni Buddha to help me transcend.
 
-Venerable Mujianlian went to the house of the patriarch. After he said the patriarch's request, the patriarch's family and disciples were very angry when they heard it: You came here to insult our teacher and degrade our Daoism.
+Venerable Maudgalyayana went to the house of the brahmin. After he transmitted the brahmin's request, the brahmin's family and disciples were very angry when they heard it: "You came here to insult our teacher and degrade our religion.
 
-He then chased down Venerable Mugallian. Venerable Mugallian was known as the number one supernatural power among the Buddha’s disciples. As long as he manifested supernatural powers, he would run away. With supernatural powers, he was beaten badly.
+They then chased down Venerable Maudgalyayana. Venerable Maudgalyayana was known as the number one supernatural power among the Buddha’s disciples. As long as he manifested supernatural powers, he could run away. Without supernatural powers, he was beaten badly.
 
-In terms of vow power, Shravaka's vow power is to follow the Buddha's practice and become the Buddha's retinue.
+In terms of vow power, Shravaka's vow power is to follow the Buddha's practice and follow the Buddha.
 
-Fate Jue is different. Fate Jue often makes a great vow before the sufficiency path: I want to become a Buddha without relying on anyone, and I don’t need a master.
+The Solitary Arhat is different. The Solitary Arhat often makes a great vow before the path of accumulation: I want to become a Buddha without relying on anyone, and I don’t need a master.
 
-Because of the power of this vow, when the Buddha was alive, the predestined enlightenment would not come to this world, nor would it come when the Buddhadharma was there. When the Buddhadharma was gone, the predestined enlightenment would appear.
+Because of the power of this vow, when the Buddha was alive, the Solitary Arhat would not come back to this world, nor would he come back when the Buddhadharma was there. When the Buddhadharma was gone, the Solitary Arhat would appear.
 
 Before the birth of Buddha Shakyamuni, there were 500 Arhats living in Varanasi, India.
 
-When the Buddha was about to enter the womb, the God of the Thirty-Three Days told the Arhats that the Buddha was about to be born in the human world.
+When the Buddha was about to enter the womb, the God of the Heaven of the Thirty-Three told these Arhats that the Buddha was about to be born in the human world.
 
 They said that the light of Buddha is like the sun, we only have the light of fireflies, the world does not need us, let us pass away.
 
@@ -2683,81 +2701,99 @@ They passed away together. When they passed away, they meditated in the air. The
 
 Buddha Shakyamuni's Dharma can exist for 5,500 years. Now more than 2,500 years have passed. After another 2,000 years, the Dharma will perish.
 
-When the Dharma-ending period arrives, these predestined perceptions will appear.
+When the Dharma-ending period arrives, these Solitary Arhats will appear.
 
-Without the Dharma, without a single sutra, how could the Martial Enlightenment achieve Arhat fruit? It depends on the willpower, the willpower is incredible.
+Without the Dharma, without a single sutra, how could the Solitary Arhat achieve Arhat fruit? It depends on the willpower, the willpower is incredible.
 
-Because of the power of vows, after seeing the corpse of a dead person, karma will infer and think about the The Twelve Links of Interdependent Origination, and can find the root cause of samsara is ignorance.
+Because of the power of vows, after seeing the corpse of a dead person, karma will infer and think about the The Twelve Links of Dependent Origination, and can find the root cause of samsara is ignorance.
 
-Then, continue to rely on the power of vows and the blessings of hundreds of kalpas to realize that people have no self, get rid of afflictions and obstacles, and obtain the fruit of Arhatship.
+Then, continuing to rely on the power of vows and the merit of hundreds of kalpas to realize that people have no self, get rid of afflictions and obstacles, they obtain the fruit of Arhatship.
 
 111
 
 Section 4 - The Difficulty of Realizing Emptiness
-The Arhats of Fate Jue realize the emptiness by virtue of the power of vows and blessings; the Arhats realize the emptiness by the wisdom of hearing and contemplation; the Bodhisattva realizes the emptiness by relying on the dual movements of contemplation.
 
-Whether it is to liberate from samsara or to become a Buddha and save sentient beings, one needs to realize emptiness, but it is very difficult to understand and realize emptiness.
+The Solitary Arhats realize emptiness by virtue of the power of vows and accumulated merit; the Arhats realize emptiness by the wisdom of hearing and contemplation; the Bodhisattva realizes the emptiness by relying on the dual movements of contemplation.
+
+Whether it is to be liberated from samsara or to become a Buddha and save sentient beings, one needs to realize emptiness, but it is very difficult to understand and realize emptiness.
 
 First, it is difficult to explain emptiness.
 
-When Buddhism was most prosperous, there were tens of thousands of monks in Nalanda Monastery in India, and there were thousands of learned Taipanzhida. When debating scriptures, ordinary scriptures were debated, and everyone could understand them, but when it came to debating and emptiness When it comes to the relevant Dharma, fewer and fewer people can understand it. In the end, there are only a few Panzhidas left, and emptiness is difficult to understand.
+When Buddhism was flourishing, there were tens of thousands of monks in Nalanda Monastery in India, and there were thousands of learned Panditas. When debating scriptures, ordinary scriptures were debated, and everyone could understand them, but when it came to debating emptiness, When it comes to the relevant teachings, fewer and fewer people could understand it. In the end, there are only a few Panditas left, and emptiness is difficult to understand.
 
-Nagarjuna Bodhisattva wrote the six theories of Nagarjuna to promote the Buddha's right view of dependent origination and emptiness. However, there are many sect masters who refute the six theories of Nagarjuna. All of them are Taipanzhida, and even they do not understand what Nagarjuna said. what is.
+Nagarjuna Bodhisattva wrote the six theories of Nagarjuna to promote the Buddha's Right View of Dependent Origination and emptiness. However, there are many schools whose masters refute the six theories of Nagarjuna. All of them are Great Pandits, and even they do not understand what it is that Nagarjuna said.
 
 Other patriarchs teach less about emptiness.
 
-The emptiness that Venerable Milarepa's master Marpa taught is Mahamudra, only two or three pieces of paper. Those with sharp roots can understand it, but those with dull roots can't understand it at all.
+The emptiness that Venerable Milarepa's master Marpa taught is Mahamudra. Only two or three sheets of paper. Those with deep roots can understand it, but those with shallow roots can't understand it at all.
 
 112
 
-Padmasambhava said emptiness is just a few pieces of paper, because no one understands it, so the patriarchs don't talk much about it.
+Padmasambhava's writings on emptiness are also just a few sheets of paper, but because no one understands it, the patriarchs don't talk much about it.
 
-Until Master Tsongkhapa, when Master Tsongkhapa made the "Guangdong Theory on the Stages of the Bodhi Path", Manjushri appeared to persuade Master Zong: You should talk about emptiness a little wider, and let more people understand.
+Until Master Tsongkhapa, when Master Tsongkhapa made the "Great Treatise on the Stages of the Path to Enlightenment", Manjushri appeared to persuade Master Tsongkhapa: You should talk about emptiness a little more broadly, and let more people understand.
 
-Therefore, Master Tsongkhapa has written many books on emptiness, including five thick books, and the content is also very special.
+Therefore, Master Tsongkhapa wrote many books on emptiness, including five thick treatises, and the content is also very special.
 
-The master has taught about emptiness in Tibet for several years, and he is the top one in the whole Tibetan region. He has guided many people to realize emptiness.
+Master Tsongkhapa taught about emptiness in Tibet for several years, and he was the top one in the whole Tibetan region. He has guided many people to realize emptiness.
 
-Second, understanding emptiness is difficult.
+Secondly, understanding emptiness is difficult.
 
-In the Heart Sutra, it is said that The Twelve Links of Interdependent Origination are empty, all without self-nature.
+In the Heart Sutra, it is said that The Twelve Links of Dependent Origination are empty, are all without self-nature.
 
 There is no ignorance defilement that is ever-present, ignorance defilement is neither eternal nor indestructible, nor can it exist independently, so it can be eliminated and cut off.
 
-When using the wisdom of emptiness to break the ego, according to the view of Madhyamika, nine logics should be used to understand it.
+Using the wisdom of emptiness to break the ego, according to the view of Madhyamika, Nine logical arguments should be used to understand it.
 
-The nine logics are: Negation of the Four Realms, Reasonable Reasonable King Dependent Origination, Negation of the Four Meanings, One Different Reasoning, Diamond Scrap Cause, Five Reasonable Reasoning, Seven Reasonable Reasoning, Four Essential Reasoning, and Negative Existence Reasoning.
+The Nine Logical Arguments are: 
 
-These are all difficult to understand. If you can thoroughly understand these nine logics, it will be easier to understand emptiness.
+1. Investigation of the Cause: the Diamond Splinters
 
-Among the nine logics, rational reasoning is the most important, because all things and all dharmas are caused by causation, and the combination of causality exists, and causality exists.
+2. Investigation of the Result: Refuting Existent or Non-Existent Effects
+
+3. Investigation of Both: Refuting the Four Permutations of Arising
+
+4. Investigation of the Essential Identity: Neither One Nor Many
+
+5. The logical argument of Great Interdependence
+
+
+Refutation of Production from Four Extremes (Production from Self, Production from Other, Production from Both, Production without Cause), Reasonable Reasonable King Dependent Origination, Refutation of Production from Four Alternatives (Several causes producing a single result, Several causes producing several results, A single cause producing several results, A single cause producing a single result), One Different Reasoning, Diamond Splinters Arument (‘refutation of production of existent and nonexistent effects’
+‘refutation of production related to four possible alternatives’
+‘dependent arising’ argument
+argument of ‘neither one nor many’), Five Reasonable Reasoning, Seven Reasonable Reasoning, Four Essential Reasoning, and Negative Existence Reasoning.
+
+These are all difficult to understand. If you can thoroughly understand these nine logical arguments, it will be easier to understand emptiness.
+
+Among the nine logical arguments, rational reasoning is the most important, because all things and all dharmas are caused by causation, and the combination of causality exists, and causality exists.
 
 Separation does not exist, so all things have no self-nature.
 
 Finally, realizing emptiness is hard.
 
-When Master Tsongkhapa used these nine logics to guide emptiness, Master Xirao Sangge realized emptiness on the spot. In the meditation he entered at that time, there was only emptiness and no worldly truth.
+When Master Tsongkhapa used these nine logical arguments to guide emptiness, Master Sherab Sengge realized emptiness on the spot. In the meditation he entered at that time, there was only emptiness and no worldly truth.
 
-Seeing that everything was gone, and he couldn't even find himself, Master Xirao Sengge was frightened and grabbed the collar of the cassock tightly with both hands.
+Seeing that everything was gone, and he couldn't even find himself, Master Sherab Sengge was frightened and grabbed the collar of his cassock tightly with both hands.
 
-At this time, Master Tsongkhapa saw it and said, you have found the mundane truth.
+At this time, Master Tsongkhapa saw it and said, "You have found the mundane truth."
 
-Hearing these words, Master Xirao Sangge eliminated the fear of emptiness, because in the meditation of emptiness one cannot find the mundane truth.
+Hearing these words, Master Sherab Sengge eliminated the fear of emptiness, because in the meditation of emptiness one cannot find the mundane truth.
 
 There is a great siddhi in Tibet named Jesser Rinpoche. He practiced in a cave and realized emptiness. He saw that there was nothing left, and he couldn’t even find himself. Searching for myself and shouting, where am I...where am I....
 
-A young shepherd saw it and said, isn't it you who got into the rock? After he heard it, he settled down and was relieved.
+A young shepherd saw this and said, isn't it you who got into the rock? After he heard it, he settled down and was relieved.
 
 In the meditation of emptiness, we can't even find the real self, let alone the self we imagined to be broken.
 
-Master Tsongkhapa used to lecture at Drepung Monastery. When many masters who had realized emptiness went to the main hall, they did not go through the main entrance, but got out of the wall and got in. This can only be done after realizing emptiness. , is also a meritorious ability.
+Master Tsongkhapa used to lecture at Drepung Monastery. When many masters who had realized emptiness went to the main hall, they did not go through the main entrance, but came and went through the wall. This can only be done after realizing emptiness. , is also a meritorious ability.
 
 Section 5 - The Four Noble Truths
+
 "The Way of No Suffering"
 
 Suffering, its origin, its cessation, and the path are called the Four Noble Truths. This sutra says that the path of cessation and cessation of suffering has no self-nature at all.
 
-All three vehicles can practice the Four Noble Truths, and the Four Noble Truths are also the main practice of Shravaka.
+All three vessels can practice the Four Noble Truths, and the Four Noble Truths are also the main practice of Shravaka.
 
 The Four Noble Truths are in a certain order. It can be divided into two types, the order of practice and the order of cause and effect. Suffering, origination, cessation, and cessation are the order of practice; origination, suffering, cessation, and cessation are the order of cause and effect. Here we talk about the order of cause and effect. If you understand the order of cause and effect, you will naturally understand the order of practice.
 
@@ -2767,7 +2803,8 @@ The order of cause and effect of the Four Noble Truths is the arising of sufferi
 
 To be liberated is the birth and death of the Dharma.
 
-1. Set
+1. Aggregates
+
 Aggregation is the cause of suffering, that is, defilements and karma.
 
 The great defilements have six root defilements and twenty secondary defilements, and there are 84,000 subtler defilements.
@@ -2775,6 +2812,7 @@ The great defilements have six root defilements and twenty secondary defilements
 Karma can be divided into expiation and sexual sin, expiation refers to the karma of breaking precepts, and sexual sin is the karma of creating ten evil karma.
 
 2. Suffering
+
 The result of clinging is suffering.
 
 When practicing, the first thing is to feel the suffering first, then find the source of suffering, get rid of the source of suffering, and then practice the Dharma to escape the cycle of birth and death.
@@ -2783,33 +2821,33 @@ There are many kinds of suffering.
 
 There are eight sufferings in the human realm: birth, old age, sickness, death, separation from love, resentment and hatred, not being able to seek, and the suffering of grasping the five aggregates.
 
-In the treatise created by the Bodhisattva Agatha, there are one hundred and ten kinds of suffering.
+In the treatise created by the Bodhisattva Asanga, there are one hundred and ten kinds of suffering.
 
 In short, people have thousands of kinds of suffering.
 
-Here we briefly talk about the three sufferings. The three sufferings are suffering, becoming suffering, and doing suffering. They are the common sufferings of the six realms.
+Here we briefly talk about the three sufferings. The three sufferings are suffering of suffering, suffering of change, and All-pervasive suffering. They are the common sufferings of the six realms.
 
 116
 
-Suffering is suffering within suffering.
+Suffering of suffering is suffering within suffering.
 
 Such as the suffering of the three evil realms and the suffering of human diseases.
 
 All six realms have suffering.
 
-In hell, there are sufferings such as cold and heat; in the realm of hungry ghosts, there is the pain of hunger, thirst, and fear; in the realm of animals, there is pain in killing each other; in the realm of human beings, there is the pain of war;
+In hell, there are sufferings such as cold and heat. In the realm of hungry ghosts, there is the pain of hunger, thirst, and fear. In the realm of animals, there is pain in killing each other. In the realm of human beings, there is the pain of war.
 
-To change from suffering to suffering is to change from happiness to suffering. In some scriptures, it is called bad suffering.
+Suffering of change is changes from happiness to suffering. In some scriptures, it is called bad suffering.
 
 For example, going on a trip is a happy thing, but if you walk too much, your feet will hurt, and it will become a pain.
 
 Eating is originally a joy, but eating too much can turn into pain.
 
-These are becoming suffering, and all the six realms become suffering.
+These are suffering of change, and all the six realms have the suffering of change.
 
-Asceticism and asceticism are aggregated suffering, because it is difficult for ordinary people to feel it, so it is more difficult to understand.
+All-pervasive suffering is difficult for ordinary people to feel, so it is more difficult to understand.
 
-To take the five aggregates is to do suffering. If suffering is water, then the five aggregates are water tanks, vessels that carry suffering.
+Grasping the five aggregates is to do suffering. If suffering is water, then the five aggregates are water tanks, vessels that carry suffering.
 
 The five aggregates are not only the instruments of suffering in this life, but also the cause of suffering in the future, because the suffering in the future also arises from the five aggregates in this life.
 
@@ -2839,7 +2877,7 @@ Suffering is hard to understand.
 
 Because the afflictions and karma of sentient beings are constantly circulating, suffering and the causes of suffering are constantly circulating and changing, and it is difficult to observe clearly.
 
-The second Sega wood-like living Buddha, Master Jigme Wangpo, is the abbot of Labrang Monastery for more than 200 years.
+The Second Jamyang Zhepa, Konchok Jigme Wangpo, was the abbot of Labrang Monastery for more than 200 years.
 
 Once, the master returned from Xining to Labrang Monastery for seven days, and he kept observing the practice and suffering along the way.
 
@@ -2847,7 +2885,7 @@ When he arrived at Labrang Monastery, the master said to his eldest disciple tha
 
 If, after understanding the suffering of karma, the thought of wanting to escape from the cycle of birth and death arises, this state of mind is renunciation, the mind of renunciation of the six realms of samsara.
 
-The heart that is liberated from suffering is not counted as renunciation, because all living beings in the animal realm have that kind of heart, and the heart of liberation from suffering is not counted as renunciation.
+The mind that is liberated from suffering is not counted as renunciation, because all living beings in the animal realm have that kind of mind, and the mind of liberation from suffering is not counted as renunciation.
 
 Master Yeshe Jianshen said that life is very hard. If you think about the hardships of life, you will find that there is no reason to live.
 
@@ -2859,35 +2897,37 @@ We ordinary people are not like this, as if there are many reasons to live.
 
 In fact, after carefully thinking about the pain of life, you will understand that there is really no reason to live, the only reason is to be liberated and become a Buddha.
 
-Third, the way
+3. The Path
+
 The Dao is the method of liberation, the Dao method.
 
-The way of sustenance, the way of addition, the way of seeing, and the way of cultivation are all mentioned above.
+The path of Accumulation, the path of Joining, the path of Seeing, and the path of Meditation are all mentioned above.
 
 119
 
-It is the method of liberation, and the thirty-seven Taoist articles are the Taoist method.
+It is the method of liberation, and the Thirty-seven factors of enlightenment are the Taoist method.
 
 The main path of Shravaka's liberation is the Four Noble Truths.
 
-When sravakas practice the Four Noble Truths, they first think about the truth of suffering, find the source of suffering, then think about how to get rid of them, and then practice the sravakaya path, the sravaka practice path, the sravakas seeing path, the sravaka practice path, and finally the sravakah practice. Arhatship is attained without cultivation.
+When Shravaka practice the Four Noble Truths, they first think about the truth of suffering, find the causes of suffering, then think about how to get rid of them, and then practice the sravakaya path, the Shravaka seeing path, the sravaka practice path, and finally the sravakah practice. Arhatship is attained without cultivation.
 
-4. Extinction
+4. Cessation
+
 Cessation is liberation, nirvana, and non-cultivation.
 
 In the sixth section, the Shravakas and Arhats, who fully capture the Buddha's language, mainly practice the Four Noble Truths.
 
-If you hear the Mahayana teachings preached by the Buddha, and you don't practice it after hearing it, but pass it on to others as it is, you are called a voice-hearer Arhat.
+If you hear the Mahayana teachings preached by the Buddha, and you don't practice it after hearing it, but pass it on to others as it is, you are called a Voice-Hearer Arhat.
 
 For example, Venerable Ananda listened to the Great Prajna Sutra and other Mahayana schools in front of Buddha Shakyamuni, and then passed it on to others. He did not cultivate himself, but only cultivated the Four Noble Truths. This is called Shravaka.
 
-Among the disciples of Buddha Shakyamuni, most of them are sravakas, such as Shariputra, Muggallana, Venerable Ananda, Venerable Kasyapa are all sravakas.
+Among the disciples of Buddha Shakyamuni, most of them were Sravakas, such as Shariputra, Maudgalyayana, Venerable Ananda, Venerable Kasyapa are all Sravakas.
 
-Therefore, at the beginning of the Mahayana classics taught by the Buddha, there is a sentence like "Thus have I heard ...". In all versions of the Heart Sutra, except for the translations of Master Xuanzang and Master Kumarajiva, other versions have this sentence in front of them. talk.
+Therefore, at the beginning of the Mahayana classics taught by the Buddha, there is a sentence like "Thus have I heard ...". In all versions of the Heart Sutra, except for the translations of Master Xuanzang and Master Kumarajiva, other versions have this sentence in front of them.
 
 When Buddha Shakyamuni taught the "Heart Sutra", numerous Bodhisattvas and Arhats' relatives memorized it without missing a sentence with their extraordinary wisdom.
 
-Before and after the Buddha passed away, many arhats also passed away with the Buddha. Before the Buddha passed away, the relics and the 80,000 arhats passed away first; after the Buddha passed away, Mugalian and the 70,000 arhats also passed away.
+Before and after the Buddha passed away, many arhats also passed away with the Buddha. Before the Buddha passed away, the relics and the 80,000 arhats passed away first; after the Buddha passed away, Maudgalyayana and the 70,000 arhats also passed away.
 
 Seeing that the Buddha passed away, these arhats did not want to stay in this world any longer, and they all passed away one after another.
 
@@ -2907,93 +2947,96 @@ The second meaning is that I heard the "Heart Sutra" in an instant.
 
 One Dharma door, other Dharma door heard in other moments, this shows that Venerable Ananda is a learned Arhat.
 
-The third meaning is that Venerable Ananda has only heard it once, which shows that Dharma-rectification is rare.
+The third meaning is that Venerable Ananda has only heard it once, which shows that hearing the teaching is rare.
 
-Section 7 - The Four Ways of Learning the Three Vehicles
-The Dharma taught in the Four Noble Truths refers to the Three Vehicles of Supplementary Path, the Path of Additional Practice, the Path of Seeing, and the Path of Cultivation.
+Section 7 - The Four Ways of Learning in the Three Vehicles
 
-Practitioners have not yet been liberated at the stage of these four paths, and they still need to continue to study. Therefore, these four paths are also called learning the path.
+The Dharma taught in the Four Noble Truths refers to the Three Vehicles of Path of Accumulation, the Path of Joining, the Path of Seeing, and the Path of Meditation.
 
-After passing through these four learning paths, one enters the non-cultivation path, which is also called the non-learning path.
+Practitioners have not yet been liberated at the stage of these four paths, and they still need to continue to study. Therefore, these four paths are also called the path of learning .
 
-At this time, the Hinayana practitioners are liberated and attain the fruit of Arhatship; the Mahayana practitioners attain the status of Buddha and become Buddhas.
+After passing through these four learning paths, one enters the path of no-more-learning.
+
+Hinayana practitioners are liberated and attain the fruit of Arhatship; the Mahayana practitioners attain the status of Buddha and become Buddhas.
 
 From the perspective of listening, thinking, and cultivating, the four kinds of learning are at different stages of listening to, choosing, comprehending, and cultivating the Dharma.
 
 1. Legal view
+
 The meaning of Faxian View is that from listening to the twelve-point teaching, one obtains the concept of sound and meaning, and then after listening, thinking, and making choices, one obtains a pure and victorious solution.
 
 122
 
-The way of resources is the view of Dharma.
+The Path of Accumulation is the view of Dharma.
 
 It is also called Faithful Dao, which means that correct concepts can arise in the five realms of faith, etc.; it is also called shunning and liberation, which means breaking afflictions and obstacles, and realizing the subordination of obedience to the truth of extinction.
 
-After attaining the spirit of renunciation, one enters the realm of resources.
+After attaining the mind of renunciation, one enters the Path of Accumulation.
 
-The heart liberated from the suffering of actions and the heart that truly pursues the Arhat fruition of predestination are combined together to be the renunciation of the predestination; the heart that is liberated from the suffering of actions and the heart that truly pursues the fruition of the sravaka is the sum of the hearts of the sravaka. The renunciation of renunciation; the heart of liberation from suffering and the heart of true pursuit of Buddhahood, the sum of which is the renunciation of Mahayana.
+The mind liberated from the suffering of actions and the heart that truly pursues the Arhat fruition of predestination are combined together to be the renunciation of the predestination; the heart that is liberated from the suffering of actions and the heart that truly pursues the fruition of the Shravaka is the sum of the hearts of the Shravaka. The renunciation of renunciation; the heart of liberation from suffering and the heart of true pursuit of Buddhahood, the sum of which is the renunciation of Mahayana.
 
-Shravaka's Dharma contemplation is the way of shravaka's resources.
+Shravaka's Dharma contemplation is the way of Shravaka's resources.
 
 On the basis of renunciation, starting from the pursuit of liberation, one has obtained the Way of Shravaka.
 
-Shravaka's Path of Accumulation is also divided into lower, middle and upper grades.
+The Shravaka's Path of Accumulation is also divided into Lesser, Intermediate and Greater Stages.
 
 You can also divide the amount, the current amount, and the decided fund.
 
-Comparing the sravakaya path is the stage of having just realized human being without self, and now the shravakaya path is the stage of obtaining the five supernatural powers, and the finalized path is the realization of a person. Egoless stage.
+Comparing the Shravaka path is the stage of having just realized human being without self, and now the Shravaka path is the stage of obtaining the five supernatural powers, and the finalized path is the realization of a person's Egoless stage.
 
-The present view of the predestined enlightenment method is the predestined enlightenment resource, and the predestined resource is also divided into lower, middle, and upper grades.
+The present view of the Pratyekabuddha enlightenment method is the Pratyekabuddha enlightenment resource, and the Pratyekabuddha Path of Accumulation is also divided into Lesser, Intermediate and Greater Stages.
 
-Fate-jue Luohan must accumulate a hundred kalpas of good fortune in the karmic path, so it takes a long time to complete the karma path.
+Pratyekabuddhas must accumulate a hundred kalpas of good fortune in the karmic path, so it takes a long time to complete the karma path.
 
-Shravaka does not need to accumulate this kind of good fortune, so the time for Shravaka's sustenance is relatively short.
+Shravakas do not need to accumulate this kind of good fortune, so the time for Shravaka's sustenance is relatively short.
 
 123
 
-The Mahayana view is the bodhisattva's Path of Accumulation.
+The Mahayana view is the Bodhisattva's Path of Accumulation.
 
-The first path to pursue Buddhahood is the Mahayana Accumulation Path. The Mahayana conception requires not only renunciation, but also Bodhicitta.
+The first path to pursue Buddhahood is the Mahayana Path of Accumulation. The Mahayana conception requires not only renunciation, but also Bodhicitta.
 
 From the moment of attaining bodhicitta, one has entered the path of Mahayana sustenance.
 
-The Mahayana Path of Accumulation is also divided into lower, middle and upper grades, because it takes a long time to accumulate blessings for countless kalpas.
+The Mahayana Path of Accumulation is also divided into Lesser, Intermediate and Greater Stages, because it takes a long time to accumulate merit for countless kalpas.
 
-The Mahayana Accumulation Path has Bodhicitta, Dharma joy, the five eyes, and a great power of vows. The Hinayana Accumulation Path does not have these.
+The Mahayana Path of Accumulation has Bodhicitta, Dharma joy, the five eyes, and a great power of vows. The Hinayana Path of Accumulation does not have these.
 
 Second, the concept of righteousness
 The meaning of Yi Xian Guan is that, after practicing Dharma appearance again and again, Bian Quant realizes the realization of non-self.
 
-Jiaxingdao is the concept of righteousness.
+Path of Joining is the concept of righteousness.
 
 It is also called the decision-making point, and it is also called the wisdom of Path of Seeing without leakage, which means that it is only one part of the wisdom of perfection without leakage.
 
-Jiaxingdao is further divided into Nuanjiaxingdao, Dingjiaxingdao, Renjiaxingdao, and the world's first Fajiaxingdao.
+Path of Joining is further divided into Nuanjiaxingdao, Dingjiaxingdao, Renjiaxingdao, and the world's first Fajiaxingdao.
 
-Before the way of adding practice, meditation and wisdom could not be practiced together. Since the double practice of concentration and wisdom, it has entered the way of adding practice from the way of resources.
+Before the practice of the Path of Joining, meditation and wisdom could not be practiced together. Since the double practice of concentration and wisdom, it has entered the way of Path of Joining from the Path of Accumulation.
 
 Shravakaya's conception of righteousness is the practice of sravakaya.
 
-In addition to warm, top, forbearance, and the world's first method, it can also be divided into lower, middle and upper grades.
+In addition to warm, top, forbearance, and the world's first method, it can also be divided into Lesser, Intermediate and Greater Stages.
 
 The main practice of the Shravaka Path is the emptiness of human beings without self. After cultivating the emptiness of human beings on the Shravaka Path of Accumulation, after attaining the peace of mind and body, they enter the Shravaka Path.
 
 The predestined view of the righteousness is the predestination and the practice of the Dharma.
 
-It is also divided into four levels, warm, top, forbearance, and the first method of the world.
+It is also divided into four levels: warmth, summit, acceptance, and the supreme attribute.
 
 However, the time for the first Dharma and practice of the predestined enlightenment was very short, and it passed in an instant, and then I entered the predestined enlightenment.
 
 The Mahayana conception of the present is the way of the Bodhisattva.
 
-It is also divided into four stages: warm, top, forbearance, and the first method of the world, and each stage is divided into three levels, because the Mahayana practice takes a long time, and it will accumulate the blessings of countless kalpas.
+It is also divided into four stages: warmth, summit, acceptance, and the supreme attribute, and each stage is divided into three levels, because the Mahayana practice takes a long time, and it will accumulate the blessings of countless kalpas.
 
 The Theravada path is somewhat different. Among them, the first Dharma addition path in the world is over in an instant, so it cannot be divided into three levels.
 
 3. The View of Truth
+
 Dharma meditation means the realization of the true nature of the Dharma.
 
-To see the Dharma is to see the truth.
+The Path of Seeing is to see the truth.
 
 It is further divided into three types: seeing the Dao, breaking the Dao, seeing the Dao, liberating the Dao, and seeing the Dao and attaining the Dao.
 
@@ -3013,13 +3056,14 @@ Shravaka can be divided into voice-hearers breaking off and Path of Seeing, voic
 
 After seeing the Dao and the voice-hearing and seeing the Dao, it can also be divided into the eight forbearances and the eight wisdoms.
 
-From the beginning of Path of Seeing, the Shravaka has realized the emptiness of human beings without self, and can break the afflictions of discrimination. Among them, there are forty kinds of afflictions of discrimination in the desire realm, and thirty-six kinds each in the form realm and the formless realm. One hundred and twelve species in total.
+From the beginning of Path of Seeing, the Shravaka has realized the emptiness of human beings without self, and can break the afflictions of discrimination. Among them, there are forty kinds of afflictions of discrimination in the desire realm, and thirty-six kinds each in the form realm and the formless realm. One hundred and twelve aspects in total.
 
 Predestined awareness and seeing the Dharma can break the vexation barrier of discrimination.
 
 When Mahayana Bodhisattva sees the way, he can break the obstacle of discriminating afflictions and discriminating knowledge.
 
 Fourth, after the present
+
 The meaning of hindsight is to continue to practice the Noble Eightfold Path after seeing the position of the Way, until the true meaning is realized.
 
 Cultivation of the Dao is the concept of hindsight, which is divided into three levels: cultivating the Dao to break the Dao, cultivating the Dao to liberate the Dao, and attaining the Dao after cultivating the Dao.
@@ -3057,9 +3101,10 @@ There are three types of Bodhisattva cultivation ways: Bodhisattva cultivating t
 When a Bodhisattva cultivates the Way, he can break the obstacles of innate afflictions and obstacles of innate knowledge.
 
 Section 8 The difference between big and small multiplication
-In order to save sentient beings, the Buddha once turned the wheel of Dharma three times and taught different Dharma doors for sentient beings with different abilities.
 
-Living beings have different motivations for liberation, different attainments, and different dharmas. Therefore, Buddhism is divided into Mahayana and Hinayana.
+In order to save sentient beings, the Buddha turned the wheel of Dharma three times and taught different Dharma doors for sentient beings with different abilities.
+
+Living beings have different motivations for liberation, different abilities, and different views. Therefore, Buddhism is divided into Mahayana and Hinayana.
 
 The Lesser Vehicle mainly focuses on the content of the Buddha's first turning of the Four Noble Dharma Wheel, and the Mahayana practice is the content of the third turning of the Law Wheel, among which the main practice is the content of the second turning of the Dharma Wheel.
 
@@ -3072,7 +3117,7 @@ First of all, there must be renunciation in magnitude and multiplication.
 
 To renounce the mind is to renounce the mind of the six realms of samsara.
 
-Without renunciation, the Hinayana will not be liberated, and the Mahayana will not become a Buddha without renunciation. Only on the basis of renunciation, can one cultivate the corresponding Dharma door in order to obtain their respective fruit positions.
+Without renunciation, the Hinayana will not be liberated, and the Mahayana will not become a Buddha without renunciation. Only on the basis of renunciation, can one cultivate the corresponding Dharma door in order to obtain their respective result.
 
 In addition to renunciation, the Mahayana has great compassion, great compassion, and bodhicitta, but the Hinayana arhats do not, and the Hinayana does not increase the sense of responsibility.
 
@@ -3095,14 +3140,15 @@ For example, the Bodhisattva of the first land can make one hundred thousand gre
 
 The Theravada Arhats do not have so many wishes, nor do they have such great power.
 
-3. Different fruit positions
+3. Different Results
+
 There is a difference between the size and the vehicle in the fruit position pursued by practice.
 
-The Mahayana pursues the fruition of a Buddha, and the Hinayana pursues the fruition of an arhat.
+The Mahayana pursues the fruit of Buddhahood, and the Hinayana pursues the fruit of an Arhat.
 
 The Mahayana Buddhahood is far higher than Theravada Arhats in terms of wisdom and ability.
 
-The purpose of Mahayana practice is to benefit oneself and others. In addition to liberating oneself, it also needs to save sentient beings in the six realms.
+The purpose of Mahayana practice is to benefit oneself and others. In addition to liberating oneself, we also need to save sentient beings in the six realms.
 
 The Theravada Arhats also teach sutras and teachings and save sentient beings, but compared to the scope of the Mahayana teachings, they are very small.
 
@@ -3114,23 +3160,26 @@ The difference in size multiplication is probably like this.
 
 130
 
-Chapter 8 No Cultivation
+Chapter 8 - Path of No-more-learning
+
+
 first quarter off
 The cessation of the Four Noble Truths is liberation, Nirvana, and non-cultivation.
 
-Not cultivating the Dao means that the obstacles have been broken, and there is no need to practice any more.
+Path of No-more-learning means that the obstacles have been broken, and there is no need to practice any more.
 
-Without cultivation, there are shravakas, predestined enlightenment, and Mahayana without cultivation.
+Path of No-more-learning, there are shravakas, predestined enlightenment, and Mahayana Paths of No-more-learning.
 
 There are two types of sravakas who have not cultivated the way, those who have been cut off and gradually cut off the Arhats, and those who have been cut off and cut off the Arhats.
 
-It does not necessarily take a long time to cultivate shravaka arhatship. There are some who become arhatship in three or four years, and there are many who become arhatship in one time.
+It does not necessarily take a long time to cultivate shravaka arhatship. There are some who become arhats in three or four years, and there are many who become arhats in one lifetime.
 
-Yuanjue Wu cultivated the path and cut off the obstacles of afflictions, and obtained a majestic appearance similar to that of the Bodhisattva of the Eighth Ground.
+Yuanjue Wu cultivated the path and cut off the obstacles of afflictions, and obtained a majestic appearance similar to that of the Bodhisattva of the Eighth Bhumi.
 
-The Mahayana non-cultivation way broke the two obstacles, obtained the four bodies of the Buddha, and obtained the perfect blessing and ability.
+The Mahayana Path of No-more-learning broke the two obstacles, obtained the four bodies of the Buddha, and obtained the perfect blessing and ability.
 
 Section 2 Arhat Fruit
+
 "No Wisdom and No Gain"
 
 "Wisdom" is wisdom, the wisdom of the three vehicles of sravaka, karma, and bodhisattva is wisdom, and "no wisdom" means that wisdom also has no self-nature.
@@ -3139,21 +3188,21 @@ Section 2 Arhat Fruit
 
 This is followed by the sentence "The Path of Accomplishment and Destruction of No Suffering", which mainly refers to the wisdom and realization of the Hinayana Arhats.
 
-After attaining Arhatship, 84,000 afflictions are cut off, and 84,000 kinds of happiness are obtained. At this time, the happiness of all ordinary people combined is not as good as that of an arhat.
+After attaining Arhatship, 84,000 afflictions are cut off, and 84,000 kinds of happiness are obtained. At this time, the happiness of all ordinary people combined is not as great as that of an Arhat.
 
 Bodhisattvas also have this kind of happiness, but in order to save sentient beings, Bodhisattvas will give up this kind of happiness and continue to practice until they become Buddhas.
 
-An arhat accepts this happiness and likes to abide in peace all the time.
+An Arhat accepts this happiness and likes to abide in peace all the time.
 
-It is very difficult to get out of this kind of blissful concentration. It takes all the Tathagatas to flick their fingers together to get them out of samādhi. After they come out of samādhi, they also need to encourage them to enter the Mahayana. Stay in the middle for a long time, maybe hundreds of kalpas, or even tens of thousands of kalpas, and then come out.
+It is very difficult to get out of this kind of blissful concentration. It takes all the Tathagatas to snap their fingers together to get them out of samādhi. After they come out of samādhi, they also need to encourage them to enter the Mahayana. Stay in the middle for a long time, maybe hundreds of kalpas, or even tens of thousands of kalpas, and then come out.
 
-It takes a long time to do this over and over again, so it is very difficult for an arhat to become a Buddha.
+It takes a long time to do this over and over again, so it is very difficult for an Arhat to become a Buddha.
 
-When an arhat did not enter the time period, some people asked him, because of his supernatural powers, he could immediately know and protect all sentient beings.
+When an Arhat did not enter the time period, some people asked him, because of his supernatural powers, he could immediately know and protect all sentient beings.
 
 After entering meditation, it is different. Arhats in meditation cannot see the suffering of the six realms, nor can they see the worldly affairs.
 
-After the Buddha Shakyamuni passed away, the King of Resentment was very sad. Venerable Kasyapa went to the palace to see him, and the King of Resentment came to greet the Venerable on an elephant. When he saw Venerable, he was very excited and wanted to jump from the elephant. When I came down and bowed, Venerable Kasyapa immediately used his supernatural powers to catch him. Venerable said to him, you will not allow this in the future, it is too dangerous, but fortunately I did not enter samadhi.
+After the Buddha Shakyamuni passed away, the King of Resentment was very sad. Venerable Kasyapa went to the palace to see him, and the King of Resentment came to greet the Venerable on an elephant. When he saw Venerable, he was very excited and wanted to jump from the elephant. When he climbed down and bowed, Venerable Kasyapa immediately used his supernatural powers to catch him. Venerable said to him, you will not allow this in the future, it is too dangerous, but fortunately I did not enter samadhi.
 
 Arhats are different from Buddhas and Bodhisattvas. Buddhas are always in meditation, and they can show their supernatural powers freely at all times.
 
@@ -3165,10 +3214,11 @@ The Five Paths of Theravada are finished here.
 
 133
 
-The third section of Mahayana without cultivation
+Section 3 - Mahayana Path of No-more-learning
+
 "Because of nothing"
 
-This sentence speaks of the uncultivated Dao of Mahayana.
+This sentence speaks of the Mahayana Path of No-more-learning.
 
 When Mahayana did not practice the Dao, he already attained great Bodhi and became a Buddha.
 
@@ -3180,19 +3230,21 @@ After becoming a Buddha, you will gain the inconceivable merits of Buddha's body
 
 The Dharma appearance of the Buddha is simply the body of the Buddha.
 
-The appearance of the Buddha is very solemn. When the Buddha is teaching the sutras, some people look at it without blinking. After he has finished teaching the sutras, they are still looking at it. After a hundred years of reading, it is not enough.
+The appearance of the Buddha is very solemn. When the Buddha is teaching the sutras, some people look at him without blinking. After he has finished teaching the sutras, they are still looking at it. After a hundred years of reading, it is not enough.
 
-The Buddha has thirty-two appearances and eighty sublime appearances.
+The Buddha has thirty-two excellent marks and eighty sublime appearances.
 
 "Xiang" means that the owner is a man, and "good" is a symbol of inner merit.
 
 If you can often think about the Buddha's good qualities and the causes of the Buddha's good qualities, the practice will be more blessed.
 
-Nagarjuna Bodhisattva said when he talked about the Buddha's good qualities in the "The Madhyamika Theory": If you add up the merits of the solitary Arhats, the Shravakas, and the infinite merits of the world, and then multiply by ten times, Only one "pore appearance" of the Buddha's body can be achieved; one hundred times of all the blessings of the pores can achieve a "good"; only one hundred times of all the eighty kinds of good blessings can one achieve a "good" Only by achieving a thousand times the merits of all the thirty-two features can one achieve the "white hair" of the Buddha; only by achieving one hundred thousand times the merit of the white hair, can one achieve the "top bun" of the Buddha; One thousand times the virtue of one thousand times, in order to achieve the blessing of "Buddha language and Sanskrit sound".
+Nagarjuna Bodhisattva said when he talked about the Buddha's good qualities in the "The Madhyamika Theory": 
 
-In addition, the various parts of the Buddha's appearance and goodness have the function of preaching the Dharma.
+If you add up the merits of the solitary Arhats, the Shravakas, and the infinite merits of the world, and then multiply by ten times, Only one "pore appearance" of the Buddha's body can be achieved; one hundred times of all the blessings of the pores can achieve a "good"; only one hundred times of all the eighty kinds of good blessings can one achieve a "good" Only by achieving a thousand times the merits of all the thirty-two features can one achieve the "white hair" of the Buddha; only by achieving one hundred thousand times the merit of the white hair, can one achieve the "top bun" of the Buddha; One thousand times the virtue of one thousand times, in order to achieve the blessing of "Buddha language and Sanskrit sound".
 
-The top bun and pores have the function of mind, which can clearly see deep and wide all dharmas.
+In addition, the various parts of the Buddha's appearance and goodness have the function of teaching the Dharma.
+
+The topknot and pores have the function of mind, which can clearly see deep and wide all dharmas.
 
 Therefore, the body of the Buddha pervades all knowledge, and the words of the Buddha and the mind of the Buddha pervade at the same time.
 
@@ -3200,30 +3252,36 @@ Therefore, it is said that all worlds are reflected in the Buddha's body, and th
 
 The secret of the Buddha's body is inconceivable.
 
-For example, the Buddha's top bun looks only four fingers high when looking up, but the real height is immeasurable.
+For example, the Buddha's topknot appears to be only four fingers high when looking up, but the real height is immeasurable.
 
 In the "Inconceivable Sutra on the Secrets of the Tathagata", it is said that Bodhisattva Holding Li used his supernatural powers to fly up through the boundless worlds, but he was never able to see the top of the Buddha's bun, and finally returned tiredly.
 
 The Buddha's body is a rainbow body with a bright, clean and bright body. The light shines. The "Vinaya Sutra" uses three metaphors to praise the Buddha's body:
 
-Add fire to the body; like butter filled with flame; like a lamp in a golden vessel.
+Add fire to the body; 
 
-Every kind of light emitted by the Buddha's body can mature and liberate countless sentient beings; in front of every living being, the Buddha can transform into a body that he can accept, and speak in a language he can understand.
+like butter filled with flame; 
 
-In addition, when people see the Buddha body, they will have the idea of ​​wanting to obtain the Buddha body, and they will pursue and accumulate the merits of becoming the Buddha body, which is also a kind of career merit of the Buddha body.
+like a lamp in a golden vessel.
 
-The Buddha's clothes are always separated from the body by four fingers, but people who come to worship the Buddha can clearly see the outline of the Buddha's body; the Buddha's feet do not touch the ground, but can clearly leave a pattern with the Falun on the ground. footprint.
+Every kind of light emitted by the Buddha's body can ripen and liberate countless sentient beings; in front of every living being, the Buddha can transform into a body that he can accept, and speak in a language he can understand.
 
-If the ants and other sentient beings happened to enter the Buddha's feet while the Buddha was walking, they would be immersed in great happiness for seven days and then reborn in the heavenly realm.
+In addition, when people see the Buddha body, they will have the idea of ​​wanting to obtain the Buddha body, and they will pursue and accumulate the merits of becoming the Buddha body, which is also a kind of aspiration to obtain the body of a Buddha.
 
-Two Buddha's Words and Merits
+The Buddha's clothes are always separated from the body by four fingers, but people who come to honour the Buddha can clearly see the outline of the Buddha's body; the Buddha's feet do not touch the ground, but can clearly leave a wheel pattern in the fottprints on the ground.
+
+If the ants and other sentient beings happened to be crushed by the Buddha's feet while the Buddha was walking, they would be immersed in great happiness for seven days and then reborn in the heavenly realm.
+
+2.  Merits of Buddha's Speech 
+
+
 The Buddha has sixty-four speech qualities.
 
 Master Tsongkhapa said on the basis of the Treasure Accumulation Sutra: The Essence of Truth:
 
 All sentient beings in all the world, at one time inquire into all doubts, do everything in front of each, their body and speech are solemn and present at the same time, although they are engaged in work and rest separately.
 
-When Buddha Shakyamuni preached the sutras, if you listened to it in front of you, the sound would not be loud; if you listened to it far away, the sound would not be small, and it sounded the same.
+When Buddha Shakyamuni preached the sutras, if you listened to it from the front rows, the sound would not be loud; if you listened to it from far away, the sound would not be small, and it sounded the same.
 
 When sentient beings hear it, they will feel that every sentence hits their own afflictions, and every sentence is useful.
 
