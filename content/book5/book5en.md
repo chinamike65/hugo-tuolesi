@@ -3074,9 +3074,9 @@ According to the difference in strength, thickness, etc., these sixteen kinds of
 
 The classification method of the nine grades is: big afflictions are divided into three grades, large and medium, large and medium, and large and small; medium afflictions are divided into three grades, medium-large, medium-medium, and medium-small; small There are three kinds of afflictions, the big in the small, the medium in the small, and the small in the small.
 
-The classification method of the eighty-one grades is: there are nine grades of afflictions born in the desire realm, thirty-six grades each in the form realm and formless realm, for a total of eighty-one grades.
+The classification method of the eighty-one grades is: there are nine grades of afflictions born in the desire realm, thirty-six grades each in the form realm and the formless realm, for a total of eighty-one grades.
 
-At the same time, there are also eighty-one levels of meditation in the three realms and nine places: the desire world, the nine places, the form world, and the four meditation places, which are divided into the first, second, third, and fourth meditation. The four colorless lands of the realm are divided into the emptiness and boundless place, the boundless place of consciousness, the place of nothingness, and the top heaven and earth, a total of thirty-six elements.
+At the same time, there are also eighty-one levels of meditation in the three realms and nine places: the desire world, the nine places, the form world, and the four meditation dhyanas, which are divided into the first, second, third, and fourth dhyanas. The four colorless lands of the realm are divided into the emptiness and boundless place, the boundless place of consciousness, the place of nothingness, and the top heaven and earth, a total of thirty-six elements.
 
 There are eighty-one innate afflictions in total, eighty-one in the meditation of the Shravaka, and eighty-one in the path of cultivating and liberating.
 
@@ -3090,9 +3090,9 @@ Predestination after enlightenment is the practice of enlightenment.
 
 There are also three kinds of cultivating the way of predestined enlightenment, the way of renunciation of predestination and enlightenment, the way of liberation from cultivation of predestination and enlightenment, and the way of attaining Dao after cultivating the way of predestination.
 
-Cultivating the path of predestination can break the obstacles of inborn afflictions.
+Cultivating the path of predestination can break the obstacles of innate afflictions.
 
-The Madhyamika Self-tantra School believes that the cultivation of predestined enlightenment not only breaks the obstacles of innate afflictions, but also breaks the obstacles of gross knowledge.
+The Madhyamika Prasanghika School believes that the cultivation of predestined enlightenment not only breaks the obstacles of innate afflictions, but also breaks the obstacles of gross knowledge.
 
 After the Mahayana, the view is that the Bodhisattva cultivates the way.
 
@@ -3100,13 +3100,13 @@ There are three types of Bodhisattva cultivation ways: Bodhisattva cultivating t
 
 When a Bodhisattva cultivates the Way, he can break the obstacles of innate afflictions and obstacles of innate knowledge.
 
-Section 8 The difference between big and small multiplication
+Section 8 - The difference between big and small multiplication
 
 In order to save sentient beings, the Buddha turned the wheel of Dharma three times and taught different Dharma doors for sentient beings with different abilities.
 
 Living beings have different motivations for liberation, different abilities, and different views. Therefore, Buddhism is divided into Mahayana and Hinayana.
 
-The Lesser Vehicle mainly focuses on the content of the Buddha's first turning of the Four Noble Dharma Wheel, and the Mahayana practice is the content of the third turning of the Law Wheel, among which the main practice is the content of the second turning of the Dharma Wheel.
+The Hinayana mainly focuses on the content of the Buddha's first turning of the Four Noble Dharma Wheel, and the Mahayana practice is the content of the third turning of the Law Wheel, among which the main practice is the content of the second turning of the Dharma Wheel.
 
 There are many differences between Mahayana and Hinayana, which are briefly mentioned here.
 
@@ -3125,20 +3125,21 @@ There are two kinds of great compassion and great compassion, one is the great c
 
 For a child, there is a difference between the great compassion of the mother and the father. The mother's great compassion may just love him, while the father's great compassion is not only love, but also takes great responsibility.
 
-If a child of a pair of parents who loves them falls into the river, the mother will usually just cry and scream by the river, begging for help, and the father will jump down without hesitation to save the child.
+If a child of parents who love them falls into a river, the mother will usually just cry and scream by the river, begging for help, and the father will jump in without hesitation to save the child.
 
-Only the Mahayana practitioners have the great compassion and great compassion like their fathers, but the Hinayana does not have the great compassion and great compassion like their mothers.
+Only the Mahayana practitioners have the great compassion of fathers, but the Hinayana does not have the great compassion and great compassion like their mothers.
 
-To increase the sense of responsibility is to bravely undertake the responsibility of saving sentient beings in the six realms, and neither ordinary people nor Theravada Arhats have such a mind.
+To increase the sense of responsibility is to bravely take responsibility for saving sentient beings in the six realms, and neither ordinary people nor Theravada Arhats have such a mind.
 
 129
 
-Second, the vows are different
+2. The vows are different
+
 In order to become a Buddha and save sentient beings, Mahayana Bodhisattvas will make great vows and have great vowing power.
 
-For example, the Bodhisattva of the first land can make one hundred thousand great vows for the sake of sentient beings in the six realms, and the Bodhisattva of the second land can make a million great vows.
+For example, the Bodhisattva of the first bhumi can make one hundred thousand great vows for the sake of sentient beings in the six realms, and the Bodhisattva of the second bhumi can make a million great vows.
 
-The Theravada Arhats do not have so many wishes, nor do they have such great power.
+The Theravada Arhats do not have so many vows, nor do they have such great power.
 
 3. Different Results
 
@@ -3160,13 +3161,13 @@ The difference in size multiplication is probably like this.
 
 130
 
-Chapter 8 - Path of No-more-learning
+##### Chapter 8 - Path of No-more-learning
 
 
 first quarter off
 The cessation of the Four Noble Truths is liberation, Nirvana, and non-cultivation.
 
-Path of No-more-learning means that the obstacles have been broken, and there is no need to practice any more.
+The Path of No-more-learning means that the obstacles have been broken, and there is no need to practice any more.
 
 Path of No-more-learning, there are shravakas, predestined enlightenment, and Mahayana Paths of No-more-learning.
 
@@ -3178,7 +3179,7 @@ Yuanjue Wu cultivated the path and cut off the obstacles of afflictions, and obt
 
 The Mahayana Path of No-more-learning broke the two obstacles, obtained the four bodies of the Buddha, and obtained the perfect blessing and ability.
 
-Section 2 Arhat Fruit
+Section 2 - Arhat Fruit
 
 "No Wisdom and No Gain"
 
@@ -3208,13 +3209,13 @@ Arhats are different from Buddhas and Bodhisattvas. Buddhas are always in medita
 
 When the Bodhisattva enters the emptiness, although he cannot see the worldly truth, the power of the Bodhisattva's vows will make all sentient beings wish.
 
-When an arhat is in meditation, he can't show his supernatural powers, can't help sentient beings, and can't save people.
+When an Arhat is in meditation, he can't show his supernatural powers, can't help sentient beings, and can't save people.
 
 The Five Paths of Theravada are finished here.
 
 133
 
-Section 3 - Mahayana Path of No-more-learning
+##### Section 3 - Mahayana Path of No-more-learning
 
 "Because of nothing"
 
@@ -3240,7 +3241,7 @@ If you can often think about the Buddha's good qualities and the causes of the B
 
 Nagarjuna Bodhisattva said when he talked about the Buddha's good qualities in the "The Madhyamika Theory": 
 
-If you add up the merits of the solitary Arhats, the Shravakas, and the infinite merits of the world, and then multiply by ten times, Only one "pore appearance" of the Buddha's body can be achieved; one hundred times of all the blessings of the pores can achieve a "good"; only one hundred times of all the eighty kinds of good blessings can one achieve a "good" Only by achieving a thousand times the merits of all the thirty-two features can one achieve the "white hair" of the Buddha; only by achieving one hundred thousand times the merit of the white hair, can one achieve the "top bun" of the Buddha; One thousand times the virtue of one thousand times, in order to achieve the blessing of "Buddha language and Sanskrit sound".
+If you add up the merits of the solitary Arhats, the Shravakas, and the infinite merits of the world, and then multiply by ten times, Only one "pore appearance" of the Buddha's body can be achieved; one hundred times of all the blessings of the pores can achieve a "good"; only one hundred times of all the eighty kinds of good blessings can one achieve a "good" Only by achieving a thousand times the merits of all the thirty-two features can one achieve the "white hair" of the Buddha; only by achieving one hundred thousand times the merit of the white hair, can one achieve the "topknot" of the Buddha; One thousand times the virtue of one thousand times, in order to achieve the blessing of "Buddha language and Sanskrit sound".
 
 In addition, the various parts of the Buddha's appearance and goodness have the function of teaching the Dharma.
 
@@ -3283,7 +3284,7 @@ All sentient beings in all the world, at one time inquire into all doubts, do ev
 
 When Buddha Shakyamuni preached the sutras, if you listened to it from the front rows, the sound would not be loud; if you listened to it from far away, the sound would not be small, and it sounded the same.
 
-When sentient beings hear it, they will feel that every sentence hits their own afflictions, and every sentence is useful.
+When sentient beings hear it, they will feel that every word is directed at their own afflictions, and every word is useful.
 
 Especially when people of different races listen to the scriptures together, what they hear from the Buddha is the language they are familiar with, what the Chinese hear is Chinese, and what the Tibetans hear is Tibetan.
 

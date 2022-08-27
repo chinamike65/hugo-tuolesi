@@ -33,268 +33,239 @@ draft: false
 ![宗喀巴师徒三尊](/images/tsongkhapa3di.png)
 
 TREASURES OF THE Dharma Ocean (6)
+
 Ngawang Gyatso Vajra Guru Prayer
 
-front
 
-Shakyamuni Buddha
-
-Shakyamuni Buddha
-
-Guru Rinpoche
-
-Guru Rinpoche Padmasambhava
-
-stillist
-
-stillist
-
-阿底峡尊者
-
-Venerable Atisha Venerable Atisha
 
 宗喀巴师徒三尊
 
-Tsongkhapa master and apprentice three statues
+Tsongkhapa master and two disciples
 
-Introduction to Ngawang Gyatso Vajra Guru
+#### Introduction to Ngawang Gyatso Vajra Guru
 
-Master Ngawang Gyatso Vajra was born on the fifteenth day of the first lunar month in 1969 in Hainan Tibetan Autonomous Prefecture, Qinghai Province.
+Master Ngawang Gyatso was born on March 3, 1969 (the fifteenth day of the first lunar month) in Hainan Tibetan Autonomous Prefecture, Qinghai Province.
 
-Master Ngawang Gyatso Vajra entered Buddhism at the age of six, and became a monk at the age of eighteen. He had studied with seven masters including Dharma King Lamaoyong Zengzhang, Gazang Qusong Vajra, and the 10th Panchen Lama.
+The master began to practice Buddhism as a novice monk at the age of six, and became an ordained monk at the age of eighteen. He studied with Dharma Master Lama Yong Zeng, Geshe Rinpoche, Lobsang Dorje Vajra Guru, Gejia Rinpoche, Dharma Master Yeshe Gyatso, Gazang Qusong Vajra Guru and the 10th Panchen Lama.
 
-Ngawang Gyatso Vajra Guru is like a teacher, and he has completely obtained the inheritance of the seven masters.
+Master Ah Wang, having followed the precepts of his teachers, received complete transmission of the teachings from his seven masters, the forty-sixth generational heirs of the "Perfection of Wisdom Sutra", the most important classic of Buddhism. From them he obtained more than 200 kinds of empowerments, more than 300 advanced special empowerments, more than 280 guiding precepts, with more than 500 scriptural sutras and more than 80 oral transmissions of intangible secrets. Therefore, the lineage of the master's doctrinal transmission is extremely complete and especially rare.
 
-He received more than 200 kinds of empowerment, followed Xu to empower more than 300 kinds, guided more than 280 kinds, and possessed more than 500 scriptures and teachings and more than 80 ear-transmission secret formulas.
+His Holiness Dharma Master Yongzeng, who was once the sutra teacher of the living Buddha, Sechi, in Lamodeqin Monastery was a person of superior virtue and the complete holder of the transmissions of the Gelugpa tantric teachings. Master Ah Wang studied with Master Yongzeng for more than 20 years and absorbed all of the wisdom and experience of the Venerable Dharma Master. The other six masters are also highly proficient in the esoteric secrets and have sufficient evidence of exceptional scholarly achievements. 
 
-Dharma King Lamaoyong Zeng Zeng is the sutra teacher of the Sechi Living Buddha of Lamo Deqin Monastery (one of the Hutuktu in Beijing in the Qing Dynasty), and is the complete inheritance of the Gelug School of Tibetan Buddhism in Qinghai in the last century. The holder, Ngawang Gyatso Vajra Master has followed the Dharma King for more than 20 years, and has obtained the experience of the Dharma King in his life. The "Great Prajna Sutra" was passed on to Ngawang Gyatso Vajra Master. This is the forty-sixth generation, and the inheritance is very pure. , complete.
+In addition, Master Ah Wang studied at Qinghai Buddhist College and the Ta'er (Kumbum) Monastery Debating College of Dialectics (Debating College).
+With a single-minded commitment to study and wide erudition, he completed the study of sutra and tantra, the five major theories of the five great Dharma masters, well ahead of schedule.
 
-Master Ngawang Gyatso Vajra studied at Qinghai Buddhist College and Pagoda
+Since graduating from Qinghai Buddhist Academy and Ta'er Monastery Debating Academy with excellent grades, the master has been living at Qinghai Tuole Monastery, serving as the Vajra Guru and the abbot of the monastery. He teaches the monks of Tuole Monastery every day in groups: lectures on the five traditional monastic subjects, the "Three Principal Aspects of the Path", and the four classes of tantra, and has set up a new sutra debating school at the monastery.
 
-Erji Debating Institute, and with the diligence and wisdom beyond ordinary people, completed the five major treatises, the second and second esoteric courses of the five great diamonds in advance.
+Master Ah Wang has now produced several batches of lamas with a Geshe degree (equivalent to a Ph.D. in Buddhism).
 
-After graduation, Master Ngawang Gyatso Vajra has been serving as the Vajra Guru and abbot at Tuola Monastery in Qinghai, teaching the five major theories, the three ways, and the four tantras to the monks every day. .
+The master also insists on going into retreat for two months every year.
 
-At present, Tuola Monastery has cultivated several batches of Buddhist Geshes (equivalent to a Ph.D. in Buddhism), and the construction of the sangha has reached a certain scale, laying a solid foundation for guiding and teaching monks.
+Lama Yongzeng once told Master Ah Wang: "Your whole career in this life is to turn the wheel of Dharma widely and spread the Dharma for the benefit of all living beings."
 
-While cultivating monks, Ngawang Gyatso Vajra Master never forgets to study and practice, and has been insisting on retreating for two months every year.
+Master Ah Wang often gives sermons, teachings, lectures, and holds empowerment ceremonies in both Tibetan and Chinese areas, and often holds patriotic teachings, and patriotic activities in monasteries, making due contributions to the promotion of social harmony and stable development.
 
-Before the Dharma King Lamaoyong enlarged his silence, he instructed Master Ngawang Gyatso Vajra: "Your whole life is to turn the wheel of Falun widely and spread the Dharma for the benefit of life.
+At the invitation of believers from other places, the master has travelled all over the world to teach the sutras and the Dharma to those who are destined to hear them.
 
-"Vajra Guru Ngawang Gyatso strictly followed his instructions and often held sermons, preaching precepts, and empowering dharmas.
+In 2009 and 2014, invited by the Buddhist community in Macau, the master, as a representative of Tibetan Buddhist monks, presided over the Puja for the 10th and 15th anniversary of Macau's return to the mainland.
 
-Due to the compassion and teachings of Guru Ngawang Gyatso, many believers of different nationalities and ethnic groups have converted to Guru Ngawang Gyatso.
+In October 2015, the master was also invited to participate in the 2015 Chongsheng International Forum co-organized by the Yunnan Buddhist Association and the Dali Chongsheng Temple.
 
-In 2009 and 2014, invited by the Buddhist community in Macau, Master Ngawang Gyatso Vajra, as the representative of the eminent Tibetan Buddhist monks, presided over the Dharma for the 10th and 15th anniversary of the return of Macau.
+Master Ngawang is not only perfect in his practice and perfect in his eloquence, but he is also the author of a rich collection of writings.
 
-In October 2015, Master Ngawang Gyatso was also invited to participate in the 2015 Chongsheng International Forum co-organized by Yunnan Buddhist Association and Dali Chongsheng Temple.
+The Master's writings include Commentary on Philosophy, Commentary on the Diamond Sutra, Dictation from the Three Masters of the Three Paths and Three Schools, Vajrasattva Ritual and Practice, and Dakini Mother of Buddha Ritual, Tracks and Practical Practices, Practice of Retreat, Simmering Sang Ritual, Biography of Vajra Guru Gazang Qusong, History of Tibetan Buddhism, Dabao Motto, Nectar Dharma Rain, Tantric Buddhism Feng Shui and the "Dharma Ocean Treasures" series (this is the third volume), etc.
 
-Scholars had a full exchange and made keynote speeches at the conference.
+The master's writings are concise and comprehensive, and the analysis is profound and thorough, and has been praised and acclaimed by many great scholars in Buddhist circles at home and abroad.
 
-Not only did Master Ngawang Gyatso Vajrayana have perfect cultivation and perfect eloquence, but he was also rich in writing.
+Master Ah Wang once studied under the 10th Panchen Lama, who is deeply loved by the people. The Panchen Lama was called "a great patriot and an outstanding leader of Tibetan Buddhism" by the Central Committee of the Communist Party of China and made many important contributions to Buddhism in China.
 
-The master's writings include "Annotation of Prajna Sutra", "Dictation by Masters of the Three Ways and Three Schools", "Treasures of the Dharma Sea" series and so on.
+Master Ah Wang was deeply influenced by the Panchen Lama. In his religious thought, he advocated that Buddhist disciples should be concerned with the common people, cherish the "Three Great Loves" and practice the "Four Practices" in order to achieve the harmony and perfection of the "Five Vows".
 
-The writings of Master Ngawang Gyatso Vajra are concise and comprehensive, and the analysis is profound and thorough.
+"Three Loves": patriotism, love for the people, and love for education.
 
-In recent years, Master Ngawang Gyatso Vajra has often traveled to various places to give public lectures, preaching Dharma and benefiting students.
+"Four Practices": take self-purification as the foundation, take altruism as the principle, take harmony as the spirit, and take enlightenment as the goal.
 
-The wonderful words when preaching, teaching, and solving doubts for believers, some are full of profound truths, some are full of power to inspire life, and some can become the motto of our life.
+"Five Wishes": Great social harmony, great national unity, great national prosperity, great world peace, great perfection in practice.
 
-China Literature and History Publishing House has been publishing successively since 2016
+Under the leadership of Master Ah Wang, the Sangha of Tuole Monastery adheres to the rule of the Gelug School. The results are among the best. Master Ah Wang said that it does not matter if we are talking about Southern Buddhism, Chinese Buddhism or Tibetan Buddhism, they are all Buddha's Dharma, and they are all very special.
 
-Master Ngawang Gyatso Vajrayana's writings "Retrieve Your Happiness", "Unlock Your Wisdom", "Nurture Your Good Roots", "Save Your Blessings", "Nurture Your Concentration", "Strengthen Your Mind" Bottom Line" six volumes "Happy Life and Wisdom Life" cultural series and "Quotations of Wisdom" single book.
+Buddhists should go deeper into the scriptures, diligently study and think, and establish a right view. At the same time, it is necessary to develop Bodhicitta widely and truly think for the sake of all sentient beings, in order to achieve a perfect life for oneself and others.
 
-This series of books analyzes many problems that plague modern people's life with easy-to-understand language and vivid examples, and gives effective solutions.
+---
 
-It has very practical guiding significance for people who want to have a happy, wise and happy life.
-
-In the book "Quotations of Wisdom", Guru Ngawang Gyatso's language is lively and poetic. Every sentence is true and simple. From the shallow to the deep, step by step, each sentence is straight to the heart and thought-provoking. resonate.
-
-Master Ngawang Gyatso Vajra is the follow-up disciple of Master Sherat Gyatso, who was called "patriotic old man" by Chairman Mao. We should be concerned with the common people, cherish the "Three Loves", and practice the "Four Practices" in order to achieve the harmony and perfection of the "Five Wishes".
-
-Under the leadership of Ngawang Gyatso Vajra Guru, the Sangha of Tuola Monastery adheres to the style of Gelugzong, observes strict precepts, listens to reason, and is well-known in Tibetan areas for its profound and rigorous style of study. The performances at the conference are among the best.
-
-Master Ngawang Gyatso Vajra said that whether it is Southern Buddhism, Chinese Buddhism or Tibetan Buddhism, all of them are the Buddha's Dharma, and they are all very special.
-
-Buddhists should go deeper into the scriptures, diligently study and think, and establish a right view.
-
-At the same time, it is necessary to develop Bodhicitta widely and truly think for the sake of all sentient beings, in order to achieve a perfect life for oneself and others.
-
-Chen Qingying, former director and researcher of the Institute of History, China Tibetology Research Center, on January 10, 2017 at Tuola Temple in Xianyang
-
-"The Treasures of the Fahai" Series No. 6
+"Dharma Ocean Treasures 6"
 
 Commentary on "Changing the Scriptures"
 
 Ngawang Gyatso Vajra Guru explained
 
-picture
+![阿旺嘉措金刚上师讲解](/images/book6cov.png)
 
-Table of contents
-Chapter 1 A Brief Biography of Buddha Shakyamuni…………..1
+### Table of contents
 
-The first section of the birth of Prince Sakyamuni and his boyhood...... 2
+##### Chapter 1 - A Brief Biography of Buddha Shakyamuni…………..1
 
-The second section of ordination and practice process………………..4
+Section 1 - Birth of Prince Sakyamuni and his boyhood...... 2
 
-Section 3 Enlightenment and Dharma to save sentient beings…………. 7
+Section 2 - ordination and practice process………………..4
 
-Section 4 Nirvana and the most complete truth ................................................ 11
+Section 3  - Enlightenment and Dharma to save sentient beings…………. 7
 
-Chapter 2 Collection of Buddhist Classics……………….14
+Section 4 - Nirvana and the most complete truth ................ 11
+
+##### Chapter 2 - Collection of Buddhist Classics……………….14
 
 The first collection of classics in the first section………… 15
 
-Section 2 The second collection of classics……………… 15
+Section 2 - The second collection of classics……………… 15
 
-Section 3 The third collection of classics……………… 16
+Section 3 - The third collection of classics……………… 16
 
-Chapter 3 The Four Sects of Buddhism……………………..18
+##### Chapter 3 - The Four Sects of Buddhism……………………..18
 
-Section 1 Overview of the Four Sects of Buddhism…………. 18
+Section 1 - Overview of the Four Sects of Buddhism…………. 18
 
-The second section has ministries…………………… 19
+Section 2 - has ministries…………………… 19
 
-The third chapter of the sects…………………… 22
+Section 2 - the sects…………………… 22
 
-Section 4 Consciousness-Only School…………………… 28
+Section 4 - Consciousness-Only School…………………… 28
 
-Section 5 Madhyamika …………………… 30
+Section 5 - Madhyamika …………………… 30
 
-Section 6 Tantra………………………….. 31
+Section 6 - Tantra………………………….. 31
 
-Chapter 4 Tibetan Buddhism………………33
+Chapter 4 - Tibetan Buddhism………………33
 
-Section 1 Overview of Tibetan Buddhism………………34
+Section 1 - Overview of Tibetan Buddhism………………34
 
-Section 2 Features of Tibetan Buddhism…………..58
+Section 2 - Features of Tibetan Buddhism…………..58
 
-Section 3 Tibetan Buddhism and Esoteric Buddhism………………..64
+Section 3 - Tibetan Buddhism and Esoteric Buddhism………………..64
 
-Chapter 5 "Changing Sutras" Overview .................................67
+##### Chapter 5 "Changing Sutras" Overview .................................67
 
-Section 1 The purpose and order of learning Buddhism ................................................................................ 67
+Section 1 - The purpose and order of learning Buddhism ................................................................................ 67
 
-The content of the second section "Changing the scriptures often" ................................................ 76
+Section 2 -  "Changing the scriptures often" ................................................ 76
 
-Chapter 6 The Refuge Text…………..80
+##### Chapter 6 - The Refuge Text…………..80
 
-Section 1: The Place of Refuge…………………… 82
+Section 1 - The Place of Refuge…………………… 82
 
-SECTION 2 Reasons for Refuge ................................................................................. 89
+Section 2 - Reasons for Refuge ................................................................................. 89
 
-Section 3 The Merit of the Three Treasures…………………….. 92
+Section 3 - The Merit of the Three Treasures…………………….. 92
 
-Section 4 How to Practice the Four Refugees………………. 99
+Section 4 - How to Practice the Four Refugees………………. 99
 
-Section 5 The merits of taking refuge………………. 102
+Section 5 - The merits of taking refuge………………. 102
 
-Chapter Seven: Sending Bodhicitta………..109
+##### Chapter 7 - Sending Bodhicitta………..109
 
-Section 1 Bodhicitta……………………..111
+Section 1 - Bodhicitta……………………..111
 
-Section 2 How to Generate Bodhicitta……………….. 112
+Section 2 - How to Generate Bodhicitta……………….. 112
 
-The third section of Bodhicitta's merits……………….. 120
+Section 3 - Bodhicitta's merits……………….. 120
 
-The fourth section of the meditation method for generating bodhicitta………………. 121
+Section 4 - meditation method for generating bodhicitta………………. 121
 
-Chapter 8 The Four Immeasurable Heart Texts…………..123
+##### Chapter 8 - The Four Immeasurable Heart Texts…………..123
 
-Section 1 May all sentient beings be blessed with happiness and the causes of happiness. … 123
+Section 1 - May all sentient beings be blessed with happiness and the causes of happiness. … 123
 
-Section 2 May all sentient beings be free from suffering and the causes of suffering. … 131
+Section 2 - May all sentient beings be free from suffering and the causes of suffering. … 131
 
-Section 3 May all sentient beings never be separated from the joy of being without suffering. …. 138
+Section 3 - May all sentient beings never be separated from the joy of being without suffering. …. 138
 
-Section 4 May all sentient beings stay away from love, hatred, relatives and estrangements, and live in equal homes. … 139
+Section 4 - May all sentient beings stay away from love, hatred, relatives and estrangements, and live in equal homes. … 139
 
-Section 5: The Key to Sending out the Four Immeasurable Hearts………………. 140
+Section 5 - The Key to Sending out the Four Immeasurable Hearts………………. 140
 
 The ninth chapter of the four major vows………….143
 
-The first section of the boundless vow to save all sentient beings…………..144
+Section 1 - the boundless vow to save all sentient beings…………..144
 
-The second section of endless troubles and vows to break...... 144
+Section 2 - endless troubles and vows to break...... 144
 
-The third section of the Buddha Dharma is boundless vows to learn……………… 146
+Section 3 - he Buddha Dharma is boundless vows to learn……………… 146
 
-Section 4: The Supreme Vows of Buddhism and Dao Fulfillment ................................................ 148
+Section 4 - The Supreme Vows of Buddhism and Dao Fulfillment ......... 148
 
-Chapter 10 Opening verses……………… 150
+##### Chapter 10 - Opening verses……………… 150
 
-The first section of the most profound and subtle Dharma ………… 151
+Section 1 - most profound and subtle Dharma ………… 151
 
-Section 2 Hundreds of thousands of catastrophe encounters... 154
+Section 2 - Hundreds of thousands of catastrophe encounters... 154
 
-Section 3 Now I have seen and heard the true meaning of the Tathagata, 157
+Section 3 - Now I have seen and heard the true meaning of the Tathagata, 157
 
-Chapter Eleven of the Collection of Laws ………………..160
+##### Chapter 11 - the Collection of Laws ………………..160
 
-Section 1 Do not commit any evil……………….160
+Section 1 - Do not commit any evil……………….160
 
-The second section of the practice of goodness ………………..161
+Section 1 - The practice of goodness ………………..161
 
-Section 3 Self-purification means all kinds of Buddhism. . . . 162
+Section 3 - Self-purification means all kinds of Buddhism. . . . 162
 
-Chapter 12 Postscript……………………..164
+##### Chapter 12 - Postscript……………………..164
 
-Section 1 The Origin of Consciousness-Only School ................................................................ 164
+Section 1 - The Origin of Consciousness-Only School ................................................................ 164
 
-Section 2 If you can hear it, you can hear it, if you can speak it, you can say it with your heart
+Section 2 - If you can hear it, you can hear it, if you can speak it, you can say it with your heart
 
 Can hear, speak, don't give up, send heart to heart, don't say anything... 168
 
-Section 3 Saying nothing but saying that the sages' hearts are convenient for the ordinary hearts
+Section 3 - Saying nothing but saying that the sages' hearts are convenient for the ordinary hearts
 
 Universal wish to confuse all sentient beings with the Buddha's wonderful mind and liberation... 174
 
-Chapter Thirteen Huayan verses……………….177
+##### Chapter 13 - Huayan verses……………….177
 
-Section 1 If one wants to know about all the Buddhas in the three worlds………….. 177
+Section 1 - If one wants to know about all the Buddhas in the three worlds………….. 177
 
-The second section should observe the dharma realm, everything is created by the mind…….. 179
+Section 2 - should observe the dharma realm, everything is created by the mind…….. 179
 
-Chapter 14 The Dharma of Cause and Condition……………….180
+##### Chapter 14 - The Dharma of Cause and Condition……………….180
 
-Chapter 15 Vajra verses ………… 184
+##### Chapter 15 - Vajra verses ………… 184
 
-In the first section, everything that can be done is like a dream bubble………….. 185
+Section 1 - everything that can be done is like a dream bubble………….. 185
 
-The second section is like the dew and the electricity should be done in this way………….. 189
+Section 2 - like the dew and the electricity should be done in this way………….. 189
 
-Chapter 16 Madhyamika verses……………….192
+##### Chapter 16 - Madhyamika verses……………….192
 
-Section 1: The Dharma of Cause and Condition ................................................. 193
+Section 1 - The Dharma of Cause and Condition ................................................. 193
 
-verse 2 neither born nor perished unceasing nor everlasting
+Section 2 - neither born nor perished unceasing nor everlasting
 
 Neither come nor go
 
-The third section on the cessation of dramas………………. 198
+Section 3 - on the cessation of dramas………………. 198
 
-The fourth section pays homage to the Buddha’s teachings on the subtle and subtle methods of silence………….. 200
+Section 4 - homage to the Buddha’s teachings on the subtle and subtle methods of silence………….. 200
 
-Chapter 17 Prajna Verses………………201
+##### Chapter 17 - Prajna Verses………………201
 
-The first stanza asks all the voice-hearers to lead to true annihilation... 202
+Section 1 - asks all the voice-hearers to lead to true annihilation... 202
 
-The second section makes all the benefits, the sentient beings, the Tao and the wisdom become the benefits of the world... 203
+Section 2 - makes all the benefits, the sentient beings, the Tao and the wisdom become the benefits of the world... 203
 
-Section 3 The Buddha Who Is Possessing All Kinds of Wisdom Says All Kinds of Dharmas... 205
+Section 3 - The Buddha Who Is Possessing All Kinds of Wisdom Says All Kinds of Dharmas... 205
 
-The fourth section of Shravaka Bodhisattva pays respect before all the Buddha mothers... 206
+Section 4 - Shravaka Bodhisattva pays respect before all the Buddha mothers... 206
 
-Chapter 18 Dharmakaya verses………………207
+##### Chapter 18 - Dharmakaya verses………………207
 
-Section 1 Elimination of Wandering Nets………………. 207
+Section 1 - Elimination of Wandering Nets………………. 207
 
-The second section is very deep and broad………………. 209
+Section 2 -  is very deep and broad………………. 209
 
-The third section puts the light of universality everywhere……………….212
+Section 3 - puts the light of universality everywhere……………….212
 
-Section 4 Salute to the Wonderful Dharma Body………………. 214
+Section 4 - Salute to the Wonderful Dharma Body………………. 214
 
 Introduction to Tuo Le Temple……………… 217
 
@@ -302,12 +273,13 @@ Introduction to Awa Temple……………………..228
 
 Back to ……………… 232
 
-Chapter 1 Brief Biography of Buddha Shakyamuni
+##### Chapter 1 - Brief Biography of Buddha Shakyamuni
+
 Sakyamuni is the founder of Buddhism. His surname is Gautama, his childhood name is Siddhartha. Sakyamuni is a family caste. The meaning of the saint of the Ka tribe.
 
 Siddha became proficient in 64 arts over the years. He became a monk at the age of 29, and at the age of 35, on the evening of April 14, he subdued all demons.
 
-Therefore, the fifteenth day of the fourth lunar month is the enlightenment day of Buddha Shakyamuni.
+Therefore, the fifteenth day of the fourth lunar month is the  day of Buddha Shakyamuni's enlightenment.
 
 Forty-nine days after Sakyamuni became a Buddha, he started to turn the Wheel of Four Noble Truths at Varanas on the fourth day of the sixth month of that year; then, on the fifteenth day of the third month of the following year, he turned the Wheel of Formless Dharma for the second time at Ling Vulture Mountain.
 
