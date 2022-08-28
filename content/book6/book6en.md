@@ -219,23 +219,25 @@ Section 3 - Saying nothing but saying that the sages' hearts are convenient for 
 
 Universal wish to confuse all sentient beings with the Buddha's wonderful mind and liberation... 174
 
-##### Chapter 13 - Huayan verses……………….177
+##### Chapter 13 - Hua Yan (Flower Garland Sūtra) verses ……………….177
 
-Section 1 - If one wants to know about all the Buddhas in the three worlds………….. 177
+Section 1 - If one wants to know about all the Buddhas in the three worlds ………….. 177
 
 Section 2 - should observe the dharma realm, everything is created by the mind…….. 179
 
 ##### Chapter 14 - The Dharma of Cause and Condition……………….180
 
-##### Chapter 15 - Vajra verses ………… 184
+##### Chapter 15 - Vajra verses (The Diamond Sutra) ………… 184
 
-Section 1 - everything that can be done is like a dream bubble………….. 185
+Section 1 - All things contrived are like
+Dream, illusion, bubble, shadow, ………….. 185
 
-Section 2 - like the dew and the electricity should be done in this way………….. 189
+Section 2 - And as dewdrop or lightning,
+They should be regarded as such. ………….. 189
 
-##### Chapter 16 - Madhyamika verses……………….192
+##### Chapter 16 - Madhyamika verses ……………….192
 
-Section 1 - The Dharma of Cause and Condition ................................................. 193
+Section 1 - The Dharma of Cause and Effect ......... 193
 
 Section 2 - neither born nor perished unceasing nor everlasting
 
@@ -245,31 +247,31 @@ Section 3 - on the cessation of dramas………………. 198
 
 Section 4 - homage to the Buddha’s teachings on the subtle and subtle methods of silence………….. 200
 
-##### Chapter 17 - Prajna Verses………………201
+##### Chapter 17 - Prajna Verses ………………201
 
 Section 1 - asks all the voice-hearers to lead to true annihilation... 202
 
 Section 2 - makes all the benefits, the sentient beings, the Tao and the wisdom become the benefits of the world... 203
 
-Section 3 - The Buddha Who Is Possessing All Kinds of Wisdom Says All Kinds of Dharmas... 205
+Section 3 - The Buddha Who Is Possessing All Kinds of Wisdom Says All Kinds of Dharmas ... 205
 
-Section 4 - Shravaka Bodhisattva pays respect before all the Buddha mothers... 206
+Section 4 - Shravaka Bodhisattva pays respect before all the Buddha mothers ... 206
 
-##### Chapter 18 - Dharmakaya verses………………207
+##### Chapter 18 - Dharmakaya verses ………………207
 
-Section 1 - Elimination of Wandering Nets………………. 207
+Section 1 - Destroy the false nets, the vast and deep body, ………………. 207
 
-Section 2 -  is very deep and broad………………. 209
+Section 2 -  is very deep and broad ………………. 209
 
-Section 3 - puts the light of universality everywhere……………….212
+Section 3 - Radiate the light of universality everywhere  ……………….212
 
-Section 4 - Salute to the Wonderful Dharma Body………………. 214
+Section 4 - pay homage to the wonderful Dharma body ………………. 214
 
 Introduction to Tuo Le Temple……………… 217
 
 Introduction to Awa Temple……………………..228
 
-Back to ……………… 232
+Dedication ……………… 232
 
 ##### Chapter 1 - Brief Biography of Buddha Shakyamuni
 
