@@ -4,19 +4,19 @@ date: 2022-01-31T12:33:35+01:00
 draft: false
 ---
 
-南无皈依十方.尽虚空界.一切诸佛
+南无皈依十方 尽虚空界 一切诸佛
 
 I take refuge in the ten directions. Exhausting the realm of empty space. All Buddhas.
 
-南无皈依十方.尽虚空界.一切尊法
+南无皈依十方 尽虚空界 一切尊法
 
 I take refuge in the ten directions. Exhausting the realm of empty space. All Dharmas.
 
-南无皈依十方.尽虚空界.一切贤圣僧
+南无皈依十方 尽虚空界 一切贤圣僧
 
 I take refuge in the ten directions. Exhausting the realm of empty space. All Sanghas.
 
-南无如来.应供.正遍知.明行足.善逝世间解.无上士.调御丈夫.天人师.佛.世尊
+南无如来 应供 正遍知 明行足 善逝世间解 无上士 调御丈夫 天人师 佛 世尊
 
 Hail to Tathagata. Highest Master. Supreme Sage. Buddha. World Honoured.
 
@@ -90,23 +90,28 @@ Hail to Tathagata. Highest Master. Supreme Sage. Buddha. World Honoured.
 
 35. 南无宝莲华善住娑罗树王佛
 
->如是等.一切世界.诸佛世尊.常住在世.是诸世尊.当慈念我.若我此生.若我前生.从无始生死以来.所作众罪.若自作.若教他作.见作随喜.若塔物若僧物.若十方僧物.若自取.若教他取.见取随喜.五无间罪.若自作.若教他作.见作随喜.十不善道.若自入.若教他入.见入随喜.所作罪障.或有覆藏.或不覆藏.应堕地狱.饿鬼畜生.诸余恶趣.边地下贱.及篾戾车.如是等处.所作罪障.今皆忏悔.今诸佛世尊.当证知我.当忆念我.我复于诸佛世尊前.作如是言:若我此生.若我余生.曾行布施.或守净戒.乃至施与畜生一抟之食.或修净行.所有善根成就众生.所有善根修行菩提.所有善根及无上智.所有善根一切合集.校计筹量.皆悉回向阿耨多罗三藐三菩提.如过去未来现在诸佛所作回向.我亦如是回向.
+如是等 一切世界 诸佛世尊 常住在世 是诸世尊
+
+当慈念我.若我此生.若我前生.从无始生死以来
+
+所作众罪.若自作.若教他作.见作随喜.若塔物若僧物.若十方僧物.若自取.若教他取.见取随喜.五无间罪.若自作.若教他作.见作随喜.十不善道.若自入.若教他入.见入随喜.所作罪障.或有覆藏.或不覆藏.应堕地狱.饿鬼畜生.诸余恶趣.边地下贱.及篾戾车.如是等处.所作罪障.今皆忏悔.今诸佛世尊.当证知我.当忆念我.我复于诸佛世尊前.作如是言:若我此生.若我余生.曾行布施.或守净戒.乃至施与畜生一抟之食.或修净行.所有善根成就众生.所有善根修行菩提.所有善根及无上智.所有善根一切合集.校计筹量.皆悉回向阿耨多罗三藐三菩提.如过去未来现在诸佛所作回向.我亦如是回向.
+
 >
->>众罪皆忏悔.诸福尽随喜.
+>>众罪皆忏悔 诸福尽随喜 
 >>
->>及请佛功德.愿成无上智.
+>>及请佛功德 愿成无上智 
 >>
->>去来现在佛.于众生最胜.
+>>去来现在佛 于众生最胜 
 >>
->>无量功德海.我今皈命礼.
+>>无量功德海 我今皈命礼 
 
 ---
 
 |**Sanskrit**| **Tibetan**|**Tibetan pronunciation**|**English**|**Chinese**|
 |--------|-------|---------|-----|------|
-|Śākyamuni   |ཤཱཀྱ་ཐུབ་པ་ |shakya tup-pa    | Shakyamuni| 释迦牟尼佛 |
-|Vajrapramardī  | རྡོ་རྗེ་སྙིང་པོས་རབ་ཏུ་འཇོམས་པ | dorjé nyingpö raptu jompa   | Thoroughly Conquered with Vajra Essence|金刚不坏佛|
-| Ratnārśiṣ     | རིན་ཆེན་འོད་འཕྲོ   | rinchen ö-tro     | Radiant Jewel |宝光佛|
+|Śākyamuni   |**ཤཱཀྱ་ཐུབ་པ་** |shakya tup-pa    | Shakyamuni| 释迦牟尼佛 |
+|Vajrapramardī  | **རྡོ་རྗེ་སྙིང་པོས་རབ་ཏུ་འཇོམས་པ** | dorjé nyingpö raptu jompa   | Thoroughly Conquered with Vajra Essence|金刚不坏佛|
+| Ratnārśiṣ     | **རིན་ཆེན་འོད་འཕྲོ**   | rinchen ö-tro     | Radiant Jewel |宝光佛|
 | Nāgeśvararāja | ཀླུ་དབང་གི་རྒྱལ་པོ  | luwang gi gyelpo | King, Lord of the Nagas|龙尊王佛|
 | Vīrasena   | དཔའ་བོའི་སྡེ  | pawö-dé   | Army of Heroes |精进军佛|
 | Vīranandī  | དཔའ་བོ་དགྱེས  | pawö-gyé  | Delighted Hero |精进喜佛|

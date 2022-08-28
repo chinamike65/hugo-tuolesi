@@ -32,15 +32,13 @@ draft: false
 
 ![宗喀巴师徒三尊](/images/tsongkhapa3di.png)
 
+
+Tsongkhapa master and two disciples
+
 TREASURES OF THE Dharma Ocean (6)
 
 Ngawang Gyatso Vajra Guru Prayer
 
-
-
-宗喀巴师徒三尊
-
-Tsongkhapa master and two disciples
 
 #### Introduction to Ngawang Gyatso Vajra Guru
 
@@ -103,75 +101,75 @@ Ngawang Gyatso Vajra Guru explained
 
 ### Table of contents
 
-##### Chapter 1 - A Brief Biography of Buddha Shakyamuni…………..1
+##### Chapter 1 - Brief Biography of Buddha Shakyamuni…………..1
 
-Section 1 - Birth of Prince Sakyamuni and his boyhood...... 2
+Section 1 - Birth of Prince Sakyamuni and his boyhood ...... 2
 
-Section 2 - ordination and practice process………………..4
+Section 2 - Experience of ordination and practice ………………..4
 
-Section 3  - Enlightenment and Dharma to save sentient beings…………. 7
+Section 3  - Enlightenment and Teaching to save sentient beings …………. 7
 
 Section 4 - Nirvana and the most complete truth ................ 11
 
-##### Chapter 2 - Collection of Buddhist Classics……………….14
+##### Chapter 2 - Collection of Buddhist Classics ……………….14
 
-The first collection of classics in the first section………… 15
+Section 1 - The first collection of classics  ………… 15
 
 Section 2 - The second collection of classics……………… 15
 
 Section 3 - The third collection of classics……………… 16
 
-##### Chapter 3 - The Four Sects of Buddhism……………………..18
+##### Chapter 3 - The Four Major Schools of Buddhism ……………………..18
 
-Section 1 - Overview of the Four Sects of Buddhism…………. 18
+Section 1 - Overview of the Four Schools of Buddhism…………. 18
 
-Section 2 - has ministries…………………… 19
+Section 2 - Sarvāstivāda …………………… 19
 
-Section 2 - the sects…………………… 22
+Section 2 - Sautrāntika …………………… 22
 
-Section 4 - Consciousness-Only School…………………… 28
+Section 4 - Yogācāra Mind-Only School …………………… 28
 
 Section 5 - Madhyamika …………………… 30
 
-Section 6 - Tantra………………………….. 31
+Section 6 - Tantra ………………………….. 31
 
-Chapter 4 - Tibetan Buddhism………………33
+##### Chapter 4 - Tibetan Buddhism ………………33
 
 Section 1 - Overview of Tibetan Buddhism………………34
 
 Section 2 - Features of Tibetan Buddhism…………..58
 
-Section 3 - Tibetan Buddhism and Esoteric Buddhism………………..64
+Section 3 - Tibetan Buddhism and Tantra ………………..64
 
-##### Chapter 5 "Changing Sutras" Overview .................................67
+##### Chapter 5 - Summary of "Well-known Sutras"  ...........67
 
-Section 1 - The purpose and order of learning Buddhism ................................................................................ 67
+Section 1 - The purpose and path of learning Buddhism ............... 67
 
-Section 2 -  "Changing the scriptures often" ................................................ 76
+Section 2 -  Contents of "Well-known Sutras" ................. 76
 
-##### Chapter 6 - The Refuge Text…………..80
+##### Chapter 6 - The Refuge Texts …………..80
 
-Section 1 - The Place of Refuge…………………… 82
+Section 1 - The Place of Refuge …………………… 82
 
-Section 2 - Reasons for Refuge ................................................................................. 89
+Section 2 - Reasons for Refuge ...... 89
 
-Section 3 - The Merit of the Three Treasures…………………….. 92
+Section 3 - Merit of the Three Jewels …………………….. 92
 
-Section 4 - How to Practice the Four Refugees………………. 99
+Section 4 - How to Practice the Four Refuges ………………. 99
 
-Section 5 - The merits of taking refuge………………. 102
+Section 5 - Merits of Taking Refuge ………………. 102
 
-##### Chapter 7 - Sending Bodhicitta………..109
+##### Chapter 7 - Arousing Bodhicitta………..109
 
 Section 1 - Bodhicitta……………………..111
 
-Section 2 - How to Generate Bodhicitta……………….. 112
+Section 2 - How to Generate Bodhicitta ……………….. 112
 
-Section 3 - Bodhicitta's merits……………….. 120
+Section 3 - Merits of Bodhicitta  ……………….. 120
 
-Section 4 - meditation method for generating bodhicitta………………. 121
+Section 4 - Meditation for generating Bodhicitta………………. 121
 
-##### Chapter 8 - The Four Immeasurable Heart Texts…………..123
+##### Chapter 8 - The Four Immeasurable Minds Texts…………..123
 
 Section 1 - May all sentient beings be blessed with happiness and the causes of happiness. … 123
 
@@ -179,39 +177,39 @@ Section 2 - May all sentient beings be free from suffering and the causes of suf
 
 Section 3 - May all sentient beings never be separated from the joy of being without suffering. …. 138
 
-Section 4 - May all sentient beings stay away from love, hatred, relatives and estrangements, and live in equal homes. … 139
+Section 4 - May all sentient beings stay away from love, hatred, relatives and estrangements, and live in equanimity … 139
 
-Section 5 - The Key to Sending out the Four Immeasurable Hearts………………. 140
+Section 5 - The Key to Developing the Four Immeasurable Minds ………………. 140
 
-The ninth chapter of the four major vows………….143
+##### Chapter 9 - The Four Major Vows ………….143
 
-Section 1 - the boundless vow to save all sentient beings…………..144
+Section 1 - Sentient beings are numberless. We vow to save them all. …………..144
 
-Section 2 - endless troubles and vows to break...... 144
+Section 2 - Delusions are endless. We vow to cut through them all . ...... 144
 
-Section 3 - he Buddha Dharma is boundless vows to learn……………… 146
+Section 3 - The teachings are infinite. We vow to learn them all.  ……………… 146
 
-Section 4 - The Supreme Vows of Buddhism and Dao Fulfillment ......... 148
+Section 4 - The Buddha Way is inconceivable. We vow to attain it. ......... 148
 
-##### Chapter 10 - Opening verses……………… 150
+##### Chapter 10 - The Opening of the Sutra ……………… 150
 
-Section 1 - most profound and subtle Dharma ………… 151
+Section 1 - The incomparable, profound and subtle Dharma ………… 151
 
-Section 2 - Hundreds of thousands of catastrophe encounters... 154
+Section 2 - Never been encountered in hundreds of thousands of eons ... 154
 
-Section 3 - Now I have seen and heard the true meaning of the Tathagata, 157
+Section 3 - Now that I have seen and heard it, I have received it. May I understand the true meaning of the Tathagata ....... 157
 
-##### Chapter 11 - the Collection of Laws ………………..160
+##### Chapter 11 - Collection of Laws ………………..160
 
-Section 1 - Do not commit any evil……………….160
+Section 1 - Do no evil ……………….160
 
-Section 1 - The practice of goodness ………………..161
+Section 1 - Practice of goodness ………………..161
 
-Section 3 - Self-purification means all kinds of Buddhism. . . . 162
+Section 3 - Self-purification is all of Buddhism. . . . 162
 
-##### Chapter 12 - Postscript……………………..164
+##### Chapter 12 - Postscript ……………………..164
 
-Section 1 - The Origin of Consciousness-Only School ................................................................ 164
+Section 1 - The Origin of the Mind-Only School ......... 164
 
 Section 2 - If you can hear it, you can hear it, if you can speak it, you can say it with your heart
 
