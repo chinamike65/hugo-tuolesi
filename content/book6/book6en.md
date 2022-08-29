@@ -2572,43 +2572,56 @@ After taking refuge in the Three Jewels, the merits and virtues of taking refuge
 
 In the Treatise on Receiving Paramita it says:
 
-Taking refuge in blessings has color, and the three realms are still narrow.
+Taking refuge in blessings has color, 
+
+and the three realms are still narrow.
 
 That is to say, if the merit obtained after taking refuge has a shape, then the space of the three realms cannot be accommodated. The three realms refer to the desire realm, the form realm, and the formless realm.
 
 From this we can see how great the merit is after taking refuge.
 
-The Buddha is the most extraordinary field of blessing. The root of goodness planted with the Buddha as the object, even if the original intention and motivation are not pure, will become the cause of liberation and becoming a Buddha.
+The Buddha is the most extraordinary field of blessing. The root of goodness planted with the Buddha as the object, even if the original intention and motivation are not pure, it will become the cause of liberation and becoming a Buddha.
 
 The Buddha said in the Great Compassion White Lotus Sutra:
 
-Ananda! As for the good roots born of the Buddha, they will attain the fruit of Nirvana even if they do not want them. I say that they will eventually attain Nirvana.
+Ananda! As for the good roots born of the Buddha, 
 
-In this way, the Buddha, World-Honored One, is born with a single thought, and the fruit of all their good roots is Nirvana, and I say that they will eventually attain Nirvana.
+they will attain the fruit of Nirvana even if they do not want them. 
 
-Here the Buddha said to Venerable Ananda that the roots of goodness planted by the Buddha, even if they did not initially attain the fruit of nirvana, will surely eventually become nirvana.
+I say that they will eventually attain Nirvana.
 
-Therefore, after taking refuge, when making offerings to Buddhas and Bodhisattvas, or after reciting scriptures and practicing the Dharma, when devotion is made, the devotion goes to a place where it is not good and not the ultimate.
+In this way, the Buddha, World-Honored One, 
+
+is born with a single thought, 
+
+and the fruit of all their good roots is Nirvana, 
+
+and I say that they will eventually attain Nirvana.
+
+Here the Buddha said to Venerable Ananda that the roots of goodness planted by the Buddha, even if they did not initially attain the fruit of nirvana, will surely eventually reach nirvana.
+
+Therefore, after taking refuge, when making offerings to Buddhas and Bodhisattvas, or after reciting scriptures and practicing the Dharma, when dedication is made, the dedication goes to a place where it is not good and not the ultimate.
 
 104
 
-For example, in the past, there were people in India who made offerings to thousands of monks, but they didn’t know how to return after making offerings.
+For example, in the past, there were people in India who made offerings to thousands of monks, but they didn’t know how to dedicate the merit after making offerings.
 
 At this time, he saw a beautiful elephant in front of him. In India at that time, elephants were very respected animals. He thought, I will go back and become an elephant in the next life.
 
 As a result, after his death, because of the great blessings he offered to thousands of monks, he became the mount of Emperor Shitian, a three-headed incense elephant.
 
-This is an example of the wrong devotion, but, even so, the blessing will eventually return to liberate him to become a Buddha.
+This is an example of wrong dedication, but, even so, the merit will eventually return to liberate him to become a Buddha.
 
-Our usual return is:
+Our usual dedication is:
 
 Dedication of merit to the six realms, sentient beings free from suffering and attain happiness
 
-This is a very good devotion. Dedicating to all sentient beings in the six realms to get rid of suffering and achieve happiness, including both family members and ourselves, is very extraordinary.
+This is a very good dedication. Dedicating to all sentient beings in the six realms to get rid of suffering and achieve happiness, including both family members and ourselves, is very extraordinary.
 
-Don't be afraid if the devotion is wrong, even if the blessing will turn to the wrong place, after taking refuge, because of the merit of taking refuge, the blessing will still return to the ultimate vow of becoming a Buddha and liberation.
+Don't be afraid if the dedication is wrong, even if the blessing will turn to the wrong place, after taking refuge, because of the merit of taking refuge, the blessing will still return to the ultimate vow of becoming a Buddha and liberation.
 
 5. Do not fall into the evil path
+
 Taking refuge with sincerity will naturally eliminate the karma of falling into the three evil realms.
 
 If you don’t do bad things after taking refuge, you will definitely be reborn in the Pure Land or get the fruit of human and heaven with the blessing of the Guru’s Three Jewels.
@@ -2616,38 +2629,45 @@ If you don’t do bad things after taking refuge, you will definitely be reborn 
 105
 
 6. Not disturbed by demons
+
 After taking refuge, you will not be hindered by ghosts and demons.
 
 If you think about the four refuges, they will run away, and the merits of the four refuges are very extraordinary.
 
-Among the Four Refugees, one sentence of taking refuge in the guru means taking refuge in the lineage guru of all dynasties, starting with Buddha Shakyamuni, up to one's own root guru.
+Among the Four Refuges, one sentence of taking refuge in the guru means taking refuge in the lineage guru of all dynasties, starting with Buddha Shakyamuni, up to one's own root guru.
 
-For example, in our lineage, from Buddha Shakyamuni to the present, there are a total of forty-six generations. One sentence of taking refuge in the guru means taking refuge in forty-six teachers including Buddha Shakyamuni. Including many Buddhas and Bodhisattvas.
+For example, in our lineage, from Buddha Shakyamuni to the present, there are a total of forty-six generations. One sentence of taking refuge in the guru means taking refuge in forty-six teachers including Buddha Shakyamuni and including many Buddhas and Bodhisattvas.
 
-Taking refuge in a Buddha does not mean taking refuge in one or two Buddhas, but taking refuge in all the Buddhas in the ten directions and three times, including a certain Buddha who has a deep relationship with ourselves.
+Taking refuge in a Buddha does not mean taking refuge in one or two Buddhas, but taking refuge in all the Buddhas in the ten directions and the three times, including a certain Buddha who has a deep relationship with ourselves.
 
 Taking refuge in the Dharma means taking refuge in 84,000 dharmas, including all the teachings and dharmas handed down by Buddha Shakyamuni.
 
-Taking refuge as a monk means taking refuge in all the bodhisattvas and arahants from one place to ten places, as well as the transcendent Dharma protectors, which naturally include the bodhisattvas and Dharma protectors who have a special predestined relationship with us.
+Taking refuge in the Sangha means taking refuge in all the bodhisattvas and arahants from the first bhumi to tenth bhumi, as well as the transcendent Dharma protectors, which naturally include the bodhisattvas and Dharma protectors who have a special predestined relationship with us.
 
-As soon as we recite the Four Refugees, the Three Jewels will come to rescue us. Those Buddhas, Bodhisattvas and Dharma protectors who are related to us will come in an instant because of their karma.
+As soon as we recite the Four Refuges, the Three Jewels will come to rescue us. Those Buddhas, Bodhisattvas and Dharma protectors who are related to us will come in an instant because of their karma.
 
 So, after taking refuge, you will be protected by all these gurus, Buddhas, Bodhisattvas, and Dharma protectors, and you will not suffer any harm.
 
 Seven, wish
+
 Doing things is easy to succeed, and any wish will be easy to achieve.
 
 After taking refuge, if you always sincerely respect the Three Jewels and ask for their blessings, you can easily succeed in doing things.
 
-Although the degree of confidence is different, the blessings produced are also different, but the blessings will gradually increase, and doing things will become easier and easier, so the biggest way to accumulate blessings is to recite the four refuges.
+Although the degree of confidence is different, the blessings produced are also different, but the blessings will gradually increase, and doing things will become easier and easier, so the biggest way to accumulate merit is to recite the four refuges.
 
 The Buddha said in the Great Game Sutra:
 
+---
+
 Blessed people do everything.
 
-The previous life of Venerable Milarepa, the Kadampa Dade Yogi Chachi also said: If you have a normal heart of taking refuge, you will first be rewarded in this life, and everything will be accomplished, and then at the end of your life, you will obtain auspicious blessings. sign.
+---
+
+The previous life of Venerable Milarepa, the Kadampa Dade Yogi Chachi also said: If you have a normal heart of taking refuge, you will first be rewarded in this life, and everything will be accomplished, and then at the end of your life, you will obtain auspicious signs of merit.
 
 8. Quick Achievements
+
 107
 
 Before taking refuge, all aspects of practice are much worse than after taking refuge.
@@ -2656,13 +2676,15 @@ If nothing else, there are the same differences between heaven and earth in term
 
 Therefore, after taking refuge, the achievement of studies will be faster.
 
-To take refuge in the Buddha, one must respect the Buddha, not to take refuge in evil demons, but not to exclude them; to take refuge in the Dharma, one must respect the Dharma and not harm sentient beings; to take refuge in the Sangha, one must respect the Sangha, not make evil friends, but rely on and be close to the guru.
+To take refuge in the Buddha, one must respect the Buddha, not take refuge in evil demons, but not to exclude them; to take refuge in the Dharma, one must respect the Dharma and not harm sentient beings; to take refuge in the Sangha, one must respect the Sangha, not make evil friends, but rely on and be close to the guru.
 
-You should also try your best to study, think, and cultivate, make offerings to the Three Jewels as much as possible, create more good karma, and guide those who have karma to convert to Buddhism.
+You should also try your best to study, think, and meditate, make offerings to the Three Jewels as much as possible, create more good karma, and guide those who have karma to convert to Buddhism.
 
 108
 
-Chapter Seven Sending Bodhicitta
+Chapter 7 - Arousing Bodhicitta
+
+---
 
 All Buddhas, Wonderful Dharma, Zhongzun and even Bodhi, I take refuge
 
@@ -2672,19 +2694,19 @@ All Buddhas and Wonderful Dharma Congregation Reverend: All Buddhas are all Budd
 
 The wonderful Dharma is eighty-four thousand Dharma doors.
 
-The Zhongzuns are the Sangha, including Bodhisattvas, Arahants, and Dharma protectors.
+The Arya are the Sangha, including Bodhisattvas, Arhats, and Dharma protectors.
 
-Zhongzun: The most honorable among all beings is the Sangha.
+Arya: The most honorable among all beings is the Sangha.
 
 The group refers to the four groups of disciples: bhikkhus, nuns, upasakas, and upasikas.
 
-Sangha is also called Sangha in a broad sense. Sangha includes Bodhisattvas, Arahants, and Dharma protectors.
+Sangha is also called Sangha in a broad sense. Sangha includes Bodhisattvas, Arhats, and Dharma protectors.
 
 If it is a monk who has realized emptiness, or a monk with bodhicitta, it is also a sangha.
 
-The same is true of lay people. If a lay family has Bodhicitta, he is a sangha. The sangha does not only refer to monks.
+The same is true of lay people. If a lay householder has Bodhicitta, he is a sangha. The sangha does not only refer to monks.
 
-If it is an ordinary monk, at least four monks can represent a monk.
+If it is an ordinary monk, at least four monks can represent a Sangha.
 
 109
 
@@ -2694,11 +2716,15 @@ Taking refuge in the guru, taking refuge in the Buddha, taking refuge in the Dha
 
 I perform all kinds of resources such as charity: our current behavior is the behavior of the bodhisattva, the behavior of the bodhisattva.
 
-There are many behaviors of bodhisattvas. Generally speaking, they are the six perfections, which are the six perfections of generosity, precepts, patience, diligence, meditation, and wisdom paramita.
+There are many behaviors of bodhisattvas. Generally speaking, they are the six perfections, which are the six perfections of generosity, discipline, patience, diligence, meditation, and wisdom perfection.
 
-Accumulations are blessings, the blessings of taking refuge in the Three Jewels, the blessings of giving, the blessings of diligence, the blessings of prajna wisdom, and the blessings of practicing meditation, etc., use these blessings and resources to become Buddhas and save sentient beings .
+Accumulations are blessings, the blessings of taking refuge in the Three Jewels, the blessings of giving, the blessings of diligence, the blessings of prajna wisdom, and the blessings of practicing meditation, etc., use these blessings and resources to become Buddhas and save sentient beings.
+
+---
 
 I wish to become a Buddha in order to save all sentient beings: I will become a Buddha myself in order to save all sentient beings.
+
+---
 
 This is the heart of generating Bodhicitta and becoming a Buddha.
 
@@ -2706,12 +2732,16 @@ Just recite it three times, and generate bodhicitta three times. Because the min
 
 There are three important points in practice: initiation, visualization, and dedication.
 
-The practice goes through three stages: the beginning, the middle and the last: it is very important to have the intention at the beginning, the visualization during the practice is very important, and the dedication after the practice is very important.
+The practice goes through three stages: the beginning, the middle and the end: it is very important to have the intention at the beginning, the visualization during the practice is very important, and the dedication after the practice is very important.
 
 110
 
-Section 1 Bodhicitta
-What is true bodhicitta? Bodhicitta is the mind of a bodhisattva, and one who has attained bodhicitta is a bodhisattva.
+**Section 1 - Bodhicitta**
+
+
+What is true bodhicitta? 
+
+Bodhicitta is the mind of a bodhisattva, and one who has attained bodhicitta is a bodhisattva.
 
 The real Bodhisattva is called Bodhisattva. Bodhisattva is a literal translation of Sanskrit. Bodhi means to realize, to break, to fully realize emptiness, to completely eliminate the obstacles of afflictions and knowledge, and to save sentient beings is very brave.
 
@@ -2721,7 +2751,7 @@ Bodhicitta must have at least two conditions, first, the goal is to become a Bud
 
 Bodhicitta is divided into vow bodhicitta and action bodhichitta.
 
-In order to save sentient beings, making a vow to achieve great bodhi is called vow bodhicitta; on the basis of making a vow, practicing six degrees of ten thousand deeds to realize this vow is called practice bodhicitta.
+In order to save sentient beings, making a vow to achieve great bodhi is called vow bodhicitta; on the basis of making a vow, practicing the six perfections of ten thousand deeds to realize this vow is called practice bodhicitta.
 
 Bodhicitta is further divided into twenty-two levels. The lowest level is called earth bodhicitta. We see that the earth sometimes changes, and the same is true for earth bodhicitta, which sometimes regresses.
 
@@ -2737,9 +2767,10 @@ The present bodhicitta is false bodhicitta, also known as artificial bodhichitta
 
 Bodhicitta and emptiness are the essence of eighty-four thousand teachings, and these two are the most important of all.
 
-However, only the wisdom of emptiness can only liberate, but cannot become a Buddha. The dual cultivation of wisdom of emptiness and bodhicitta can not only liberate, but also become a Buddha.
+However, only the wisdom of emptiness can liberate, but cannot become a Buddha. The dual cultivation of wisdom of emptiness and bodhicitta can not only liberate, but also become a Buddha.
 
-Section 2 How to Generate Bodhicitta
+Section 2 - How to Generate Bodhicitta
+
 Bodhicitta is the heart that oneself want to become a Buddha for the sake of the six realms of sentient beings who are free from suffering and obtain happiness.
 
 From the moment of attaining bodhicitta, practitioners have truly entered the door of Mahayana Buddhism.
@@ -2747,43 +2778,51 @@ From the moment of attaining bodhicitta, practitioners have truly entered the do
 How to generate bodhicitta? There are two ways to generate bodhicitta, seven-factor karma and self-exchange. Let's talk about the seven-factor karma first.
 
 1. The Seven Branches of Karma Generate Bodhicitta
+
 Bodhicitta is generated through seven steps to generate bodhicitta, so it is called seven.
 
 Except for the first step, each step has a causal relationship with the previous steps, so it is called Bodhicitta.
 
 112
 
-1. Recognize that all living beings in the six realms are their own mothers
+1. Recognize that all living beings in the six realms are our own mothers
+
 Before cultivating the Bodhicitta of the Seven Branches of Karma, one must cultivate the mind of equality.
 
 What is equanimity, that is, whether it is to look at the enemy or relatives and friends, there must be an equanimity, and there should be no greed or hatred.
 
-Without equality, everything is done for the sake of relatives and friends, and it is impossible to save sentient beings in the six realms, because the sentient beings in the six realms include their own enemies, grievances and creditors.
+Without equanimity, everything is done for the sake of relatives and friends, and it is impossible to save sentient beings in the six realms, because the sentient beings in the six realms include their own enemies, grievances and creditors.
 
-After you have a mind of equality, you can cultivate the bodhicitta of the seven branches of cause and effect. First of all, you must recognize that all sentient beings in the six realms are mothers.
+After you have a mind of equanimity, you can cultivate the bodhicitta of the seven branches of cause and effect. First of all, you must recognize that all sentient beings in the six realms are our mothers.
 
-How to identify it? We have been reincarnated countless times in reincarnation, and the number of reincarnations is more than the sand in the universe. Every reincarnation has a mother. Therefore, all beings in the six realms have been our mothers when we were reincarnated.
+How to identify them? 
 
-And not only have they been once or twice, but sentient beings in the six realms have been our parents countless times, even if they are not mothers in this life, they are also mothers in past lives.
+We have been reborn countless times, and the number of reincarnations is more than all the sand grains in the universe. Every rebirth has a mother. Therefore, all beings in the six realms have been our mothers at some time when we were reborn.
 
-The most basic of the bodhisattva way is to recognize that all beings in the six realms are mothers, which is the foundation of bodhicitta.
+And not only have we been once or twice, but sentient beings in the six realms have been our parents countless times, even if they are not mothers in this life, they were still mothers in past lives.
+
+The most basic of the bodhisattva way is to recognize that all beings in the six realms are our mothers, which is the foundation of bodhicitta.
 
 113
 
 2. I miss my mother
+
 Since it is a mother, how much kindness is my biological mother to us, and sentient beings in the six realms also have the same kindness to us.
 
 3. Repay mother's kindness
+
 After thinking about my mother's kindness, I think about how to repay my mother's kindness.
 
 The best way to repay the mother's kindness is to guide all sentient beings like a mother into Buddhism and let her practice the Dharma. In this way, at least later generations will not fall into the evil realm.
 
 4. Show mercy
+
 What we often recite, "May all sentient beings be blessed with happiness and the cause of happiness," is the act of loving kindness.
 
 To all sentient beings, express the kindness of a mother to her son, and may all sentient beings always have happiness and the cause of happiness.
 
 5. Sympathy
+
 "May all sentient beings be free from suffering and the causes of suffering", which is to express compassion.
 
 All sentient beings in the six realms have great suffering. The causes of these sufferings are afflictions and karma. We must think in our hearts that every sentient being can be free from suffering and the causes of suffering forever. This is to show compassion.
@@ -2791,6 +2830,7 @@ All sentient beings in the six realms have great suffering. The causes of these 
 114
 
 6. Increase the sense of responsibility
+
 Think about it: I am a child of sentient beings in the six realms, and I have the responsibility to guide all sentient beings like a mother to get rid of suffering and achieve happiness, and I must express this sense of responsibility.
 
 Think again: Do I have the ability to help all sentient beings like mothers get rid of suffering and achieve happiness? No.
@@ -2798,22 +2838,36 @@ Think again: Do I have the ability to help all sentient beings like mothers get 
 There is no ability to help one's own mother get rid of suffering and happiness, let alone the ability to help sentient beings in the six realms who are like mothers.
 
 7. Generate Bodhicitta
-Who has the ability to free living beings in the six realms from suffering and attain happiness? Arahant? Dengdi Bodhisattva? None of them have this ability, only Buddha has this ability.
 
-Therefore, I want to make up my mind: In order for sentient beings in the six realms to be free from suffering and achieve happiness, I want to become a Buddha. After becoming a Buddha, I will immediately save sentient beings like mothers, so that sentient beings can be free from suffering and achieve happiness.
+Who has the ability to free living beings in the six realms from suffering and attain happiness? Arhats? Dengdi Bodhisattva? None of them have this ability, only Buddha has this ability.
+
+Therefore, I want to make up my mind: 
+
+In order for sentient beings in the six realms to be free from suffering and achieve happiness, I want to become a Buddha. After becoming a Buddha, I will immediately save sentient beings like mothers, so that sentient beings can be free from suffering and achieve happiness.
 
 This is the Bodhicitta arising from the seven branches of cause and effect.
 
 2. To exchange bodhicitta from others
+
 115
 
-The exchange of bodhicitta from others is not an exchange of oneself with others, but the exchange of one's self-interest of loving me and respecting me to an altruistic heart of loving and respecting him.
+The exchange of bodhicitta from others is not an exchange of oneself with others, but the exchange of one's self-interest of loving oneself and respecting oneself to an altruistic heart of loving and respecting him.
 
 Use this kind of altruism to replace your own self-interest, and then increase your sense of responsibility. The bodhicitta that arises at this time is the bodhicitta that is exchanged for others.
 
 The Treatise on Entering Bodhisattva Actions states:
 
-If there is a desire to be hasty, the rescue should come to him, he should be replaced by him, and the secret should be performed.
+---
+
+If there is a desire to be hasty, 
+
+the rescue should come to him, 
+
+he should be replaced by him, 
+
+and the secret should be performed.
+
+---
 
 Compared with the seven-branch karma to generate bodhicitta, it is faster and more courageous to cultivate bodhicitta by exchanging it with others, and there are many extraordinary merits.
 
@@ -2821,7 +2875,11 @@ To exchange bodhicitta from others, we must first know the harm of self-interest
 
 In the Treatise on Entering Bodhisattva Actions, it says:
 
+---
+
 All the joys in the world are born from the benefit of others, and all the sufferings in the world are from self-interest.
+
+---
 
 All beings are poisoned by swords and soldiers, obstructed and violated by heavenly dragons and evil ghosts, and even being born in hells, hungry ghosts, animal realms, etc., all of which stem from doing evil karma such as killing for their own benefit.
 
@@ -2829,9 +2887,19 @@ In our daily life, all kinds of ailments, conflicts and troubles in our bodies, 
 
 116
 
-Why does everyone naturally respect Buddhas and Bodhisattvas? It is also because Buddhas and Bodhisattvas love and respect all beings.
+Why does everyone naturally respect Buddhas and Bodhisattvas? 
 
-The Buddhist scriptures say: what kind of karma is done, what kind of fruit is produced.
+It is because Buddhas and Bodhisattvas love and respect all beings.
+
+The Buddhist scriptures say: 
+
+---
+
+what kind of karma is done, 
+
+what kind of fruit is produced.
+
+---
 
 Respecting others will also be respected and loved by others. This is a causal relationship.
 
@@ -2839,15 +2907,15 @@ At the same time, it can also be explained: the number of sentient beings that c
 
 If we can love people all over the world, people in the whole world will love us; if we can love all beings in the six realms, all living beings in the six realms will love us; if we can love those ghosts, demons, and debtors, they will not harm us.
 
-When ghosts and demons who live by harming people encounter bodhisattvas, they not only do not harm them, but also make offerings to them. The reason is very simple. They are also one of the sentient beings. Bodhisattvas have compassion for them, love them, and will not harm them. can also feel it.
+When ghosts and demons who live by harming people encounter bodhisattvas, they not only do not harm them, but also make offerings to them. The reason is very simple. They are also sentient beings. Bodhisattvas have compassion for them, love them, and will not harm them. can also feel it.
 
 When Venerable Atisha first came to Tibet, many people came to greet him.
 
 Everyone saw Venerable Atisha, and saw Venerable clasping his hands all the time, bowing his head humbly.
 
-Everyone said: Ah, the masters respect us.
+Everyone said: Ah, the master respects us.
 
-Because Venerable Atisha respected everyone, everyone liked him after Venerable Atisha went to Tibet.
+Because Venerable Atisha respected everyone, everyone liked him after he went to Tibet.
 
 When cultivating the bodhicitta of self-exchange exchange, one must first cultivate the first five parts of the bodhicitta of the seven branches of cause and effect.
 
@@ -2855,7 +2923,23 @@ Practice self-exchange in the way of visualization, visualize using various altr
 
 117
 
-When visualizing, there are many aspects to be exchanged: one’s own happiness is exchanged for others’ pain, one’s health is exchanged for others’ sickness, one’s ability is exchanged for others’ powerlessness, one’s wisdom is exchanged for others’ ignorance, one’s own blessings are exchanged. Retribution is exchanged with others' karma, one's own merits are exchanged with others' faults, and one's great happiness is exchanged with others' troubles.
+When visualizing, there are many aspects to be exchanged: 
+
+one’s own happiness is exchanged for others’ pain, 
+
+one’s health is exchanged for others’ sickness, 
+
+one’s ability is exchanged for others’ powerlessness, 
+
+one’s wisdom is exchanged for others’ ignorance, 
+
+one’s own blessings are exchanged. 
+
+Retribution is exchanged with others' karma, 
+
+one's own merits are exchanged with others' faults, 
+
+and one's great happiness is exchanged with others' troubles.
 
 When meditating, visualize the above-mentioned happiness, wisdom, blessings, etc., which will become immeasurable white light, emanating from your right nostril and entering the left nostril of beings in the six realms. Happy, good news.
 
@@ -2871,27 +2955,28 @@ In the past, very few people in Tibet had serious illnesses such as cancer. It w
 
 118
 
-There was once a tumor disease in Tibetan areas, that is, tumors on the neck, especially in Guide County, Qinghai, this disease is common.
+There was once a tumor disease in Tibetan areas, that is, tumors on the neck, especially in Gui de County, Qinghai, this disease is common.
 
-Later, Guide produced a great siddhi master Taxiu. He often exchanged bodhicitta from him and sucked the tumors of all living beings. Finally, a large tumor grew on his neck. Since then, there will be no more there. This disease has occurred.
+Later, Gui de produced a great siddhi master Taxiu. He often exchanged bodhicitta from him and sucked the tumors of all living beings. Finally, a large tumor grew on his neck. Since then, there will be no more there. This disease has occurred.
 
 After Master Taxiu practiced for a few more years, his illness gradually recovered.
 
 This is the power of exchanging bodhichitta with others.
 
-Geshe Chekhwa, a disciple of the Kadampa Master Shayrawa, is known as the Dharma King of Leprosy in Tibet.
+Geshe Chekawa, a disciple of the Kadampa Master Sharawa, is known as the Dharma King of Leprosy in Tibet.
 
-There was no way to cure leprosy before. Geshe Che Kawa treated the newly arrived leprosy patients with the method he exchanged.
+There was no way to cure leprosy before. Geshe Chekawa treated the newly arrived leprosy patients with the method he exchanged.
 
-Chekava also taught these lepers to practice the Three Ways and exchange bodhicitta with them.
+Chekawa also taught these lepers to practice the Three Ways and exchange bodhicitta with them.
 
-Everyone thinks that this master's teaching is to cure leprosy, but in fact, Geshe Che Kawa taught them the three ways, especially the bodhicitta of self-exchange in the three ways.
+Everyone thinks that this master's teaching is to cure leprosy, but in fact, Geshe Chekawa taught them the three ways, especially the bodhicitta of self-exchange in the three ways.
 
 After the lepers recovered, they continued to practice self-exchange bodhicitta, and in the end, most of them achieved it.
 
 119
 
 The third section of Bodhicitta's merits
+
 Without bodhicitta, good fortune will not become the cause of Buddhahood.
 
 Even if all the blessings become the cause of the worldly Dharma, it will not become the cause of Buddhahood.
@@ -2914,25 +2999,27 @@ With bodhicitta, one will naturally receive the blessings of the Buddhas and Tat
 
 Before you have no bodhicitta, you need to rely on your guru to get the true blessings of Buddhas and Bodhisattvas. So you have to take refuge in your guru. After you have bodhicitta, you can get the blessings of all Buddhas and Tathagatas.
 
-With Bodhicitta, the eight great dragon kings, the eight gods of heaven, the gods of the earth, and so on, will all come to protect them.
+With Bodhicitta, the eight great dragon kings, the eight gods of heaven, the gods of the earth, and so on, will all come to protect you.
 
 It will help break down obstacles and make wishes come true.
 
-With Bodhicitta, the transcendent Dharma protector will follow and protect him like a shadow.
+With Bodhicitta, the transcendent Dharma protector will follow and protect you like a shadow.
 
 After having bodhicitta, the people around will naturally become better, their troubles will naturally be suppressed by the power of bodhicitta, they will not be angry, and everyone will become very harmonious.
 
-After having Bodhicitta, recite the sentence "Om Mani Pami Hum", the merit will become as big as the sky, and it will never disappear.
+After having Bodhicitta, recite the mantra "Om Mani Pedme Hum", the merit will become as big as the sky, and it will never disappear.
 
-Before we attain Bodhicitta, after reciting a sentence, once the blessings we get are manifested, they are gone.
+Before we attain Bodhicitta, after reciting a mantra, once the blessings we get are manifested, they are gone.
 
-With Bodhicitta, the merits of reciting "Om Mani Pami Hum" will increase every day, a million times, so even if this kind of good retribution appears every day, it will not be used up.
+With Bodhicitta, the merits of reciting "Om Mani Pedme Hum" will increase every day, a million times, so even if this kind of good retribution appears every day, it will not be used up.
 
 There are many virtues of bodhicitta.
 
 In the Tibetan version of the Huayan Sutra, there are 263 qualities of bodhichitta.
 
-Section 4: The Way of Contemplation and Cultivation of Bodhicitta When developing bodhicitta, how should we visualize and practice?
+Section 4 - The Way of Contemplation and Cultivation of Bodhicitta 
+
+When developing bodhicitta, how should we visualize and practice?
 
 Visualize that Shakyamuni Buddha is in the middle, and around Shakyamuni Buddha are the Guru Three Jewels.
 
@@ -2948,7 +3035,10 @@ To put it simply, just visualize in this way to cultivate bodhicitta. The conten
 
 122
 
-Chapter 8 The Four Infinite Hearts
+##### Chapter 8 - The Four Infinite Minds
+
+---
+
 May all sentient beings be blessed with happiness and the cause of happiness (love)
 
 May all sentient beings be free from suffering and its causes (compassion)
@@ -2957,11 +3047,13 @@ May all sentient beings never be separated from the wonderful happiness without 
 
 May all sentient beings stay away from love, hatred, closeness, and equanimity
 
+---
+
 To develop the four immeasurable hearts is to develop loving-kindness, compassion, joy, and equanimity for infinite sentient beings.
 
 Cultivating the four immeasurable minds can accumulate immeasurable blessings and eliminate immeasurable karma.
 
-Section 1 May all sentient beings be blessed with happiness and the cause of happiness
+Section 1 - May all sentient beings be blessed with happiness and the cause of happiness
 
 The first of the four immeasurable heart texts is: May all sentient beings be blessed with happiness and the causes of happiness, this is the radiating loving-kindness.
 
@@ -2975,15 +3067,21 @@ Well-being means peace, joy, and happiness.
 
 It means having a place to live, something to eat, and clothes to wear, that means life and family peace, wisdom, blessings, and good health.
 
-What is the cause of peace? First of all, it is to do the ten good deeds. If you don’t kill, don’t steal, don’t commit adultery, don’t lie, don’t provoke alienation, don’t speak ill of words, don’t gossip, don’t greed, don’t hold anger, and don’t hold wrong views, then you will be happy. the cause.
+What is the cause of peace? 
 
-Second, our practice is all about the cause of happiness.
+First of all, it is to do the ten good deeds. If you don’t kill, don’t steal, don’t commit adultery, don’t lie, don’t provoke alienation, don’t speak ill of words, don’t gossip, don’t greed, don’t hold anger, and don’t hold wrong views, then you will be happy. the cause.
+
+Second - our practice is all about the cause of happiness.
 
 Reciting sutras and mantras is the cause of happiness, cultivating precepts, concentration and wisdom is the cause of happiness, and all the six paramitas are the cause of happiness.
 
 Moreover, practicing the accumulation of blessings is the cause of happiness in the next life. If you do not accumulate blessings in this life, you will not have happiness in the next life.
 
+---
+
 May all sentient beings be filled with happiness and the causes of happiness.
+
+---
 
 It is to hope that those who lack food and clothing can live without food, those who are sick can be healthy, those who are homeless can have a house to live in, and those who do not have a good family life, hope that their families will be harmonious. This is kindness and love. .
 
@@ -2994,23 +3092,39 @@ Because the happiness that is not sufficient is only a momentary happiness, it i
 124
 
 1. The merits of merciful love
+
 If you can truly generate loving-kindness, the merit will be enormous.
 
 It is stated in the "Bao Ga Lun":
 
-Every day at three o'clock, three hundred jars of food and drink, but it is not as long as a moment, and one cent of compassion is cultivated.
+Every day at three o'clock, 
 
-Heaven and man are all loving, they are always guarded, joy is much more comfortable, and poisonous swords cannot penetrate.
+three hundred jars of food and drink, 
 
-If you can accomplish nothing without labor, you will be born in the Brahman world, and if you cannot be liberated, you will obtain the eight virtues of loving-kindness.
+but it is not as long as a moment, 
+
+and one cent of compassion is cultivated.
+
+Heaven and man are all loving, 
+
+they are always guarded, 
+
+joy is much more comfortable, 
+
+and poisonous swords cannot penetrate.
+
+---
+
+If you can accomplish nothing without labour, you will be born in the Brahman world, and if you cannot be liberated, you will obtain the eight virtues of loving-kindness.
 
 This means that if someone gives three hundred jars of food and drink to sentient beings three times a day, the merit is certainly very great, but it is not as good as the merit of cultivating loving-kindness in an instant.
 
-Cultivating kindness and love can also gain the blessings of God's protection, comfort and joy, avoiding the poison of swords and soldiers, doing things without hard work, and reincarnating Brahma in later generations.
+Cultivating kindness and love can also gain the blessings of God's protection, comfort and joy, avoiding the poison of swords and soldiers, doing things without hard work, and reincarnating as Brahma in later rebirths.
 
 Even if you are not freed in this life, you will get the benefits of the eight great virtues of loving kindness.
 
 1. All beings will be happy.
+
 People who often show loving kindness always have a loving smile on their faces, and everyone will like it when they see it.
 
 Because of the warmth on him, everyone can feel it.
@@ -3019,9 +3133,10 @@ Because of the warmth on him, everyone can feel it.
 
 When Dharma King Yongzeng was alive, everyone was very happy to see him, even Muslims, because of his loving kindness.
 
-No matter where Dharma King Yeshe Gyatso goes, no matter what religion or ethnicity he encounters, everyone likes him very much and welcomes him. It is also because of the Master's benevolence and merit.
+No matter where Dharma King Yeshe Gyatso went, no matter what religion or ethnicity he encounters, everyone likes him very much and welcomes him. It is also because of the Master's benevolence and merit.
 
 2. The heart will be very peaceful and happy
+
 When Dharma King Yeshe Gyatso was teaching the scriptures, he often said: I don't have any special merit. I put my head on the pillow and fell asleep. This is my merit.
 
 This shows that he has compassion.
@@ -3029,21 +3144,22 @@ This shows that he has compassion.
 People who do not have loving-kindness do not sleep so easily, or even sleep, and are always restless and worried.
 
 3. Swordsmen and Poisonous Demons can't do any harm
+
 When Buddha Shakyamuni was about to become a Buddha, many emperors and demons came to hinder him.
 
-The Son of Heaven Demon tempted the Buddha and said: Stop practicing, Devadatta is going to be a king, and he will harm all beings.
+The Demon Mara tempted the Buddha and said: Stop practicing, Devadatta is going to be a king, and he will harm all beings.
 
-Buddha Shakyamuni ignored them, and they gave many reasons, such as your parents being ill, and so on.
+Buddha Shakyamuni ignored him, and they gave many reasons, such as your parents being ill, and so on.
 
 But the Buddha is motionless, always resting in loving-kindness concentration.
 
 126
 
-The Son of Heaven Demon turned into a lot of beautiful women, but he still couldn't disturb the Buddha.
+The Demon Mara turned into a lot of beautiful women, but he still couldn't disturb the Buddha.
 
-In the end, the Son of Heaven Demon had no choice, so he turned out a lot of knives and spears to slash Shakyamuni Buddha.
+In the end, the Demon Mara had no choice, so he turned out a lot of knives and spears to slash Shakyamuni Buddha.
 
-At this time, the Buddha sent out loving-kindness, and the sword and spear turned into lotus flowers. This is the energy of loving-kindness.
+At this time, the Buddha sent out loving-kindness, and the swords and spears turned into lotus flowers. This is the energy of loving-kindness.
 
 In the past, someone poisoned Master Jiamu-like Xieba of Labrang Monastery. After the poisoning, the master felt a little uncomfortable.
 
@@ -3064,21 +3180,26 @@ Shanpa Rinpoche in India was very accomplished and had great compassion. The bir
 Once, there was a war, and both sides of the war were hacking and killing each other. Shanpa Rinpoche happened to pass by this place. When everyone saw him, they put down their swords and guns, and no longer wanted to kill.
 
 4. Everything goes well without effort
+
 127
 
 People with loving-kindness will get the help of human beings and all beings. They don't need to work hard, and they will naturally have their wishes.
 
 5. Feel free to be reborn in another Pure Land
+
 After the person who has received loving-kindness dies, he can be reborn in another Pure Land at will.
 
 If they want to be reborn in the Western Pure Land, ordinary people may not be able to guarantee rebirth by reciting Amitabha Buddha, but after receiving loving kindness, they can definitely be reborn in the Western Paradise of Ultimate Bliss.
 
 2. How to show mercy
+
 To practice loving-kindness, one must first extend loving-kindness to one's own mother.
 
 To develop loving-kindness towards the mother is not to crave the mother, but to have true love.
 
-First visualize your biological mother in front of you, and then think: The person in front of you is not only my mother in this life, but has been my mother many times in life, and her kindness to me is as vast as the void.
+First visualize your biological mother in front of you, and then think: 
+
+The person in front of you is not only my mother in this life, but has been my mother many times in life, and her kindness to me is as vast as the void.
 
 Thinking of mother's kindness in this way will naturally give birth to the heart of loving mother, which is the heart of true love.
 
@@ -3088,7 +3209,9 @@ So, think again, did your mother get Anle and Anleine?
 
 128
 
-Well-being is a peaceful and happy life.
+Well-being is a peaceful and happy
+
+life.
 
 If the mother can't be happy because she doesn't have a house, have we ever thought about giving her a house? If your mother is ill, have you ever thought of letting her get good medicine and medicine and recover as soon as possible? If you have the idea of ​​wanting your mother to gain peace and tranquility, you will develop loving-kindness towards your mother.
 
@@ -3098,11 +3221,13 @@ If it can be sent out, then I will show mercy to all people on the four continen
 
 After being able to generate loving-kindness in human beings, send loving-kindness to all beings in the heavenly realm and to asuras.
 
-If you can develop loving-kindness, then you will show loving-kindness to all beings in the animal realm, the hungry ghost realm, and the hell realm in turn.
+If you can develop loving-kindness, then you will show loving-kindness to all beings in the animal realm, the hungry ghost realm, and the hell realms in turn.
 
 In this way, one should develop loving-kindness towards all beings in the six realms.
 
-Or start with your own children: If my child does not have a house, may he have a house to live in; if he does not succeed, may he succeed; if he does not develop wisdom, may he develop wisdom; if he does not become rich, may he become rich.
+Or start with your own children: 
+
+If my child does not have a house, may he have a house to live in; if he does not succeed, may he succeed; if he does not develop wisdom, may he develop wisdom; if he does not become rich, may he become rich.
 
 If you can express it to your children, it is an achievement.
 
@@ -3136,9 +3261,9 @@ If a person can show kindness to all the people in the world, in this life, all 
 
 According to karma, it is not so easy to be a king. Most of them are people who have shown kindness to many sentient beings in their previous lives.
 
-If you often show loving-kindness, especially for your opponent, this person will definitely turn around, the relationship will be improved and improved, and the other party will also be better for you. This is the influence of loving-kindness energy.
+If you often show loving-kindness, especially for your opponent, this person will definitely turn around, the relationship will be improved, and the other party will also be better to you. This is the influence of loving-kindness energy.
 
-Verse 2 May all sentient beings be free from suffering and its causes
+Verse 2 - May all sentient beings be free from suffering and its causes
 The second of the four immeasurable heart texts is: May all sentient beings be free from suffering and its causes.
 
 Suffering is suffering, including the suffering of all sentient beings in the six realms, especially the suffering of the three evil realms.
@@ -3160,11 +3285,12 @@ Here, I hope that sentient beings will be free from suffering and the causes of 
 Compassion is the relief of suffering, and compassion is great compassion. The seven causal factors of the Mahayana originate in the heart of Bodhi. The most precious thing is compassion. With compassion, the ability to save sentient beings will become very great.
 
 1. The Importance of Great Compassion
+
 Showing compassion is very important.
 
 First of all, having compassion is one of the important differences between Buddhism and paganism.
 
-Second, compassion is also the foundation of Mahayana Buddhist practice.
+2. compassion is also the foundation of Mahayana Buddhist practice.
 
 Master Tsongkhapa specifically pointed out in the section on the stage of cultivation of bodhicitta in "The Broad Treatise on the Stages of the Bodhi Path": "The root of the Mahayana path is great compassion", and "The rest of the cause and effect are the truth of this cause and effect".
 
