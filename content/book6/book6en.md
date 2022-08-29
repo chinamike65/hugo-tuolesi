@@ -2038,55 +2038,103 @@ The lineage masters of the past dynasties said here:
 83
 
 Shakyamuni Buddha
+
 Maitreya Bodhisattva
-Unsang Bodhisattva
+
+Asanga Bodhisattva
+
 world relative bodhisattva
+
 Holy Liberation Army
+
 Dade Liberation Army
+
 win the liberation army
+
 Heart Tune Army
+
 Guru Pira
+
 Lion Yin
+
 Gusali
+
 Master Jinzhou
+
 Venerable Atisha
-Drom Tumba
-Bodova
+
+Dromtönpa
+
+Bodowa
+
 Charya
-Chekava
+
+Chekawa
+
 jibuba
+
 Longji Wangqu
+
 sangchinba
+
 Thornaba
+
 Menzaba
+
 Ginseng
+
 Master Tsongkhapa
+
 wise lion
+
 Gedun Drupa
+
 Master Xianhuibao
+
 Gedun Gyatso
+
 Good luck and good fortune
+
 ford sea
+
 Master Faxiande
+
 Sheng Ren Yuncheng
+
 Shanhui Dahai
+
 Wonderful Sound King Kong
+
 Wonderful Music King
+
 The big seat is very comfortable
+
 Victory over Wang Xian's robbery
+
 Kume Wangpo
+
 Dumpy Jumeirah
+
 wang muang pandit
+
 Master Rising Sun Gyatso
-Tutenten Gyatso 43 Incense, Dundampa Gyatso
+
+Tutenten Gyatso 43 Incense 
+
+Dundampa Gyatso
+
 Rako Rinpoche
-King Yongzeng
-Ngawang Gyatso.
+
+Vajra Master Yongzeng
+
+Ngawang Gyatso
 
 
-What is Inheritance Purity? Among the lineage teachers, if a certain teacher violates his own teacher, the lineage is not pure; if the faith in the teacher has not been withdrawn, the lineage is pure.
+What is Purity of Lineage? 
 
-It is very important to have a lineage and the lineage is pure. The Dharma of the lineage is very powerful, and it is different in every aspect.
+Among the lineage teachers, if a certain teacher violates his own teacher, the lineage is not pure; if the faith in the teacher has not been withdrawn, the lineage is pure.
+
+It is very important to have a lineage and that the lineage is pure. The Dharma of the lineage is very powerful, and it is different in every aspect.
 
 84
 
@@ -2096,17 +2144,20 @@ Some people say that his Dharma came down from the sky, or was dug up somewhere,
 
 Some people say that they dreamed that Buddhas and Bodhisattvas gave themselves empowerment and teachings, and said that they had obtained the inheritance of a certain Dharma. This is also a false inheritance.
 
-When a bodhisattva of the rank is practising the dream yoga method of the consummation stage, the Buddha or Bodhisattva in the dream is the real Buddha and Bodhisattva. At this time, the Dharma door and empowerment passed on by the Buddha and Bodhisattva can be said to have been passed down.
+When a bodhisattva of the rank is practising Dream Yoga method of the consummation stage, the Buddha or Bodhisattva in the dream is the real Buddha and Bodhisattva. At this time, the Dharma door and empowerment passed on by the Buddha and Bodhisattva can be said to have been passed down.
 
 However, this kind of inheritance can only be passed on when the inheritance of this method is broken. If it is not broken, the inheritance cannot be passed on in a dream.
 
-For practitioners below the rank of Bodhisattva, what they dream of in their dreams cannot be considered inheritance.
+For practitioners below the rank of Bodhisattva, what they dream of in their dreams cannot be considered transmission.
 
-There are five kinds of lineages. All lineages must be passed on face-to-face in front of the guru. The Dharma transmitted through the Internet, telephone, video, audio and video recording cannot be regarded as lineage, but it is possible to learn the Dharma through these.
+There are five kinds of transmission.
+
+All lineages must be passed on face-to-face in front of the guru. The Dharma transmitted through the Internet, telephone, video, audio and video recording cannot be regarded as lineage, but it is possible to learn the Dharma through these.
 
 85
 
 understand emptiness
+
 As a teacher, there is no requirement to realize emptiness, but one should be able to truly understand emptiness in words.
 
 A guru who possesses the five virtues is the guru we take refuge in.
@@ -2115,7 +2166,7 @@ There are many teachers, living Buddhas, Dharma kings and Rinpoche in the curren
 
 When we study Buddhism, we must worship a guru, who is the root of the Three Jewels.
 
-The essence of the Fa is the teacher, and only after the teacher has taught the Fa can you learn the Fa and cultivate the Fa.
+The essence of the Dharma is the teacher, and only after the teacher has taught the Dharma can you learn the Dharma and cultivate the Dharma.
 
 Once you get bodhicitta in practicing the Dharma, you become a bodhisattva and even a sangha. Therefore, the root of a sangha is your guru.
 
@@ -2128,16 +2179,18 @@ Many people don't know why taking refuge with the guru is in the first place, be
 86
 
 2. Buddha
+
 A Buddha is a person who has cut off the two obstacles, the purest body, speech, and mind, a person who is fully enlightened and omniscient, a person who has obtained the four perfect bodies, and a person with the most complete blessings and wisdom.
 
-The Buddha understands all suffering and the causes of suffering, understands the suffering and afflictions of sentient beings in the six realms, and understands the methods to resolve them.
+The Buddha understands all suffering and the causes of suffering, understands the suffering and afflictions of sentient beings in the six realms, and understands the ways to resolve them.
 
-The Buddhas mentioned by the Xianzong refer to the Buddhas of the ten directions and three times, such as Shakyamuni Buddha and Amitabha Buddha.
+The Buddhas mentioned by the Mahayana refer to the Buddhas of the ten directions and the three times, such as Shakyamuni Buddha and Amitabha Buddha.
 
-The Buddha mentioned in Tantra includes four deities: the deity of the affairs department, such as the five-nature Manjushri, the thousand-hand Guanyin, the twenty-one Tara, etc.; the deity of the line of action, such as Vairocana Bodhi Buddha, etc.; the deity of the yoga department, such as the Great Sun Tathagata Etc.; the deities of the Supreme Yoga Department, such as Mahavira, Kalachakra, etc., include all the Buddhas of the manifest and tantric.
+The Buddha mentioned in Tantra includes four deities: the deity of the affairs department, such as the five-nature Manjushri, the thousand-hand Guanyin, the twenty-one aspects of Tara, etc.; the deity of the line of action, such as Vairocana Bodhi Buddha, etc.; the deity of the yoga tantra, such as the Great Sun Tathagata, etc.; the deities of the Supreme Yoga, such as Mahavira, Kalachakra, etc., include all the Buddhas of the manifest and tantric.
 
-3. Law
-Dhamma refers to teaching and proof.
+3. Dharma
+
+Dharma refers to teaching and proof.
 
 The teachings refer to 84,000 dharmas. People have 84,000 kinds of afflictions, and there are 84,000 dharmas to deal with afflictions. Therefore, the more dharmas you learn, the better, and the more you can deal with people's afflictions. .
 
@@ -2145,39 +2198,47 @@ The realization of the Dharma refers to the enlightenment that practitioners sho
 
 87
 
-Dharma, to put it simply, is a method, a way to get rid of suffering and get happiness, a way to stay away from suffering, and a way to get happiness.
+Dharma, to put it simply, is a method, a way to get rid of suffering and attain happiness, a way to stay away from suffering, and a way to get happiness.
 
 After people have truly practiced for a period of time, they will really become happy. It is the kind of happiness that comes naturally. This is because of the insight of practice and the blessing of Buddha power.
 
-Bhutan is recognized as the happiest country in the world, and the people there are the happiest. Although Bhutan's material living conditions are not that good, Bhutanese have the most smiles.
+Bhutan is recognized as the happiest country in the world, and the people there are the happiest. Although Bhutan's material living conditions are not that good, Bhutanese smile the most .
 
 The most frowning is often people in developed countries, where there is too much pressure and too much competition.
 
 Meditation will slowly increase happiness.
 
-One of my disciples has depression.
+One of my disciples had depression.
 
 After taking refuge, after almost three years of practice, the depression was cured.
 
-When she shared it once, she said: Master, I used to go to the park and others would think it was beautiful when they saw the flowers, but I didn't feel that way at all, no matter what kind of clothes I wore, I didn't have a good feeling, nor Feeling beautiful, after taking refuge, I insisted on reciting "The Twenty-One Mother's Praise Sutra" for three years. One day I went downstairs and saw the flowers in the garden. Suddenly, I felt that there was a flower that bloomed very beautifully.
+When she shared it once, she said:
+
+Master, I used to go to the park and others would think it was beautiful when they saw the flowers, but I didn't feel that way at all, no matter what kind of clothes I wore, I didn't have a good feeling, nor feeling beautiful. After taking refuge, I insisted on reciting "The Twenty-One Tara Praise Sutra" for three years. One day I went downstairs and saw the flowers in the garden. Suddenly, I felt that there was a flower that bloomed very beautifully.
 
 Since then, I have gradually discovered that there are still many beautiful things in the world, and there are things that interest me, and the world is beautiful.
 
 88
 
-Four, monk
-The Sanskrit word for monk is Sangha, which is translated as Hehe, and sometimes translated as monk.
+Four, Sangha
 
-Those who realize emptiness and heavenly beings who realize emptiness are all monks; monks in Hinayana refer to practitioners who have attained the four stages of Arahantship; monks in Mahayana Buddhism are bodhisattvas from one place to ten places, and monks in Tantra are monks. Earth Bodhisattvas, Dakinis, Dakinis, warriors, brave mothers, transcendent Dharma protectors, etc.
+The Sanskrit word for monk is Sangha, which is translated as heshan, and sometimes translated as monk.
+
+Those who realize emptiness and heavenly beings who realize emptiness are all Sangha; monks in Hinayana refer to practitioners who have attained the four stages of Arhatship; monks in Mahayana Buddhism are bodhisattvas from one bhumi to ten bhumis, and monks in Tantra are monks. Earth Bodhisattvas, Dakinis, Dakinis, warriors, brave mothers, transcendent Dharma protectors, etc.
 
 The four ordinary monks can also represent the sangha, but they are not really sangha.
 
 The second reason for taking refuge
+
 Why do we take refuge? What kind of attitude do you take refuge in? Some people are for liberation, some are for the sake of becoming a Buddha to save sentient beings, and some are for the sake of health and success in doing things. No matter what the purpose is, it is possible to take refuge. There are thousands of reasons for taking refuge.
 
-There are two basic reasons for taking refuge in the Three Jewels: one is the fear of the three evil realms; the other is the confidence in the Three Jewels.
+There are two basic reasons for taking refuge in the Three Jewels: 
 
-These two reasons are the reason for the conversion of the lower clergy, and they are also the fundamental reasons for conversion.
+one is the fear of the three evil realms; 
+
+the other is confidence in the Three Jewels.
+
+These two reasons are the reasons for the conversion of the lower clergy, and they are also the fundamental reasons for conversion.
 
 Only when these two causes are possessed can one truly take refuge and truly enter into Buddhism.
 
@@ -2185,17 +2246,17 @@ Only when these two causes are possessed can one truly take refuge and truly ent
 
 These two reasons are the minimum conditions for entering Buddhism.
 
-Some people take refuge in the Three Jewels because of illness, while others take refuge because they are broke, and take refuge in order to live a long life.
+Some people take refuge in the Three Jewels because of illness, while others take refuge because they are broke, and others take refuge in order to live a long life.
 
-Being able to take refuge in the Three Jewels is a good thing, and you can get the blessings of Buddhas and Bodhisattvas, but these are not the real motivation of taking refuge.
+Being able to take refuge in the Three Jewels is a good thing, and you can get the blessings of Buddhas and Bodhisattvas, but these are not the real motivation for taking refuge.
 
-Of the three evil realms, no matter which one you fall into, you will suffer a lot of pain. If you think deeply about these sufferings, a fear will arise.
+Of the three evil realms, no matter which one you fall into, you will suffer a lot of pain. If you think deeply about these sufferings, a fear or dread will arise.
 
 Think again: in the face of the fear of falling into the evil realm, who can save himself? Only the Guru Three Jewels! If we go to hell, the Buddha can save us, this is the Buddha's treasure; the Dharma friend can recite the sutras to save us, it is the Dharma treasure; the Bodhisattva can save us, it is the Sangha's treasure.
 
-Therefore, to take refuge in the Three Jewels, from this moment onwards, the heart of taking refuge in the Three Jewels arises.
+Therefore, to take refuge in the Three Jewels, from this moment onwards, the mind of taking refuge in the Three Jewels arises.
 
-Many people who study Buddhism, after studying Buddhism for a long time, feel that they still have many obstacles and problems. Why? Just because the heart has not really taken refuge, but only verbally, that is, following the guru to recite the four refuge texts three times, thinking that this is the way to take refuge, but there is no real fear of the evil realm and confidence in the Three Jewels.
+Many people who study Buddhism, after studying Buddhism for a long time, feel that they still have many obstacles and problems. Why? Just because the mind has not really taken refuge, only verbally, that is, following the guru to recite the four refuge texts three times, thinking that this is the way to take refuge, but there is no real fear of the evil realm and no real confidence in the Three Jewels.
 
 If you have the intention of taking refuge in the lower class, and truly take refuge in the Three Jewels of the Guru, you will definitely receive more powerful and fast blessings from the Three Jewels.
 
@@ -2203,34 +2264,40 @@ Karma and troubles will also decrease rapidly.
 
 The reason for the conversion of the zhongshi Tao is the fear of the six realms of reincarnation.
 
-Not only is there a fear of falling into the evil realm, but also the pain of the human realm and the realm of the heavens.
+Not only is there a fear of falling into the evil realm, but also the suffering of the human realm and the realm of the heavenly gods.
 
-Then think about it again: in the suffering of the six realms of reincarnation, only the guru, the Three Jewels, can save us.
+Then think about it again: in the suffering of the six realms of reincarnation, only the guru and the Three Jewels can save us.
 
 Believing in the Three Jewels of the Guru is the second reason for the zhongshi Tao to take refuge.
 
 The reason for taking refuge in Shangshi Tao is that they cannot bear the suffering of all beings in the six realms of reincarnation.
 
-In the six realms of samsara, there are gross pains and fine pains. In the middle of the Taoist way, you are only afraid of the gross pains. When you go to the advanced way of life, you are also afraid of the most subtle pains, and you will be afraid of the subtle pains caused by the obstacles of knowledge. , and realized that the only one who can save all living beings and break through the obstacles of their own knowledge is the Three Jewels of the Guru, which is the reason for the refuge of the Guru.
+In the six realms of samsara, there are gross suffering and subtle suffering. In the middle of the Taoist way, you are only afraid of the gross suffering. When you go to the advanced way of life, you are also afraid of the most subtle suffering, and you will be afraid of the subtle suffering caused by the obstacles of knowledge. , and realized that the only one who can save all living beings and break through the obstacles of their own knowledge is the Three Jewels of the Guru, which is the reason for the refuge in the Guru.
 
-The real refuge is to learn, through learning, to understand the cause of refuge, the object of refuge, the amount of refuge, the virtues and benefits of refuge after refuge.
+The real refuge is to learn, through learning, to understand the cause of refuge, the object of refuge, the scale of refuge, the virtues and benefits of refuge after refuge.
 
 After understanding these six aspects, we can understand what refuge is.
 
 The most basic real conversion we are talking about now refers to the conversion of the lower clergy.
 
-There are two reasons for taking refuge, one is to take refuge because of the fear of falling into the lower realms; the other is to take refuge because of the faith in the guru and the Three Jewels.
+There are two reasons for taking refuge, one is to take refuge because of the fear of falling into the lower realms; the other is to take refuge because of faith in the guru and the Three Jewels.
 
 In order to obtain a human body full of human, heaven and seven virtues in the next life and not fall into the three evil realms in the next life, the lower sages are afraid that they will suffer the sufferings of the three evil realms. To become a Buddha.
 
-Section 3 The Merit of the Three Treasures
+Section 3 - The Merit of the Three Jewels
 
-The merits of the Three Jewels are: Buddha's merit, Dharma's merit, and Sangha's merit.
+The merits of the Three Jewels are: Buddha's merit
+
+Dharma's merit
+
+ Sangha's merit.
 
 1. The merits of Buddha
+
 The merits of the Buddha include the merits of body, speech, mind and career.
 
 1. The merits of the Buddha's body
+
 The Buddha's body has thirty-two appearances and eighty solemn appearances, namely, "hands and feet are rounded, and the soles of the feet are like tortoise belly" and other thirty-two appearances, and the Buddha's claws are purple and gold.
 
 The praise of Buddha's merit recorded in "Yu Zan" says:
@@ -2250,13 +2317,14 @@ The right hand should be offered, decorated with a special wheel, soothing with 
 When Nengren marches, his feet are like wonderful lotuses, printing and painting this ground, how can the lotus garden be beautiful?
 
 2. Buddha's speech merits
+
 There are sixty-four kinds of merits of the Buddha's speech.
 
-When the Buddha taught the scriptures, different people asked different questions, and the Buddha could answer all the questions with just one "A" character.
+When the Buddha taught the scriptures, different people asked different questions, and the Buddha could answer all the questions with just one "Ah".
 
 He never tires of listening to the Dharma taught by the Buddha, and every time he listens to it, he gains incredible results.
 
-People with different languages ​​ask different questions at the same time, and the Buddha can answer different questions in different languages ​​with a single "A" character.
+People with different languages ​​ask different questions at the same time, and the Buddha can answer different questions in different languages ​​with a single "Ah".
 
 As said in "Puxian Xingxiangpin":
 
@@ -2274,11 +2342,13 @@ All sentient beings in all the worlds, inquire into doubts at one time, do every
 
 When the Buddha preached the scriptures, the Buddha's voice could be heard clearly no matter in the front row or the back row.
 
-In the past, Living Buddha Xingsa went to Kham to teach Kalachakra empowerment, and a deaf person also attended. During the dharma meeting, the deaf and dumb person suddenly found that they could hear the voice of the living Buddha preaching the scriptures, and they could also speak, and they were very happy.
+In the past, Living Buddha Xingsa went to Kham to teach the Kalachakra empowerment, and a deaf person also attended. During the dharma meeting, the deaf and dumb person suddenly found that they could hear the voice of the living Buddha teaching the scriptures, and they could also speak, and they were very happy.
 
 On the second day, he wanted to hear more clearly, so he went to sit in front, but the sound was exactly the same as the sound he heard on the first day, which shows that the blessing of the Buddha's words was very powerful.
 
 Other language merits, such as "Hundred and Fifty Praises" say:
+
+---
 
 Guan Zun's face is lovely, and from what he heard, the extremely harmonious and elegant voice, like the moon's nectar.
 
@@ -2308,7 +2378,10 @@ Those who can produce wisdom rejoice, those who can increase wisdom,
 
 Those who can destroy the shadows, these words benefit all living beings.
 
+---
+
 3. Buddha's Intentional Merit
+
 In the major teachings, the merits and virtues of the Buddha's mind are described as: ten powers, eighteen uncommon dharmas, and twenty-one wisdom without omissions.
 
 To put it simply, the merits of Buddha's mind can be divided into two types: wisdom merits and compassion merits.
@@ -2316,6 +2389,8 @@ To put it simply, the merits of Buddha's mind can be divided into two types: wis
 Wisdom and merit, Buddha Shakyamuni can see all the dharmas clearly, just like contemplating the Amara fruit in the hands.
 
 In "Zan Ying Zan" says:
+
+---
 
 The World-Honored Dharma of the Fallen Time, all species are born from the root, like the sour fruit in the palm of the hand, it is the state of mind and action.
 
@@ -2328,6 +2403,7 @@ No matter how deeply we cherish ourselves, it cannot be compared to a fraction o
 Moreover, the compassion of the Buddha is different from our compassion, which increases and decreases. The Buddha does not have compassion when he sees the suffering beings; Also never stop.
 
 4. The merits of the Buddha's career
+
 In addition to great compassion, great wisdom, and great wisdom, Buddha also has the merits of ability and perfection.
 
 Therefore, the Buddha can save all sentient beings.
@@ -2335,6 +2411,7 @@ Therefore, the Buddha can save all sentient beings.
 As long as the karma of sentient beings arrives, the Buddha will surely save them without a moment's delay.
 
 2. Dharma Merit
+
 Dharma is the way to get rid of suffering.
 
 The virtue of Dharma is to let sentient beings cut off their afflictions, escape from the sea of ​​suffering, and realize emptiness; it can also make people feel calm and open their hearts.
@@ -2344,16 +2421,18 @@ The virtue of Dharma is to let sentient beings cut off their afflictions, escape
 When we do things, when our mentality is balanced, we will not be so impatient, we will endure humiliation and tolerance, and know that to tolerate others is to tolerate ourselves.
 
 3. Sangha’s merits
+
 Sangha is also called Sangha in a broad sense. Sangha includes Bodhisattvas, Arahants, and Dharma protectors.
 
 1. The merits of the Bodhisattva
-The Bodhisattva of the First Land cut off the obstacles of discriminating afflictions and discriminating knowledge, realized emptiness, and obtained the five supernatural powers.
 
-The Bodhisattva of the First Land has twelve hundred merits after he emerges from concentration: in an instant, he can see hundreds of Buddhas, he can obtain the blessings of hundreds of Buddhas, he can reach hundreds of pure lands, he can transform into hundreds of pure lands, he can shake hundreds of worlds, and he can live in hundreds of kalpas. He can know the causes and conditions of a hundred kalpas, enter a hundred kinds of meditation, teach a hundred dharmas, save a hundred sentient beings, transform a hundred incarnations, and transform a hundred dependents for each incarnation.
+The Bodhisattva of the First Bhumi cut off the obstacles of discriminating afflictions and discriminating knowledge, realize emptiness, and obtain the five supernormal powers.
 
-Every time a Bodhisattva enters a place, his merit increases a hundred times over that of the previous Bodhisattva.
+The Bodhisattva of the First Bhumi has twelve hundred merits after he emerges from samadhi: in an instant, he can see hundreds of Buddhas, he can obtain the blessings of hundreds of Buddhas, he can reach hundreds of pure lands, he can transform into hundreds of pure lands, he can shake hundreds of worlds, and he can live in hundreds of kalpas. He can know the causes and conditions of a hundred kalpas, enter a hundred kinds of meditation, teach a hundred dharmas, save a hundred sentient beings, transform a hundred incarnations, and transform a hundred dependents for each incarnation.
 
-For example, a bodhisattva in two places can see ten thousand buddhas in a moment, a bodhisattva in three places can see a million buddhas in a moment, a bodhisattva in four places can see 100 million Buddhas in a moment, a bodhisattva in five places can see tens of billions of buddhas in a moment, and a bodhisattva in six places can see tens of millions of Buddhas in one moment. Seeing trillions of Buddhas, up to the bodhisattvas of the ten places.
+Every time a Bodhisattva enters a bhumi, his merit increases a hundred times over that of the previous Bodhisattva stage.
+
+For example, a bodhisattva in two Bhumis can see ten thousand buddhas in a moment, a bodhisattva in three Bhumis can see a million buddhas in a moment, a bodhisattva in four Bhumis can see 100 million Buddhas in a moment, a bodhisattva in five Bhumi can see tens of billions of buddhas in a moment, and a bodhisattva in six Bhumi can see tens of millions of Buddhas in one moment. Seeing trillions of Buddhas, up to the bodhisattvas of the tenth Bhumi.
 
 The same goes for the growth of other merits.
 
@@ -2363,27 +2442,31 @@ There are big, medium and small afflictions for major afflictions, large, medium
 
 When two obstacles are broken, they are removed in sequence according to their size.
 
-The bodhisattvas of the second ground cut off the great afflictions and the hindrances of knowledge, the bodhisattvas of the third ground cut off the great afflictions and the hindrances of the knowledge, the bodhisattvas of the fourth ground cut off the great and small afflictions and the hindrances of the knowledge, and the bodhisattvas of the fifth ground cut off the great afflictions and the hindrances of the knowledge. The bodhisattvas of the sixth ground cut off the hindrances of middle afflictions and the hindrances of knowledge, the bodhisattvas of the seventh ground cut off the hindrances of medium and small afflictions and the hindrances of knowledge, the bodhisattvas of the eighth ground cut off the hindrances of small and great afflictions and the hindrances of knowledge, and the bodhisattvas of the nine grounds cut off the hindrances of small and medium afflictions and hindrances of knowledge. , The Bodhisattvas of the Ten Grounds cut off the obstacles of small afflictions and obstacles of knowledge.
+The bodhisattvas of the second Bhumi cut off the great afflictions and the hindrances of knowledge, the bodhisattvas of the third Bhumi cut off the great afflictions and the hindrances of the knowledge, the bodhisattvas of the fourth Bhumi cut off the great and small afflictions and the hindrances of the knowledge, and the bodhisattvas of the fifth Bhumi cut off the great afflictions and the hindrances of the knowledge. The bodhisattvas of the sixth Bhumi cut off the hindrances of middle afflictions and the hindrances of knowledge, the bodhisattvas of the seventh Bhumi cut off the hindrances of medium and small afflictions and the hindrances of knowledge, the bodhisattvas of the eighth Bhumi cut off the hindrances of small and great afflictions and the hindrances of knowledge, and the bodhisattvas of the ninth Bhumi cut off the hindrances of small and medium afflictions and hindrances of knowledge. , The Bodhisattvas of the Tenth Bhumi cut off the obstacles of small afflictions and obstacles of knowledge.
 
-2. The merits of an arahant
-Arahants have cut off the obstacles of afflictions, have the same wisdom as the bodhisattvas of the seven places, and have obtained six supernatural powers and various meditations.
+2. The merits of an arhat
 
-Arahants have the same compassion as a mother to all living beings, but they do not have the same compassion as a father. Father-like compassion means taking the responsibility to lead all beings from suffering to happiness.
+Arhats have cut off the obstacles of afflictions, have the same wisdom as the bodhisattvas of the seventh Bhumi, and have obtained six supernatural powers and various meditations.
+
+Arhats have the same compassion as a mother to all living beings, but they do not have the same compassion as a father. Father-like compassion means taking the responsibility to lead all beings from suffering to happiness.
 
 98
 
 3. The virtues of the supernatural guardian deity
+
 The transcendent Dharma protector can do four kinds of deeds, and can protect the Dharma and practitioners.
 
 Xi Zeng Huai Pu: stop disasters, increase merit, love sentient beings, subdue demons and wicked sentient beings.
 
-Section 4 How to Practice the Four Refugees
+Section 4 - How to Practice the Four Refuges
 
-Visualize that there is an eight-petal lotus on your head, and in the middle of the lotus is the sitting Buddha Sakyamuni. The Buddha's heart emits a white light, welcoming the guru to the Three Jewels.
+Visualize that there is an eight-petaled lotus on your head, and in the middle of the lotus is the sitting Buddha Sakyamuni. The Buddha's heart emits a white light, welcoming the guru to the Three Jewels.
 
 Guru includes root guru and lineage guru. Sangha include all Buddhas, Bodhisattvas, warriors, brave mothers, etc., and they are integrated into the body of the Buddha.
 
 Then visualize the grain field, the ritual is:
+
+---
 
 There is no difference between happiness and emptiness. In the vast emptiness, Samantabhadra makes offerings to the sea of ​​clouds.
 
@@ -2431,19 +2514,19 @@ Then, visualize inviting Buddhas and Bodhisattvas, warriors, dakinis, and Dharma
 
 Zha () hum () bay () almost (), after integration, the Guru Three Jewels and the samaya (wisdom deity) that you visualize will be the same.
 
-After viewing the grain fields, recite the Four Refugees.
+After viewing the grain fields, recite the Four Refuges.
 
 There are four refuges in Sanskrit, Tibetan, and Chinese. Generally speaking, there are four refuges in Sanskrit.
 
-Recite the Four Refugees.
+Recite the Four Refuges.
 
 While reciting, visualize the nectar water pouring down from the body of Sakyamuni Buddha. From the outside to the inside, the whole body and mind are washed clean by the nectar water, the karma turns into black water, the sickness turns into pus and blood, and the devil turns into a snake. , frogs and other small animals are flushed out of the pores of the body by the nectar water, and all diseases and demons are excreted from the body.
 
 It is the most extraordinary to contemplate while reciting. You can also visualize first and then recite, or you can recite first and then visualize.
 
-After reciting the Four Refugees, visualize the masters merging into Shakyamuni's body, and the bodhisattvas, Arahants and other monks also merge into Shakyamuni's body along with their teachings.
+After reciting the Four Refuges, visualize the masters merging into Shakyamuni's body, and the bodhisattvas, Arahants and other monks also merge into Shakyamuni's body along with their teachings.
 
-Then, the Buddha on the head becomes smaller and smaller. From the top of the head along the red central vein in the middle of the body, it goes all the way down into the heart. Visualize that your heart has become an eight-petal lotus. The Buddha sits in the eight-petal lotus, and the eight-petal lotus is gathered , Guru, Buddha, and one's own mind are indistinguishable.
+Then, the Buddha on the head becomes smaller and smaller. From the top of the head along the red central vein in the middle of the body, it goes all the way down into the heart. Visualize that your heart has become an eight-petaled lotus. The Buddha sits in the eight-petaled lotus, and the eight-petaled lotus is gathered , Guru, Buddha, and one's own mind are indistinguishable.
 
 The Buddha lives forever in the heart, that is, the Buddha in the heart, and taking refuge in the Buddha in the heart is the Three Jewels of the Guru.
 
