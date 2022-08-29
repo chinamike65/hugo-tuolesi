@@ -1584,27 +1584,29 @@ There are four secrets.
 
 In the past, Chinese Buddhism also had Tantra. During the Tang Dynasty, Chinese Buddhism was divided into eight sects, among which was the Tantra founded by Master Bukong.
 
-The Han Tradition of Tantra is mainly the first department of the four departments of the Tibetan Tradition of Tantra. What methods are there in the department? For example, Vajra Vajra and Dakokutian, these belong to the tantric practices of Chinese Buddhism, and Tibetan Buddhism also has these practices.
+The Han Tradition of Tantra is mainly the first level of the four classes of the Tibetan Tradition of Tantra. What methods are there in this level? For example, Vajra Vajra and Mahakala, these belong to the tantric practices of Chinese Buddhism, and Tibetan Buddhism also has these practices.
 
-The content of Tibetan Buddhism is the combination of explicit and esoteric, with equal emphasis on both.
+The content of Tibetan Buddhism is the combination of sutra and tantra, with equal emphasis on both.
 
-Therefore, when we study and cultivate, we must first learn the Dharma of the Xian sect, and then practice the Dharma of the Tantric sect. The study of Tibetan Buddhism is like this.
+Therefore, when we study and cultivate, we must first learn the Dharma of the Mahayana sect, and then practice the Dharma of the Tantric sect. The study of Tibetan Buddhism is like this.
 
 66
 
 Chapter 5 "Changing Sutras" Overview
+
 Section 1 The purpose and order of learning Buddhism
+
 First, we must understand the purpose of learning Buddhism.
 
-There are different purposes for studying Buddhism. Some people study Buddhism in order to be reborn in a pure land in the next life, some people are in order to obtain the fruit of human and heaven in the next life, some people are for liberation in this life, and some people study Buddhism in order to become a Buddha. There are many different types. Purpose.
+There are different purposes for studying Buddhism. Some people study Buddhism in order to be reborn in a pure land in the next life, some people in order to obtain the fruit of human and heaven in the next life, some people are for liberation in this life, and some people study Buddhism in order to become a Buddha. There are many different purposes.
 
 However, whether it is liberation or becoming a Buddha, one must cultivate step by step.
 
-Learning Buddhism and cultivating need to have a sequence, and a sequence can be achieved, and sequence is very important.
+Learning Buddhism and cultivating need to have a sequence, and a sequence that can be achieved, and sequence is very important.
 
 If there is no sequence, there can be no achievement.
 
-If there is a step-by-step practice, first, it can eliminate the disobedience. On the way to become a Buddha, there are few obstacles, peace, and health.
+If there is a step-by-step practice, first, it can eliminate the disobedience. On the way to becoming a Buddha, there are few obstacles, peace, and health.
 
 Second, you can accumulate good fortune, eliminate karma, and even achieve something.
 
@@ -1612,39 +1614,39 @@ Without orderly cultivation, you can only accumulate a little fortune and elimin
 
 67
 
-You will not cut off your afflictions, you will not get renunciation, you will not get bodhicitta.
+You will not cut off your afflictions, you will not achieve renunciation, you will not develop bodhicitta.
 
 If there is a stage of practice, no matter whether it is a lay person or a monk, it will be successful.
 
-In the past, in the history of Tibetan Buddhism, there were many achievements in the life of the lay family. For example, the master of the Kadam school, Chung Dunpa, became a Buddha in his life; Buddha.
+In the past, in the history of Tibetan Buddhism, there were many achievements in the life of the lay family. For example, the master of the Kadam school, Dromtonpa, became a Buddha in his life; Buddha.
 
-The great siddhi master Marpa of the Kagyu sect also practiced at home. Of the five Sakya Patriarchs, except for two who were monks, the other three practiced at home.
+The great siddhi master Marpa of the Kagyu sect was also a householders. Of the five Sakya Patriarchs, except for two who were monks, the other three were householders.
 
-So, family members can also be successful.
+So, householders can also be successful.
 
-Now, many lay people feel that we have no hope of achieving success in our practice at home, we just recite the Buddha's words, get some blessings, and eliminate karma.
+Now, many lay people feel that they have no hope of achieving success in our practice at home, we just recite the Buddha's words, get some blessings, and eliminate karma.
 
 This kind of thinking is wrong, don’t be so desperate, all lay disciples can achieve, and even become Buddhas.
 
-Everyone should know the concept of achievement. If you get renunciation, you will be considered an achievement. If you have obtained bodhicitta, it will be considered an achievement. Anyone who has achieved the right path, such as the five paths of Buddhism, the path of accumulation, the path of practice, the path of vision, the path of cultivation, Without learning the Tao, entering one of the Taos can be said to be an achievement.
+Everyone should know the concept of achievement. If you get renunciation, you will be considered an achievement. If you have obtained bodhicitta, it will be considered an achievement. Anyone who has achieved the right path, such as the five paths of Buddhism, the path of accumulation, the path of joining, the path of seeing, the path of meditation, and the path of no-more-learning, entering even one of the paths can be said to be an achievement.
 
 However, to achieve success, you must practice step by step.
 
-For example, to build a high-rise building, the first and second floors must be built in this way. It is impossible to build a building without this order, so the order is very important.
+For example, to build a high-rise building, the first and second floors must be built first. It is impossible to build a building without this order, so the order is very important.
 
 68
 
-Some people ask: Isn't it said that there are people who put down the butcher's knife and become a Buddha on the ground, and then achieve and become a Buddha right away? There are such people, but who is this kind of person? It refers to the achievements in previous life practice.
+Some people ask: Isn't it said that there are people who put down the butcher's knife and become a Buddha on the spot, and then achieve and become a Buddha right away? There are such people, but who is this kind of person? It refers to the merit accumulated in previous lives.
 
-For example, if you have attained the Dao of Accumulation in your previous life, you don’t need to practice the Dao of Accumulation in this life, you can start from the Dao of Addition, and this kind of disciple can achieve it right now.
+For example, if you have attained the Path of Accumulation in your previous life, you don’t need to practice the Path of Accumulation in this life, you can start from the Path of Joining, and this kind of disciple can achieve enlightenment right now.
 
-Ninety-nine percent of the disciples at home today are not such disciples, they are ordinary people among ordinary people. They must take it step by step, and don’t think about achieving and enlightening all at once. There is no possibility of this.
+Ninety-nine percent of lay disciples today are not such disciples, they are ordinary people among ordinary people. They must take it step by step, and not think about achieving and becoming enlightened all at once. There is no possibility of this.
 
 Step by step, you will definitely get it, such as climbing a mountain, you must climb step by step!
 
-According to Master Tsongkhapa's "Extensive Treatise on the Steps of the Path of Bodhi" or "A Brief Treatise on the Steps of the Path to Bodhi", first practice the lower sage path, then the middle sage path, then the upper sage path, and then enter the second stage of Tantric Buddhism, and then Becoming a Buddha is such a sequence.
+According to Master Tsongkhapa's "Great Treatise on the Stages of the Path of Enlightenment" or "A Brief Treatise on the Stages of the Path to Enlightenment", first practice the path of the lower scope, then the path of the middle scope, then the path of the upper scope, and then enter the second stage of Tantric Buddhism, and then Becoming a Buddha is such a sequence.
 
-In our simplest terms, the order is two: the first, to cultivate the consummation of the world; the second, to cultivate beyond the world.
+In the simplest terms, the order is two: the first, to cultivate the renunciation of the world; the second, to cultivate beyond the world.
 
 This is two processes and two times.
 
@@ -1676,11 +1678,13 @@ The longer the lifespan, the longer the practice time, the longer the practice t
 
 Learning Buddhism requires wealth.
 
-At the beginning of learning Buddhism, we need to cultivate the world to perfection, so we need wealth.
+At the beginning of learning Buddhism, we need to cultivate success in the world to perfection, so we need wealth.
 
 Some people have some misunderstandings, saying that studying Buddhism is not about seeing through and letting go? It is to see through and let go, but on the understanding level of seeing through and letting go, there are two meanings. One of them means letting go of troubles, not letting go of wealth, family, etc. You should know this.
 
-Do we need wealth to study Buddhism? Wealth is needed in the beginning.
+Do we need wealth to study Buddhism?
+
+Wealth is needed in the beginning.
 
 70
 
@@ -1690,17 +1694,17 @@ For example, building a Buddha statue with one's own wealth can accumulate great
 
 Making offerings to a collective practice center can also accumulate great blessings. Therefore, we need wealth to study Buddhism.
 
-There is a little difference between Tantra and Xianzong. Tantric practice is joyful cultivation, and Xianzong is penance. Therefore, Tantric does not exclude wealth.
+There is a little difference between Tantra and Mahayana. Tantric practice is joyful cultivation, and Mahayana is penance. Therefore, Tantric does not exclude wealth.
 
 The secret law talks about the five gods of wealth: white god of wealth, yellow god of wealth, red god of wealth, black god of wealth, green god of wealth, why are there so many gods of wealth? We cultivators need wealth, so the Buddha also talked about these Gods of Wealth and the Dharma Doors of these Gods of Wealth.
 
 To study Buddhism requires a solemn appearance.
 
-If you reach the point of transcending the world, it doesn't matter whether your appearance is dignified or not, but when you start cultivating the consummation of the world, you still need a dignified appearance.
+If you reach the point of transcending the world, it doesn't matter whether your appearance is dignified or not, but when you start cultivating the perfection of the world, you still need a dignified appearance.
 
-Therefore, Medicine Buddha made twelve vows, one of which is "to look like a dignified being with me", which is to hope that the appearance of all living beings will become as solemn as Buddhas and Bodhisattvas.
+Therefore, the Medicine Buddha made twelve vows, one of which is "to look like a dignified being with me", which is to hope that the appearance of all living beings will become as solemn as Buddhas and Bodhisattvas.
 
-When Venerable Atisha came to the Tibetan area, many great masters in the Tibetan area went to greet the Venerable. Among them was a Master named Keton, who had a very solemn appearance.
+When Venerable Atisha came to Tibet, many great masters in Tibet went to greet him. Among them was a Master named Keton, who had a very solemn appearance.
 
 One morning, he went to a family for alms.
 
@@ -1710,21 +1714,21 @@ At that time, a woman was milking a yak in the yard. The mage threw the tin stic
 
 The woman was very angry, so she grabbed a handful of ashes and wanted to scatter it on the monk's face to vent her anger.
 
-When she came to the monk, she saw that it was a very solemn master, so she threw out the ashes and said, "Master, please come and eat at home! This is the role of the solemn appearance.
+When she came to the monk, she saw that he had a very solemn master, so she threw away the ashes and said, "Master, please come in and have something to eat in my home! This is the role of the solemn appearance.
 
 When saving sentient beings, it is especially necessary to have a solemn appearance.
 
-When the disciples saw the dignified Master, it was easy for them to have confidence and respect.
+When the disciples saw the dignified Master, it is easier for them to have confidence and respect.
 
-If the master has a bad appearance, such as scars on the mouth, slanted eyes, crooked nose, etc., although the practice is good, there are still obstacles in the heart of ordinary people, and it is difficult to develop a respectful attitude.
+If the master has a bad appearance, such as scars on the mouth, slanted eyes, crooked nose, etc., although the practice is good, there are still obstacles in the minds of ordinary people, and it is difficult for them to develop a respectful attitude.
 
-When Nagarjuna Bodhisattva taught the emptiness method, there were very few disciples who heard the understanding of emptiness, but there were many people who came to see Nagarjuna, because Nagarjuna's appearance was very solemn, and no one who saw Nagarjuna did not take refuge. This is also a convenience for saving sentient beings.
+When Nagarjuna Bodhisattva taught the emptiness method, there were very few disciples who heard the understanding of emptiness, but there were many people who came to see Nagarjuna, because Nagarjuna's appearance was very solemn, and no one who saw Nagarjuna did not take refuge. This is also a skillful means for saving sentient beings.
 
-To cultivate a solemn appearance, one should recite the holy name of the Eight Tathagatas of the Medicine Master more often.
+To cultivate a solemn appearance, one should recite the holy name of the Eight Tathagatas of the Medicine Buddha as often as possible.
 
-The appearance is solemn, and people will feel a very comfortable feeling when they see it.
+When the appearance is solemn, people will feel more comfortable when they see it.
 
-But understand that being dignified isn't just about being pretty.
+Understand that being dignified isn't just about being pretty.
 
 Learning Buddhism requires persuasion.
 
@@ -1732,7 +1736,7 @@ That is to say, the words have to be persuasive, and persuasive is not the same.
 
 Learning Buddhism requires wisdom.
 
-A wise life is very important. Wisdom can eliminate pain and eliminate troubles.
+A wise life is very important. Wisdom can eliminate suffering and eliminate afflictions.
 
 72
 
@@ -1742,17 +1746,17 @@ It is freedom and the power to love and influence others.
 
 There are three types of karma: present, coming, and coming.
 
-Great good and bad karma or long-term karma, the result is present; medium good and bad karma is coming; small good and bad karma is coming and coming.
+Great good and bad karma or long-term karma, the result is present; medium good and bad karma is coming; small good and bad karma is coming later.
 
-Great blessings and long-term good deeds can be achieved in this life, so cultivating the consummation of the world can be successful.
+Great merit and long-term good deeds can be achieved in this life, so cultivating the perfection of the world can be successful.
 
 At the beginning of learning Buddhism, the body is very important.
 
 Buddha Shakyamuni preached prostration in Tantric Buddhism.
 
-Prostration can not only accumulate blessings, but also eliminate karma, and can also exercise.
+Prostration can not only accumulate blessings, but also eliminate karma, and can also exercise the body.
 
-The Buddha also asked us to cultivate the Eight Tathagatas of Medicine, just to tell us that a healthy body is very important.
+The Buddha also asked us to cultivate the Eight Tathagatas of the Medicine Buddha, just to tell us that a healthy body is very important.
 
 Many people have such a misunderstanding: since one has studied Buddhism, the body is not important, the most important thing is the Three Jewels.
 
@@ -1762,7 +1766,7 @@ In addition, longevity is also very important, so Buddha Shakyamuni talked about
 
 The second stage is to practice transcending the world.
 
-When I first started to study Buddhism, I cultivated for the perfection of the world. When the practice in the world is more perfect and satisfied, it is natural that you will not be interested in the worldly law. When you reach this realm, the time to cultivate beyond the world will come.
+When I first started to study Buddhism, I cultivated for the perfection of the world. When the practice in the world is more perfect and satisfied, it is natural that you will not be interested in worldly things. When you reach this state, the time to cultivate transcending the world will come.
 
 73
 
@@ -1774,37 +1778,37 @@ At this time, there is no need for wealth, and you can let go of wealth, and let
 
 However, the wonderful thing is that after letting go, we no longer pursue wealth, but wealth naturally follows us in turn.
 
-Because our hearts are opened, it will be different. It can be said that we have become the master of the world. At this time, if we tell the cockroach to get out of the room, it will go out and be obedient, which is completely different.
+Because our hearts are open, it will be different. It can be said that we have become the master of the world. At this time, if we tell the cockroach to get out of the room, it will go out and be obedient, which is completely different.
 
 Now we need to cultivate the four immeasurable minds and open our minds. When our minds are truly opened, we don’t need to pursue those things, and what we need will come naturally.
 
 To open your heart, you need to cultivate patience. Now you can’t stand being scolded by others; you can’t stand resentment; you can’t even stand it if you don’t show a good face.
 
-When my heart is open, I won’t feel uncomfortable when being scolded by others; I won’t feel uncomfortable when I’m beaten; I won’t feel uncomfortable if I don’t show a good face, on the contrary, I will feel very happy.
+When our heart is open, we won’t feel uncomfortable when being scolded by others; we won’t feel uncomfortable when we're beaten; we won’t feel uncomfortable if we don’t show a good face, on the contrary,mwe will feel very happy.
 
-At this level, no one will do that to you.
+At this level, no one will be able to harm you.
 
 74
 
-For example, Venerable Atisha said that there were only two people in the world who dared to scold him at that time, and these two people were the creditors of his past life.
+For example, Venerable Atisha said that there were only two people in the world who dared to scold him, and these two people were creditors from his past life.
 
-Although Venerable Atisha has achieved success, these two people still have deep resentment towards him. As long as Venerable Atisha does something they don't like, they will immediately scold: You are wrong, and that is not right.
+Although Venerable Atisha has achieved success, these two people still had deep resentment towards him. Whenever Venerable Atisha did something they didn't like, they would immediately scold: You are wrong, and that is not right.
 
 Venerable Atisha said, these two people are my teachers of forbearance and my masters.
 
-Therefore, when you have cultivated to the point of transcending the world, you will hardly find anyone who scolds you or who blames you. Even if someone really scolds you and blames you, you will be very happy.
+Therefore, when you have cultivated to the point of transcending the world, you will scarcely find anyone who scolds you or who blames you. Even if someone really scolds you and blames you, you will be very happy.
 
 In fact, both of them later converted to Atisha and their practice was accomplished.
 
 Right now, we have not cultivated to the level of transcending the world, and many things that are transcended in the Buddhist scriptures are not suitable for us right now.
 
-We have not come to the time when we don't want wealth, but we should use wealth to accumulate blessings and use wealth to support our life.
+We have not come to the time when we don't want wealth, but we should use wealth to accumulate merit and use wealth to support our life.
 
 But when you transcend, you don’t have to support yourself in this life. Beings in the six realms, the gods, dragons, and eight divisions will make offerings to you. This is different.
 
-The stages of practice are the two processes of consummation and transcendence of the world mentioned above.
+The stages of practice are the two processes of perfection and transcendence of the world mentioned above.
 
-The consummation of the world is the early stage of cultivating liberation, and transcending the world is the first to be liberated, and the second to become a Buddha.
+The perfection of the world is the early stage of cultivating liberation, and transcending the world is the first to be liberated, and the second to become a Buddha.
 
 75
 
@@ -1815,7 +1819,7 @@ The content of "Changchan Sutra" is very broad and very deep, including all the 
 
 To practice tantra, one must first understand the method of sutra, which is the foundation of tantra.
 
-Some people say that reciting the Four Refugees means cultivating tantra, and cultivating tantra is not that simple. You can only practice tantra after you have received empowerment; you can only practice tantra when you practice the stages of the tantra path; when you practice the stages of birth and perfection , it is considered to be the tantric method of the Supreme Yoga Department of Tantra.
+Some people say that reciting the Four Refuges means cultivating tantra, and cultivating tantra is not that simple. You can only practice tantra after you have received empowerment; you can only practice tantra when you practice the stages of the tantra path; when you practice the stages of birth and perfection, it is considered to be the tantric method of the Supreme Yoga of Tantra.
 
 Before this, the rituals of holding secret mantras and reciting secret methods just planted a seed of secret cultivation.
 
@@ -1825,9 +1829,15 @@ Before this, the rituals of holding secret mantras and reciting secret methods j
 
 conversion
 
-Take refuge in the guru, take refuge in the Buddha, take refuge in the law, take refuge in the Sangha
+Take refuge in the guru, 
 
-Sending Bodhicitta
+take refuge in the Buddha, 
+
+take refuge in the Dharma, 
+
+take refuge in the Sangha
+
+Arousing Bodhicitta
 
 All the Buddhas, the Wonderful Dharma, the Zhongzun and even Bodhi, I take refuge in my practice and other resources to save all living beings, and I wish to become a Buddha
 
@@ -1877,13 +1887,13 @@ If one wants to know all the Buddhas of the three times
 
 You should observe the nature of the Dharma Realm, everything is created only by your mind
 
-karma
+Karma
 
 All dharmas arise from conditions, all dharmas die from conditions
 
 I, the great monk of the Buddha, often say this
 
-Vajra verse
+Vajra Verse
 
 Everything is like a dream bubble
 
@@ -1901,7 +1911,7 @@ Respecting the subtle Dharma of silence taught by the Buddha
 
 78
 
-Prajna verse
+Prajna Verse
 
 Let all the voices hear and know the silence leading to the true annihilation
 
@@ -1911,7 +1921,7 @@ Possessing all kinds of wisdom, the Buddha said all kinds of dharmas
 
 Shravaka Bodhisattva saluted before all the Buddha-Mothers
 
-Dhammakaya
+Dharmakaya
 
 Destroy the deep and vast body of false nets
 
@@ -1919,9 +1929,15 @@ Respect the wonderful Dharma body everywhere
 
 79
 
-Chapter 6 Refuge
+##### Chapter 6 - Refuge
 
-Take refuge in the guru, take refuge in the Buddha, take refuge in the law, take refuge in the Sangha
+Take refuge in the guru, 
+
+take refuge in the Buddha, 
+
+take refuge in the Dharma, 
+
+take refuge in the Sangha
 
 There are three refuges and four refuges.
 
@@ -1931,52 +1947,68 @@ Tibetan Buddhism is a dual practice of esoteric and esoteric practice, so here w
 
 The Four Refuges refer to taking refuge in the guru, taking refuge in the Buddha, taking refuge in the Dharma, and taking refuge in the Sangha.
 
-Among the 84,000 Dharma doors taught by Buddha Shakyamuni, the Four Refugees are the most important.
+Among the 84,000 Dharma doors taught by Buddha Shakyamuni, the Four Refuges are the most important.
 
 Believers are Buddhist disciples after taking refuge in the Three Jewels, but they are not if they do not take refuge.
 
-Although people who have not taken refuge can learn the wisdom of Buddhism, they cannot learn the complete Dharma. Why? Because there are many skills, oral transmissions, and secret formulas in the inheritance, those who do not take refuge will have no inheritance, and those who have not received the inheritance cannot learn the complete Dharma.
+Although people who have not taken refuge can learn the wisdom of Buddhism, they cannot learn the complete Dharma. Why? Because there are many skills, oral transmissions, and secret formulas in the inheritance.Those who do not take refuge will have no inheritance, and those who have not received the inheritance cannot learn the complete Dharma.
 
 80
 
-There are two types of Refuge: Refuge with precepts and Refuge without precepts.
+There are two types of Refuge: 
+
+Refuge with precepts and Refuge without precepts.
 
 Taking refuge with precepts means taking the five precepts while taking refuge.
 
-The majority of Chinese people take refuge with precepts, while Tibetan and Southern Buddhism have more refugees without precepts.
+The majority of Chinese people take refuge with precepts, while Tibetan and Southern Buddhism have more refuges without precepts.
 
-Ninety-nine percent of people in Tibetan areas have converted to Buddhism, and less than 5 percent have converted with precepts.
+Ninety-nine percent of people in Tibet have converted to Buddhism, and less than 5 percent have converted with precepts.
 
 Eighty-five percent of the people of Southern Buddhism in Myanmar and Sri Lanka believe in Buddhism, and less than 3 percent take refuge with precepts, and the rest are all converts without precepts.
 
-There are also refugees without precepts in China, but there are more refugees with precepts.
+There are also refuges without precepts in China, but there are more refuges with precepts.
 
-Taking refuge with precepts requires five precepts: no killing, no stealing, no sexual misconduct, no lying, and no drinking. These five precepts cannot be broken.
+Taking refuge with precepts requires the keeping of five precepts: no killing, no stealing, no sexual misconduct, no lying, and no drinking. These five precepts cannot be broken.
 
 Taking refuge without precepts, after you have taken refuge, as long as your belief in the Three Jewels persists, you can still do whatever you originally did, and slowly turn towards goodness and change.
 
-The four refuges are about: the place of refuge, the cause of refuge, the merits of the Three Jewels, how to meditate, the merits of refuge, etc.
+The four refuges are about: 
 
-The content of the Four Refuges is very extensive, and even great Geshes and Great Masters dare not say that they fully understand the Four Refugees.
+the place of refuge, 
+
+the cause of refuge, 
+
+the merits of the Three Jewels, 
+
+how to meditate, 
+
+the merits of refuge, etc.
+
+The content of the Four Refuges is very extensive, and even great Geshes and Great Masters dare not say that they fully understand the Four Refuges.
 
 81
 
 The first place of refuge
+
 There are three treasures of guru, Buddha, Dharma and Sangha.
 
 1. Guru
+
 A guru is a teacher who teaches scriptures and Dharma. A guru who has at least the following five virtues is a perfect guru.
 
-The five virtues are: Purity of Precepts, Comprehension of Dharma, Great Compassion, Purity of Tradition, and Comprehension of Emptiness.
+The five virtues are: Purity of Precepts, Comprehension of Dharma, Great Compassion, Purity of Lineage, and Comprehension of Emptiness.
 
 1. The precepts are pure
+
 A person who breaks the precepts cannot be a guru.
 
 If the guru is a monk, the monk's two hundred and fifty-three precepts must be pure, and at least the four root precepts must be pure.
 
-If you take the bodhisattva vows or the tantric vows, the bodhisattva vows have eighteen fundamental vows and forty-six branch vows, and the tantric vows have fourteen fundamental vows and eight branch vows, all of which must be pure.
+If you take the Bodhisattva vows or the Tantric vows, the Bodhisattva vows have eighteen fundamental vows and forty-six minor vows, and the Tantric vows have fourteen fundamental vows and eight additional vows, all of which must be pure.
 
 2. Fully understand the Dharma
+
 If you only understand the sutras but not the tantras, you will slander the tantras;
 
 Those who only understand tantra but do not understand sutras will also slander sutras.
@@ -1986,18 +2018,20 @@ Not understanding the Dharma, and slandering the Dharma is a great sin.
 Such a teacher cannot lead his disciples to the right path, so the teacher must be proficient in 84,000 kinds of dharmas, and must have a very complete understanding of the sutras.
 
 3. Great mercy and great compassion
+
 The guru treats every disciple with the same love as a parent treats their only child, and loves every sentient being, and has a great wish to let sentient beings in the six realms be free from suffering and the causes of suffering.
 
-4. Inheritance is pure and complete
+4. Lineage is pure and complete
+
 Before the Tang Dynasty, there were all the inheritances of sutra and esoteric Buddhism.
 
-The Four Refugees we are learning today were first passed on from Shakyamuni Buddha to Manjushri, then to Nagarjuna Bodhisattva, Yuecheng Bodhisattva, Venerable Atisha, and then to Master Tsongkhapa and Kezhujie. Then it was passed on to the Great Dharma King Rako Rinpoche, Dharma King Yongzin, and then to me. My seven teachers are all disciples of Rako Rinpoche.
+The Four Refuges we are learning today were first passed on from Shakyamuni Buddha to Manjushri, then to Nagarjuna Bodhisattva, Chandrakirti Bodhisattva, Venerable Atisha, and then to Master Tsongkhapa and Kezhujie. Then it was passed on to the Great Dharma Master Rako Rinpoche, Dharma Master Yongzieng, and then to me. My seven teachers were all disciples of Rako Rinpoche.
 
 Here, a special introduction to our Dharma lineage.
 
 The inheritance of our Prajna Sutra started from Buddha Shakyamuni, and it is the 46th generation to me.
 
-It also includes the inheritance of the Four Refugees.
+It also includes the inheritance of the Four Refuges.
 
 The lineage masters of the past dynasties said here:
 
@@ -2048,6 +2082,8 @@ Tutenten Gyatso 43 Incense, Dundampa Gyatso
 Rako Rinpoche
 King Yongzeng
 Ngawang Gyatso.
+
+
 What is Inheritance Purity? Among the lineage teachers, if a certain teacher violates his own teacher, the lineage is not pure; if the faith in the teacher has not been withdrawn, the lineage is pure.
 
 It is very important to have a lineage and the lineage is pure. The Dharma of the lineage is very powerful, and it is different in every aspect.
