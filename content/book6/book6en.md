@@ -6,12 +6,14 @@ draft: false
 
 **阿旺嘉措金刚上师祈愿**
 
+Ngawang Gyatso Vajra Guru Prayer
+
 ![front](/images/fa3frontgreet.png)
 
 
 ![释迦牟尼佛](/images/sakyamunibuddha.png)
 
-释迦牟尼佛
+释迦牟尼佛 Shakyamuni Buddha
 
 
 ![莲花生大师](/images/gururinpoche.png)
@@ -35,10 +37,7 @@ draft: false
 
 Tsongkhapa master and two disciples
 
-TREASURES OF THE Dharma Ocean (6)
-
-Ngawang Gyatso Vajra Guru Prayer
-
+#### Treasures of THE Dharma Ocean (6)
 
 #### Introduction to Ngawang Gyatso Vajra Guru
 
@@ -95,7 +94,7 @@ Buddhists should go deeper into the scriptures, diligently study and think, and 
 
 Commentary on "Changing the Scriptures"
 
-Ngawang Gyatso Vajra Guru explained
+Talks by Ngawang Gyatso Vajra Guru
 
 ![阿旺嘉措金刚上师讲解](/images/book6cov.png)
 
@@ -287,7 +286,7 @@ At the age of 47, he turned the wheel of Falun three times in Fawbajin and other
 
 Buddha preached sutras for 47 years in his life, and saved countless sentient beings. On April 15, when he was 81 years old, he passed away in the city of Kusinagara.
 
-Section 1 - Birth and Boyhood
+**Section 1 - Birth and Boyhood**
 
 More than 2,500 years ago, on the eighth day of the fourth lunar month, Sakyamuni was born in the Lumbini Garden in ancient India, in modern-day Nepal.
 
@@ -321,7 +320,7 @@ However, the prince was not interested in the wealth and happiness of the world.
 
 3
 
-Section 2 - Ordination and spiritual practice
+**Section 2 - Ordination and spiritual practice**
 
 Prince Siddhartha was very dissatisfied with the inequality of the caste structure in India at that time, and he often wondered: Why are the Sudra slaves? Are they not human? Is there any way to let them live a free and equal life?
 
@@ -377,7 +376,7 @@ The five companions in the entourage thought that the prince had given up on the
 
 6
 
-Section 3 - Enlightenment and Vow to save sentient beings
+**Section 3 - Enlightenment and Vow to save all sentient beings**
 
 Prince Shakyamuni crossed the Nairanjana River by himself and came to Bodh Gaya near Mount Gaya.
 
@@ -457,7 +456,7 @@ The followers of Shakyamuni Buddha, from kings, concubines, ministers to poor pe
 
 10
 
-Section 4 - Nirvana and the most complete truth
+**Section 4 - Parinirvana and the most complete truth**
 
 Buddha Shakyamuni taught scriptures for about 47 years, and his footprints are all over the banks of the Ganges.
 
@@ -475,29 +474,35 @@ Therefore, all the disciples asked Venerable Ananda to ask Buddha Shakyamuni fou
 
 2. When the Buddha lived in the world, we live by the Buddha; after the Buddha's Parinirvana, how do we live?
 
-3. When the Buddha lived in the world, the monks with evil deeds were subdued by the Buddha; after the Buddha's Parinirvana, how did the monks in evil deeds subdue them?
+3. When the Buddha lived in the world, the monks who committed evil deeds were subdued by the Buddha; after the Buddha's Parinirvana, how will we subdue them?
 
 4. When the Buddha lived in the world, the words and teachings of the Buddha were easy for everyone to believe and understand; after the Buddha's Parinirvana, how can the scriptures inspire people to believe?
 
-The Buddha answered these four questions and said: After I Parinirvana, you should follow the precepts of a teacher; You should live in the place of four applications of mindfulness; Bhikkhus with evil deeds should be silent; The first sentence of all the scriptures should be "Thus have I heard" as proof and faith.
+The Buddha answered these four questions and said: 
 
-Venerable Ananda and his disciples wept silently beside Shakyamuni Buddha, and the Buddha comforted them like a loving mother, saying: "You don't need to be sad. I have taught many teachings in my life. As long as you follow them and practice them, my Dharmakaya will last forever and stay in the world.
+After I Parinirvana, you should follow the precepts of a teacher; You should live in the place of four applications of mindfulness; Bhikkhus who commit evil deeds should be silent; The first sentence of all the scriptures should be "Thus have I heard" as proof and faith.
 
-He also said: All sentient beings have Buddha-nature, and all can become Buddhas, and the Chanti castes who have permanently cut off their roots of goodness can also become Buddhas.
+Venerable Ananda and his disciples wept silently beside Shakyamuni Buddha, and the Buddha comforted them like a loving mother, saying: 
+
+"You don't need to be sad. I have given many teachings in my life. As long as you follow them and practice them, my Dharmakaya will last forever and stay in the world.
+
+He also said: 
+
+All sentient beings have Buddha-nature, and all can become Buddhas, and the Chanti castes who have permanently cut off their roots of goodness can also become Buddhas.
 
 After speaking, Buddha Shakyamuni entered Nirvana quietly and calmly. 
 
-This year, the Buddha was 81 years old.
+That year, the Buddha was 81 years old.
 
-The king of Kusinagara City and the four disciples of the Buddha held a grand dipping ceremony for Shakyamuni Buddha.
+The king of Kusinagara City and the four disciples of the Buddha held a grand funeral ceremony for Shakyamuni Buddha.
 
-The Buddha's relics were invited by the eight kings of India to build pagodas to worship, one of which was near Lumbini.
+The Buddha's relics were distributed by the eight kings of India to build pagodas to worship, one of which was near Lumbini.
 
-150 years after the death of Buddha Shakyamuni, King Asoka took out all the relics from the seven towers except the tower near Lumbini and distributed them all over the world, so that people could build stupas for worship.
+150 years after the death of Buddha Shakyamuni, King Asoka took out all the relics from the seven stupas except the tower near Lumbini and distributed them all over the world, so that people could build stupas for worship.
 
 This kind of stupa has remained in the world until now.
 
-Buddha Shakyamuni spoke the truth of his enlightenment, instructed us how to behave as human beings, and told people how to cultivate and become Buddhas as human beings. This is called the Buddhadharma.
+Buddha Shakyamuni spoke the truth of his enlightenment, instructed us how to behave as human beings, and told people how to practice and become Buddhas while human beings. This is called the Buddhadharma.
 
 12
 
@@ -509,45 +514,45 @@ There are more than 40 copies of the Tripitaka from the South, more than 100 cop
 
 13
 
-Chapter 2 - Collection of Buddhist Classics
+##### Chapter 2 - Collection of Buddhist Classics
 
-Before Buddha Shakyamuni passed away, the 84,000 Dharma teachings he taught were not organized in writing, because those disciples who had a personal relationship with Buddha Shakyamuni had great blessings, great wisdom, and strong vows.
+Before Buddha Shakyamuni passed away, the 84,000 Dharma teachings he taught were not organized or set down in writing, because those disciples who had a personal relationship with Buddha Shakyamuni had great blessings, great wisdom, and strong vows.
 
-Coupled with the blessing of Shakyamuni Buddha, no matter how many dharmas the Buddha taught, more than 90% of his disciples could memorize the Dharma word for word. The foundation of these disciples was so excellent. Therefore, the Buddha said at that time. The law does not need to be in writing.
+Coupled with the blessing of Shakyamuni Buddha, no matter how many dharmas the Buddha taught, more than 90% of his disciples could memorize the teachings word for word. The foundation of these disciples was so excellent. Therefore, the Buddha said at that time. that the law does not need to be in writing.
 
-After Buddha Shakyamuni passed away, people's blessings gradually became less and less, their wisdom became worse and worse, and their vows became weaker and weaker. Just by speaking, people cannot remember the Dharma.
+After Buddha Shakyamuni passed away, people's merit gradually decreased, their wisdom became worse, and their vows became weaker and weaker. Just by speaking, people cannot remember the Dharma.
 
-What does classic collection mean? The Dharma spoken by arhats and bodhisattvas is compiled into text, which is called a collection of classics.
+What does classic collection mean? The Dharma spoken by arhats and bodhisattvas is compiled into textand this is called a collection of classics.
 
 14
 
-Section 1 - The first classic collection
+**Section 1 - The First Collection of Classics**
 
 Three months after Shakyamuni Buddha passed away, in Rajagriha, ancient India, five hundred Arhats gathered together for the first collection of scriptures.
 
-They folded all the cassocks to make a throne. The first was the Venerable Ananda, who sat on the throne and dictated all the Sutras verbatim, and five hundred arhats sorted them out into text.
+They folded all the cassocks to make a throne. The first was the Venerable Ananda, who sat on the throne and dictated all the Sutras verbatim, and five hundred arhats sorted them out and wrote them down.
 
-Afterwards, the Venerable Upali (also translated as Wu Boli) took the seat and dictated Vinaya word for word, beginning with "Thus have I heard".
+Afterwards, the Venerable Upali (also translated as Wu Boli) took the seat and dictated the Vinaya word for word, beginning with "Thus have I heard".
 
 Five hundred arhats were listening to verify whether it was accurate, and finally they were compiled into text. This was the first collection of classics.
 
-Section 1 - The second classic collection
+**Section 1 - The sSecond Collection of the Classics**
 
-110 years after Buddha Shakyamuni passed away, a monk named Vajjian appeared in India at that time. This monk always described the illegal as the law, and the violation of the precepts as conforming to the precepts. Impure behavior is said to be pure, and he thinks it will not break the precepts.
+110 years after Buddha Shakyamuni passed away, a monk named Vajjiputtaka appeared in India. This monk always described the illegal as the law, and the violation of the precepts as conforming to the precepts. Impure behavior was said to be pure, and he thought it would not break the precepts.
 
 For this reason, seven hundred arhats headed by Venerable Yasa gathered in Vaishali, and again conducted a collection of scriptures, denied the fallacies of the Vaki monks, rearranged the scriptures, and saved Buddhism.
 
 It also organized some scriptures that were not included in the classics before into text. This is the second collection of classics.
 
-Section 3 - he third classic collection
+**Section 3 - The Third Collection of the Classics**
 
 The third collection of classics was in Patiliputta, more than 200 years after the death of Buddha Shakyamuni.
 
 At that time, there was a heresy called the Great God in India. In order to collect offerings, this outsider brought many disciples to join Buddhism.
 
-After they joined Buddhism, they mixed Buddhism with cults. As a result, many people couldn't tell which is the righteous Dharma, which is the cult or the wicked Dharma.
+After they converted to Buddhism, they mixed Buddhism with cults. As a result, many people couldn't tell which was the righteous Dharma, which was from the cults or the wicked Dharma.
 
-For this reason, five hundred arhats, five hundred bodhisattvas, and 16,000 panditas headed by the Venerable Maudgalyayana (along with the Buddha's disciple Maudgalyayana) gathered in Huashe City for the collection of scriptures , to distinguish between cults and true Dharma, and at the same time organize into texts that had not been included in the classics before. This is the third classic collection.
+For this reason, five hundred arhats, five hundred bodhisattvas, and 16,000 panditas headed by the Venerable Maudgalyayana (with same name as the Buddha's chief disciple Maudgalyayana) gathered in Patiliputta for the collection of scriptures, to distinguish between cults and true Dharma, and at the same time organize into texts some that had not been included in the classics before. This is the third classic collection.
 
 The above three times are mainly classic collections of Theravada.
 
@@ -557,19 +562,19 @@ What is the classic collection of Mahayana?
 
 The scriptures of the Mahayana Sutra School are the teachings of the eight bodhisattvas, mainly Manjushri and Maitreya, which are organized into text, and the Mahayana Prajna Paramita Sutra was organized into text by Venerable Ananda.
 
-The Dharma Doors of Mahayana Tantra are organized into texts by warriors and brave mothers who are mainly Vajrapani Bodhisattva.
+The Dharma Doors of Mahayana Tantra are organized into texts by warriors and brave mothers mainly led by Vajrapani Bodhisattva.
 
 Many of the classic collections of Mahayana and Tantra are carried out on the Pure Land, some in the Tusita Heaven of Maitreya, some in the Heaven of the Thirty-Three Gods, some in the Dragon Palace, and some in the Vulture Peak.
 
-In many different places, the Bodhisattvas have been organized into texts, which are the collection of Mahayana classics.
+In many different places, the words of the Bodhisattvas have been organized into texts, which are the collection of Mahayana classics.
 
 Southern Buddhism believes that there are six collections of scriptures: three in India, one in Sri Lanka, and two in Myanmar.
 
-Tibetan Buddhism believes that the collection of Theravada classics is the three collections from India.
+Tibetan Buddhism believes that the collection of Theravada classics is just the three collections from India.
 
 When the scriptures were collected at that time, two languages ​​were used: Pali and Sanskrit.
 
-More than 80% of the Hinayana methods are organized in Pali; the methods of Mahayana Sutra and Tantra are mainly organized in Sanskrit.
+More than 80% of the Hinayana methods are written in Pali; the methods of Mahayana Sutra and Tantra were mainly written in Sanskrit.
 
 Buddhism at that time mainly used these two languages, so the collection of classics was also recorded in these two languages.
 
@@ -578,15 +583,16 @@ Buddhism at that time mainly used these two languages, so the collection of clas
 ##### Chapter 3 - The Four Schools of Buddhism
 
 
-Section 1 - Overview of the Four Sects of Buddhism
+**Section 1 - Overview of the Four Tenet Schools of Buddhism**
 
-After the classics were collected, because the masters at that time had different understandings of the Buddhist scriptures, the meanings and principles were not exactly the same, and their understanding of the foundation, the Dharma, and the fruit were also different. Therefore, Buddhism gradually formed four major schools, that is, there are ministries. , Jingbu School, Mind-Only School, and Madhyamika School.
+After the classics were collected, because the masters at that time had different understandings of the Buddhist scriptures, the meanings and principles were not exactly the same, and their understanding of the foundation, the path, and the result were also different. Therefore, Buddhism the four Buddhist philosophical tenet schools, that is: The Great Exposition School (Sanskrit: Vaibashika), The Sutra School (Sanskrit: Sautantrika), The Mind –Only School (Sanskrit: Cittamatra), and The Middle Way School (Sanskrit: Madhyamika).
 
 Buddhism is further divided into Mahayana and Hinayana.
 
-The Hinayana is divided into the Youbu School and the Jingbu School; the Mahayana School is divided into the Mahayana and the Vajrayana.
+The Hinayana is divided into the Vaibashika School and the Sautantrika School; the Mahayana School is divided into Sutra and Tantra.
+Sutra is divided into the Mind –Only School (Cittamatra), and The Middle Way School (Madhyamika). Tantra, or Vajrayana, is divided into four classes.
 
-The foundation is the foundation of practice, including the permanent and impermanent Dharma, and everything in the universe is the foundation.
+The foundation of practice includes the law of permanence and impermanence, and everything in the universe is the base.
 
 The four sects have different understandings of the existence or impermanence of the base, as well as the lack of self and the existence of self.
 
@@ -596,18 +602,19 @@ There are five paths: the path of accumulation, the path of joining, the path of
 
 The four schools also differ in their understanding of the five paths.
 
-The fruit is the fruit of the three vehicles: the fruit of the Sravaka, the fruit of the solitary Arhat, and the fruit of the Mahayana Buddha.
+The fruit is the fruit of the three vehicles: the fruit of the Śrāvakayāna, the fruit of the solitary Arhat (Pratyekabuddhayāna), and the fruit of the Bodhisattvayāna.
 
-The four factions also differ in their understanding of the three-way fruit status.
+The four tenet schools also differ in their understanding of the result or fruit of the three- vehicles.
 
-The second part of the ministry
-The main basis of the Dharma of some sects is the "Great Vipassana" (Sanskrit: Abhidharma Mahāvibhāṣā Śāstra), which was assembled by Arhats.
+**Section 2 - The Great Exposition School (Vaibashika)**
 
-There is a school that establishes right view, right mindfulness, foundation, path, and fruit with the "Great Vipassana Treatise".
+The main basis of the Dharma of some sects is the "Vibhāṣa" (Sanskrit: Abhidharma Mahāvibhāṣā Śāstra). Its authorship is traditionally attributed to five hundred arhats, some 600 years after the parinirvāṇa of the Buddha.
 
-Moreover, there are different interpretations of the "Great Vipassana Treatise" within some sects.
+The Great Exposition School (Vaibashika) establishes right view, right mindfulness, foundation, path, and result with the "Mahāvibhāṣā Śāstra".
 
-There used to be four great masters in a sect, and they were very famous four masters, namely: Shiyou, Fajiao, Juetian, and Jixian.
+Moreover, there are different interpretations of the "Mahāvibhāṣā Śāstra" within some sects.
+
+There used to be four great masters in this tenet school, and they were very famous, namely: Shiyou, Fajiao, Juetian, and Jixian.
 
 The interpretations of the "Great Vipassana Treatise" by the four major commentators are not the same. Due to the different understanding of the "Great Vipassana Treatise", some sects were gradually divided into eighteen divisions.
 
@@ -3306,9 +3313,14 @@ In the "Treatise on Entering the Middle" written by Yuecheng Bodhisattva, the fi
 
 132
 
-In the voice-hearer, the Buddha can be reborn as a king, and all the Buddhas are reborn from the Bodhisattva.
+In the voice-hearer, 
+the Buddha can be reborn as a king, 
 
-Great compassion and incomparable wisdom, Bodhicitta is the cause of the son of Buddha.
+and all the Buddhas are reborn from the Bodhisattva.
+
+Great compassion and incomparable wisdom, 
+
+Bodhicitta is the cause of the son of Buddha.
 
 It means that the Shravaka and the Arhats were born because of the teachings of the Buddha, and the Buddha was born from the cultivation of the Bodhisattva.
 
@@ -3318,9 +3330,15 @@ Therefore, in order to become a Buddha, the first and foremost thing is to culti
 
 The second verse that follows immediately says:
 
-Compassion is the great fruit of the Buddha, like a seed growing like water at first.
+Compassion is the great fruit of the Buddha, 
 
-If you can use it all the time, if it is mature, I will first praise the great compassion.
+like a seed growing like water at first.
+
+If you can use it all the time, 
+
+if it is mature, 
+
+I will first praise the great compassion.
 
 That is to say, in order to obtain such a vast blessing as a Buddha, when a bodhisattva first develops his mind, he needs to have a great compassion in order to generate the seeds of bodhicitta, because bodhicitta is the cause of bodhisattva, and great compassion is the cause of bodhichitta; At that time, there must be the nourishment of the water of great compassion, so that the seeds of bodhicitta will not wither, and will grow day by day; when the bodhisattva becomes a Buddha in the later period, the great compassion should be manifested in the retribution body or incarnation to teach and transform all living beings, so that all living beings can obtain real benefits.
 
@@ -3332,9 +3350,19 @@ Therefore, for attaining Buddhahood, compassion is always the most important in 
 
 It is also stated in the "Jing Zhuang Lun":
 
-If there is no root of compassion, one cannot endure the suffering of practice, and if one cannot bear the suffering, no benefit will arise.
+If there is no root of compassion, 
 
-If you don't have the thought of benefiting living beings, you will not make a vow to turn your body.
+one cannot endure the suffering of practice, 
+
+and if one cannot bear the suffering, 
+
+no benefit will arise.
+
+If you don't have the thought of benefiting living beings, 
+
+you will not make a vow to turn your body.
+
+---
 
 What does that mean? That is to say: If a practitioner does not have compassion as the foundation, he will not be able to endure the suffering of cultivation; if he cannot endure suffering, he will not be able to achieve the cause of benefiting all beings; Transform all beings.
 
@@ -3346,7 +3374,9 @@ The speed at which Bodhisattvas cultivate and become Buddhas is also determined 
 
 Some bodhisattvas practice tantric practices and become Buddhas quickly, also because of the power of compassion.
 
-Why don't Theravada Arhats save sentient beings? It is because the compassion is not enough, as long as you are happy, you can enter into concentration,
+Why don't Theravada Arhats save sentient beings? 
+
+It is because the compassion is not enough, as long as you are happy, you can enter into concentration,
 
 134
 
@@ -3361,6 +3391,7 @@ In this way, the greater the compassion, the greater the hope to save the child,
 The same is true for saving sentient beings in the six realms. With great compassion, one will surely rescue sentient beings in the six realms.
 
 2. How to express compassion
+
 Whether you can save sentient beings depends on how much compassion you can show.
 
 Whether you can express compassion or not depends on your understanding of the suffering of sentient beings. If you have a deep and broad understanding of the suffering of sentient beings in the six realms, and have a very strong understanding, it is easy to express compassion.
@@ -3389,9 +3420,11 @@ My mother did a lot of bad karma because she didn't understand the Dharma, and s
 
 Although we try our best to be nice to her, she still suffers from the three sufferings.
 
-Think again, all beings in the six realms are our mothers, and they are all suffering and creating the causes of suffering.
+Think again, all beings in the six realms have been our mothers, and they are all suffering and creating the causes of suffering.
 
-Therefore, we should develop compassion, thinking about the suffering of all living beings, and at the same time making a vow: How good would it be if these mother beings could be freed from suffering and the causes of suffering! I must rescue these mother beings!
+Therefore, we should develop compassion, thinking about the suffering of all living beings, and at the same time making a vow: 
+
+How good would it be if these mother beings could be freed from suffering and the causes of suffering! I must rescue these mother beings!
 
 136
 
@@ -3421,8 +3454,11 @@ By practicing compassion and compassion in this way, when your heart can truly e
 
 With great compassion, bodhicitta can arise, and with bodhicitta, the outline of Mahayana Buddhism is established.
 
-Section 3 May all sentient beings never leave the wonderful bliss without loss and suffering
-The third of the four immeasurable heart texts is: May all sentient beings never be separated from the wonderful happiness without suffering. This is the heart of bliss.
+Section 3 - May all sentient beings never leave the wonderful bliss without loss and suffering
+
+The third of the four immeasurable heart texts is: 
+
+May all sentient beings never be separated from the wonderful happiness without suffering. This is the heart of bliss.
 
 Bliss is bliss without leakage, bliss that never disappears, never suffers.
 
@@ -3434,7 +3470,9 @@ If people are happy, but I think: Oh, he is so happy, I am not happy.
 
 This is jealousy, and this kind of mentality is not good.
 
-How to be happy? First, think about the joys of those closest to you.
+How to be happy? 
+
+First, think about the joys of those closest to you.
 
 Visualize his happiness first, and then think: how good it would be if his happiness lasted forever, how good it would be if he never left.
 
@@ -3448,16 +3486,19 @@ There is no joy in this situation.
 
 If you can think like this in your heart: how good it is for my brother to keep getting rich like this, how good his health is, how good it is to be smooth and prosperous.
 
-If you can make your mind like this, then you have truly attained Fa-rectification.
+If you can make your mind like this, then you have truly attained Dharma-rectification.
 
-If you haven't been able to initiate this kind of thought, you just haven't gotten the Fa-rectification yet, and chanting mantras is just the stuff of the skin.
+If you haven't been able to initiate this kind of thought, you just haven't gotten the Dharma-rectification yet, and chanting mantras is just the stuff of the skin.
 
 In fact, reciting mantras is to help people understand these principles, and it is also a blessing to generate this kind of motivation.
 
 When you truly get joy, you will never go bankrupt, you will never get sick, you will always be healthy, and all your happiness will never be lost.
 
-Section 4 May all sentient beings stay away from love, hatred, relatives and estrangements, and live in equal homes
-The fourth of the four immeasurable heart texts is: May all sentient beings stay away from love, hatred, relatives and estrangements, and live in equal equanimity.
+Section 4 - May all sentient beings stay away from love, hatred, relatives and estrangements, and live in equal homes
+
+The fourth of the four immeasurable heart texts is: 
+
+May all sentient beings stay away from love, hatred, relatives and estrangements, and live in equal equanimity.
 
 This is heartbreak.
 
@@ -3471,24 +3512,26 @@ The pressure is gone, and the pressure is the result of these two worries.
 
 Don't be greedy for relatives and friends, and don't have hatred for enemies. In fact, relatives and friends are equal to each other. There are no eternal relatives and friends, and there is no eternal enemy.
 
-Today's relatives and friends will become tomorrow's enemies, and today's enemies will also become tomorrow's relatives and friends. This is the impermanence of the six realms of reincarnation.
+Today's relatives and friends will become tomorrow's enemies, and today's enemies will also become tomorrow's relatives and friends. This is the impermanence of the six realms of rebirth.
 
 In essence, all sentient beings are equal and should be treated with an equal mind, so we must always express our equanimity.
 
 If we ourselves are greedy for our relatives and friends, we should make a vow to practice, hoping to get rid of greed one day earlier and have a balanced state of mind.
 
-Section 5: The Key to Sending out the Four Immeasurable Hearts
+Section 5 - The Key to Sending out the Four Immeasurable Hearts
+
+
 The four immeasurable hearts are all the same, starting from the closest person, to the closer, then to the farther, and then to the common people.
 
 When you send out the four immeasurable hearts to ordinary people, you must not send them vaguely together.
 
-You have to find someone you know from among ordinary people, set your heart on him, and then expand to another person, and then to other ordinary people.
+You have to find someone you know from among ordinary people, set your mind on him, and then expand to another person, and then to other ordinary people.
 
 140
 
 In the end, if you choose an ordinary person at random, and you can send out the four immeasurable minds without any obstacles, you will be considered a success.
 
-After this achievement, try again to a certain opponent, and if you can really express it, then add it to other more enemies and opponents.
+After this achievement, try again with a certain opponent, and if you can really express it, then add more enemies and opponents.
 
 When one can send out loving-kindness or the four immeasurable hearts to all enemies, then one will truly achieve and become a great person.
 
@@ -3504,11 +3547,11 @@ Not just from suffering, but from all the causes of suffering.
 
 Then visualize the happiness that sentient beings have, and may they obtain these happiness, may they be healthy, obtain wealth, live a long life, and obtain food and clothing.
 
-These are the four immeasurable minds, and that's what the Fa-rectification says.
+These are the four immeasurable minds, and that's what the Dharma-rectification says.
 
 Dharma is for people to be free from suffering and gain happiness. After understanding the merits of the four immeasurable minds, and having tasted the true flavor of Dharma, their body and mind will feel very comfortable.
 
-At this time, she will think that all sentient beings are mothers who have great kindness to herself. If she is scolded, she will not be angry, because she knows that it is the troubles of sentient beings that make her angry.
+At this time, you will think that all sentient beings are mothers who have great kindness to oneself. If she is scolded, she will not be angry, because she knows that it is the troubles of sentient beings that make her angry.
 
 Just imagine, if our dearest and most beloved mother goes crazy and beats and scolds us, we will not be angry.
 
@@ -3528,7 +3571,8 @@ It’s good to think about it like this, and it’s okay to not read and post.
 
 142
 
-Chapter 9: The Four Great Wishes
+Chapter 9 - The Four Great Wishes
+
 All sentient beings are boundless vows to save endless troubles
 
 The four major vows are very big vows.
@@ -3540,19 +3584,21 @@ The vows made by bodhisattvas from one place to ten places have increased hundre
 143
 
 The first section of the boundless vow of all sentient beings
+
 Boundless vows to save sentient beings: We often talk about saving sentient beings. How can we save so many sentient beings? It is to make a vow: There are countless and boundless sentient beings in the six realms, I must save them, I vow to save all sentient beings, and not one will fall behind.
 
 In order to save all sentient beings, I want to become a Buddha and make such a vow.
 
 If you make this vow often, when the power of your vow matures, it will be incredible, and it will be able to save countless sentient beings.
 
-Among the great siddhas in the Tibetan area, the former Kadampa master Bodova is recognized as a great siddha. Among those who practice with Bodova, there are more than 3,000 people who have achieved relatively great achievements.
+Among the great siddhas in Tibet, the former Kadampa master Bodowa is recognized as a great siddha. Among those who practice with Bodowa, there are more than 3,000 people who have achieved relatively great achievements.
 
-When Master Bodova preached scriptures, he often told stories about birds and insects, which could save countless sentient beings.
+When Master Bodowa preached scriptures, he often told stories about birds and insects, which could save countless sentient beings.
 
-Anyone who listens to the stories told by Master Bodova will practice hard, and this is because of the power of the Master's vows to save sentient beings in the past.
+Anyone who listens to the stories told by Master Bodowa will practice hard, and this is because of the power of the Master's vows to save sentient beings in the past.
 
 The second section of endless troubles and vows to end
+
 Endless afflictions vow to cut off: afflictions have six root afflictions and twenty secondary afflictions.
 
 144
@@ -3569,32 +3615,33 @@ If our troubles are really cut off, they will never grow again.
 
 Once greed is suppressed, greed will grow again, and when greed is cut off, afflictions will never grow again.
 
-In front of an arahant, a lot of gold and silver treasures are piled up, and the arahant will not be greedy, because the arahant has stopped greed.
+In front of an arhat, a lot of gold and silver treasures are piled up, and the arhat will not be greedy, because the arhat has eliminated greed.
 
 If a person breaks his hatred, no matter how he beats or scolds him, hatred will not arise.
 
 To break off afflictions and stay away from bad karma also requires making a vow.
 
-In the past, on the border between Tibet and Nepal, there were 500 people who killed buffalo. The buffalo is a very precious animal. Many people hope to save these hunters. There are many masters to persuade them not to kill buffalo, not to kill animals. They don't listen.
+In the past, on the border between Tibet and Nepal, there were 500 people who killed buffalo. The buffalo is a very precious animal. Many people hope to save these hunters. There are many masters to persuade them not to kill buffalo, not to kill animals. They didn't listen.
 
-Later, Venerable Atisha went to the place where they were hunting. Venerable Venerable said nothing. After seeing Venerable, these hunters vowed not to hunt in the future. All because of Venerable Atisha's vows and blessings.
+Later, Venerable Atisha went to the place where they were hunting. He said nothing. After seeing Venerable Atisha, these hunters vowed not to hunt in the future. All because of Venerable Atisha's vows and blessings.
 
 145
 
-Section 3 Dharma Infinite Vows to Study
+Section 3 - Dharma Infinite Vows to Study
+
 The Buddha Dharma is boundless and vows to learn: There are 84,000 Dharma disciplines in the Dharma, and some people feel that there are so many Dharma disciplines in the Tripitaka, and they can’t finish it if they want to learn it, so they don’t want to learn it.
 
 We can't do that, we should think like this: If I can't finish my studies this year, I'll study them next year;
 
 We must have this spirit, we must learn the highest point, and never give up.
 
-There are more than 300 Tibetan scriptures in the Tibetan Tripitaka, including Tengyur and Ganyur. Many people have read them in their lifetime, and some have read it seven or eight times. The Buddhadharma is boundless and they vow to learn. This is very important.
+There are more than 300 Tibetan scriptures in the Tibetan Tripitaka, including Tengyur and Kangyur. Many people have read them in their lifetime, and some have read it seven or eight times. The Buddhadharma is boundless and they vow to learn. This is very important.
 
 Some people say that I don’t need to study much, we are getting old, we just need to recite Amitabha and some mantras.
 
 This is not acceptable, you must learn, and you must learn when you are old.
 
-Dharma King Yongzeng often said: These old people's ideas are wrong. You can't say that when I get old, I can't eat and I won't eat. When I get old, I have to learn.
+Dharma Master Yongzeng often said: These old people's ideas are wrong. You can't say that when I get old, I can't eat and I won't eat. When I get old, I have to learn.
 
 The old monks in our Tibetan area, some older monks over 80 years old, can recite many scriptures in a year, and they have to take exams. Studying and practicing.
 
@@ -3624,20 +3671,23 @@ Some people say that retreating is important and listening to the Dharma is not,
 
 There are also people who say that meditation is very important and that listening to the Dharma is not important, which is also wrong.
 
-If you don't listen to the scriptures and the Dharma, how can you meditate? If you want to meditate, you must first know the method of meditation, and if you want to retreat, you must first know the method of retreat, so that you will not practice blindly or chaotically, and waste your time to fill your body.
+If you don't listen to the scriptures and the Dharma, how can you meditate?
 
-Section 4: The Supreme Vow of Buddhism and Dao Fulfillment
-The supreme vow of Buddhahood is fulfilled: The Buddhadharma is the five ways: the way of resources, the way of practice, the way of seeing, the way of cultivation, and the way of non-cultivation.
+If you want to meditate, you must first know the method of meditation, and if you want to retreat, you must first know the method of retreat, so that you will not practice blindly or chaotically, and waste your time to fill your body.
+
+Section 4 - The Supreme Vow of Buddhism and Dao Fulfillment
+
+The supreme vow of Buddhahood is fulfilled: The Buddhadharma is the five ways: the path of resources, the path of practice, the path of seeing, the path of cultivation, and the path of non-cultivation.
 
 The practice of Buddhism is difficult, and the achievement of vows is that I vow to be successful, and I want to become a Buddha.
 
-In fact, it is difficult to practice before entering the Dao, but once you enter the Dao, the journey will be smooth.
+In fact, it is difficult to practice before entering the path, but once you enter the path, the journey will be smooth.
 
 Just like taking a plane, it is difficult to walk before you get on the plane, but once you get on the plane, it is easy to reach your destination. That's the truth.
 
-If you cultivate bravely and diligently, you will be able to enter the Dao.
+If you cultivate bravely and diligently, you will be able to enter the path.
 
-If you have attained the achievement of seeing the Tao, you will realize and realize emptiness; if you have attained the Tao of cultivation, you will be free of innate afflictions; if you have attained the Tao of non-cultivation, those who want to become an arahant become an arahant, and those who want to become a Buddha become a Buddha.
+If you have attained the achievement of seeing the Tao, you will realize and realize emptiness; if you have attained the path of cultivation, you will be free of innate afflictions; if you have attained the path of non-cultivation, those who want to become an arhat become an arhat, and those who want to become a Buddha become a Buddha.
 
 148
 
