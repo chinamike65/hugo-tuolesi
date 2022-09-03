@@ -616,26 +616,27 @@ Moreover, there are different interpretations of the "Mahāvibhāṣā Śāstra"
 
 There used to be four great masters in this tenet school, and they were very famous, namely: Shiyou, Fajiao, Juetian, and Jixian.
 
-The interpretations of the "Great Vipassana Treatise" by the four major commentators are not the same. Due to the different understanding of the "Great Vipassana Treatise", some sects were gradually divided into eighteen divisions.
+The interpretations of the "Mahāvibhāṣā Śāstra" by the four major commentators are not the same. Due to the different understanding of the "Mahāvibhāṣā Śāstra", some sects were gradually divided into eighteen factions.
 
-The formation of these eighteen divisions is due to different languages, places of residence, etc., but it is mainly due to the different understandings of the "Great Vipassana".
+The formation of these eighteen factions is due to different languages, places of residence, etc., but it is mainly due to the different understandings of the "Mahāvibhāṣā Śāstra".
 
 19
 
-1. There is an understanding of the foundation
+1. The Great Exposition School's Understanding of dharma
 
-Basically, some schools believe that everything in the universe is impermanent, but it is not impermanent in an instant, but a continuous impermanence.
+Basically, some schools believe that everything in the universe is impermanent, but it is not impermanent in a moment, but a continuous impermanence.
 
-What is the impermanence of the moment? 
-A normal person's finger snap can be divided into sixty-five moments. Some schools believe that everything in the universe changes, but it does not change in an instant. There is a process of birth, dwelling, and annihilation.
+What is the impermanence of the moment?
+
+A normal person's finger snap can be divided into sixty-five moments. Some schools believe that everything in the universe changes, but it does not change in a moment. There is a process of birth, dwelling, and annihilation.
 
 Other schools believe that even a moment is impermanent, and that everything in the universe changes every moment.
 
-Quantum and molecules in all things change every moment, and the change in that moment has been proved by science.
+Quanta and molecules in all things change every moment, and the change in that moment has been proved by science.
 
-But some schools believe that there is no momentary change, only continuous change, which is a difference.
+But some schools believe that there is no momentary change, only continuous change, and argue that there is a difference.
 
-In addition, on the basis of the foundation, the understanding of the pudgala (Sanskrit pudgala) is different. Some sects think that the pudgala has no self, which refers to the kind of self that the heretics think does not exist, "I" It exists. I rests on the five aggregates. Sometimes I think that all the five aggregates are me, and sometimes I think that the five aggregates are me. The eighteen parts are different.
+In addition, on the basis of the foundation, the understanding of the pudgala (Sanskrit pudgala) is different. Some sects think that the pudgala has no self, which refers to the kind of self that the heretics think does not exist, "I" .It exists. It rests on the five aggregates. Sometimes I think that all the five aggregates are me, and sometimes I think that the five aggregates are me. The eighteen parts are different.
 
 Basically, other schools believe that there are two truths: mundane truth and ultimate truth.
 
@@ -645,32 +646,35 @@ But there are sects that deny the Two Truths.
 
 2. There is an understanding of the ministry of Taoism
 
-The Tao is the five Taos, and within the five Taos there are the five Taos of Shravaka and the five Taos of karmic perception.
+The Path is the five paths, and within the five paths there are the five paths of Shravaka and the five paths of karmic perception.
 
-On the basis of renunciation, the pursuit of Arhatship of Shravaka is the path of shravakaya; on the basis of renunciation, the pursuit of Arhatship of predestined enlightenment is the path of predestination.
+On the basis of renunciation, the pursuit of Arhatship of the Shravakas is the path of shravakaya; on the basis of renunciation, the pursuit of Arhatship of predestined enlightenment is the path of predestination.
 
 A hundred kalpas of blessings have been accumulated in the path of predestined enlightenment, so when he becomes an Arhat fruit of predestined enlightenment, he has a majestic appearance similar to that of Buddhas and Bodhisattvas.
 
 1. Some sects believe that the afflictions can be cut off only by the absence of the self, but at the same time they deny the hindrance of knowledge, and believe that only the hindrance of affliction is not the hindrance of knowledge.
+
 Also, the five Mahayana paths are not recognized.
 
 2. When Sakyamuni became a Buddha, he went through the path of accumulation, the path of joining, the path of seeing, the path of meditation, and the path no-more-learning of becoming a Buddha without cultivating the path.
-Some sects believe that when Buddha Shakyamuni accumulated the blessings of the three major kalpas of Asamji, the last four realms were enlightened in one day and one night. This is very different from what other sects say. difference.
+
+Some sects believe that when Buddha Shakyamuni accumulated the merit of the three major kalpas of Asamji, the last four realms were enlightened in one day and one night. This is very different from what other sects say. difference.
 
 This is a different view on the "Path".
 
 21
 
-3. Have some understanding of the fruit
+##### 3. Have some understanding of the fruit
 
-1. On the fruit, some schools have different views from other schools, especially nirvana. Some schools agree with residual nirvana and non-residual nirvana, but deny non-resistance nirvana.
+1. On the fruit, some schools have different views from other schools, especially regarding nirvana. Some schools agree with residual nirvana and non-residual nirvana, but deny non-resistance nirvana.
 
 2. Among the Buddha's four bodies, there are sects that deny the existence of Sambhogakaya and Self-nature.
 
-3. Among the 84,000 dharmas, some schools only recognize 80,000 dharmas and do not recognize 4,000 dharmas;
+3. Among the 84,000 dharmas, some schools only recognize 80,000 dharmas and do not recognize 4,000 dharmas.
+
 Some sects are divided into early, middle and late stages, and they are different in understanding.
 
-The sects before Nagarjuna belonged to the early and middle stages, the sects in the middle did not recognize Mahayana Buddhism, the sects after Nagarjuna belonged to the later sects, and the sects in the early and late stages both recognized Mahayana Buddhism. But if you don't practice Mahayana, this is the main situation of Buddhism.
+The sects before Nagarjuna belonged to the early and middle stages, the sects in the middle sage did not recognize Mahayana Buddhism, the sects after Nagarjuna belonged to the later sects, and the sects in the early and late stages both recognized Mahayana Buddhism. But if you don't practice Mahayana, this is the main situation of Buddhism.
 
 ##### Chapter 3 -
 
@@ -688,15 +692,15 @@ The foundation of the sect of scriptures: the law of impermanence is the imperma
 
 Denying the continual impermanence.
 
-Some schools believe that the universe is a continuous impermanence, a process of birth, abiding, and cessation, rather than a momentary impermanence.
+Some schools believe that the universe is continuous change, a process of birth, abiding, and cessation, rather than a momentary impermanence.
 
 2. The understanding of Taoism by the sutras
 
-Dao: There are five paths—the path of accumulation, the path of joining, the path of seeing, the path of meditation, and the path of no-more-learning.
+Path: There are five paths—the path of accumulation, the path of joining, the path of seeing, the path of meditation, and the path of no-more-learning.
 
-The path of accumulation is the first step in entering the path of accumulating blessings.
+The Path of Accumulation is the first step in entering the path of accumulating merit.
 
-The path of joining is the preparatory stage before entering the Dao.
+The Path of Joining is the preparatory stage before entering the Dao.
 
 The Path of Seeing is the real realization that people have no self.
 
@@ -756,11 +760,11 @@ There is a big difference between the Three Treasures considered by Theravada an
 
 1. The Buddha's Treasure in Theravada
 
-The Buddha in Theravada believes that there are only three Buddhas: the Burning Lamp Buddha in the past, the Sakyamuni Buddha in the present, and Maitreya Buddha in the future.
+The Buddha in Theravada believes that there are only three Buddhas: the Burning Lamp Buddha in the past, Sakyamuni Buddha in the present, and Maitreya Buddha in the future.
 
 The Dharma of Mahayana records many Buddhas such as the Buddhas of the Three Worlds, and the Dharma of Mahayana Tantra records even more. There are four deities and many other Buddhas.
 
-When Buddha Shakyamuni taught Theravada, he did not mention Buddhas such as Amitabha, Fudo Tathagata, etc. These Buddhas were not recorded in the Buddhist scriptures of Theravada, so many schools of Theravada did not recognize them.
+When Buddha Shakyamuni taught Theravada, he did not mention Buddhas such as Amitabha, Fudo Tathagata, etc. These Buddhas were not recorded in the Buddhist scriptures of Theravada, so many schools of Theravada do not recognize them.
 
 2. The magic weapon believed by Theravada
 
@@ -780,9 +784,11 @@ The mid-term Theravada denied the Mahayana Dharma. It used eighteen reasons to s
 
 In the later Theravada, it was after the Discriminatory Master, who refuted all these eighteen reasons. After the refutation, the Later Theravada also agreed with many Mahayana Buddhist teachings, such as "Psalm Xian Xingyanpin" and so on.
 
-3. The Sangha considered by Theravada
+3. The Sangha as considered by Theravada
 
-The Sangha of Theravada only recognizes Arhats, and does not recognize all the Bodhisattvas such as Guanyin, Manjusri, Vajrapani, etc. Because these Bodhisattvas are not recorded in the Theravada teachings, these Bodhisattvas are only found in the Mahayana teachings, and there are many records in the teachings of the Mahayana Buddhism. The Bodhisattva, more recorded in the tantric method.
+The Sangha of Theravada only recognizes Arhats, and does not recognize all the Bodhisattvas such as Guanyin, Manjusri, Vajrapani, etc. 
+
+Because these Bodhisattvas are not recorded in the Theravada teachings, these Bodhisattvas are only found in the Mahayana teachings, and there are many records in the teachings of Mahayana Buddhism. The Bodhisattva, more recorded in the tantric method.
 
 To sum up, the Hinayana and the Mahayana have different understandings of the Three Jewels.
 
@@ -790,9 +796,9 @@ The Buddha Treasures are only recorded in the Dharma door of Theravada, and only
 
 27
 
-Section 4 - Mind Only
+**Section 4 - Mind Only**
 
-The founder of the Consciousness-Only School was Asanga Bodhisattva. Asanga Bodhisattva practiced in seclusion in a cave for 12 years. He saw Maitreya Bodhisattva with his own eyes, and was taken by Maitreya Bodhisattva to Tushita Heaven for an hour, which is equivalent to 50 years in the world. He returned to the world and passed on the Maitreya Five Classics.
+The founder of the Mind-Only School was Asanga Bodhisattva. Asanga Bodhisattva practiced in seclusion in a cave for 12 years. He saw Maitreya Bodhisattva with his own eyes, and was taken by Maitreya Bodhisattva to Tushita Heaven for an hour, which is equivalent to 50 years in the world. He returned to the world and passed on the Maitreya Five Classics.
 
 Because there are so many people in the human world who have the foundation of mind-only, Asanga Bodhisattva created the mind-only school.
 
@@ -808,7 +814,7 @@ All-round calculation: Except for the above two, the others are all-round calcul
 
 According to him and Chengshi, it is considered to be real, and it is considered that it is not real.
 
-Mind only believes that the external environment does not exist, it is only a change in the heart.
+Mind only believes that the external environment does not exist, it is only a formation in the mind.
 
 That is to say:
 
@@ -818,7 +824,7 @@ If one wants to know that all Buddhas in the three worlds should observe the nat
 
 2. Mind-only understanding of Dharma
 
-The Mind-Only School believes that the Tao is divided into the five Taos of Shravaka, the five Taos of karmic perception, and the five Taos of Mahayana.
+The Mind-Only School believes that the Path is divided into the five paths of Shravaka, the five paths of karmic perception, and the five Tapathsos of Mahayana.
 
 3. Mind-only understanding of fruit
 
@@ -826,7 +832,7 @@ For the understanding of the fruit, the Mind-Only School believes that there is 
 
 Acknowledging that there is residual nirvana, no residual nirvana, and no abiding nirvana.
 
-The only place where a bodhisattva attains Buddhahood is in the realm of desire, and does not recognize the pure realm of pure form in the realm of form.
+The only place where a bodhisattva attains Buddhahood is in the Desire Realm, and does not recognize the pure realm of pure form in the realm of form.
 
 It is believed that the Mahayana way can remove the two obstacles, and turning the wheel of law three times is the ultimate method.
 
@@ -834,13 +840,13 @@ It is believed that the Mahayana way can remove the two obstacles, and turning t
 
 Mind-only is divided into two schools: reality-only consciousness and false appearance-only consciousness.
 
-reality-only consciousness believe that what the eyes see is what actually exists.
+Reality-only consciousness believe that what the eyes see is what actually exists.
 
 29
 
 Mind-only school of false appearance believes that the external environment seen by the eyes is false appearance, that is, the existence of thought, not the actual existence.
 
-Section 5 - Madhyamika
+**Section 5 - Madhyamika**
 
 The founder of Madhyamika is Nagarjuna Bodhisattva.
 
@@ -852,15 +858,15 @@ Once the two obstacles are broken, one will realize the great Bodhi.
 
 The Madhyamika school believes that Buddha Shakyamuni became a Buddha countless kalpas ago, and that the place where he attained Buddhahood was the pure and dense realm of form.
 
-Siddhartha is the incarnation of Sakyamuni Buddha's Sambhogakaya, who manifests in the human world to become a Buddha, turn the wheel of Dharma, and nirvana.
+Gautama Siddhartha is the incarnation of Sakyamuni Buddha's Sambhogakaya, who manifests in the human world to become a Buddha, turn the wheel of Dharma, and nirvana.
 
 The second turning of the Dharma Wheel is the most ultimate Dharma door, because most of the disciples of the second turning Dharma Wheel are Arhats and Bodhisattvas. Facing these saints, the Buddha wants to teach the ultimate Dharma door.
 
 When the Buddha first turned the Dharma Wheel of the Four Noble Truths, the thirty-seven dharmas and other dharmas he talked about were all real.
 
-When turning the Formless Dharma Wheel for the second time, everything from form to knowing everything is non-existent.
+When turning the Formless Dharma Wheel in the second turning, everything from form to knowing everything is non-existent.
 
-Some people think that there is a contradiction between the teachings of the first turning of the Dharma wheel and the second turning of the Dharma wheel. Therefore, Buddha Shakyamuni taught the third turning of the Dharma wheel.
+Some people think that there is a contradiction between the teachings of the First Turning of the Wheel of Dharma and the Second Turning of the Wheel of Dharma. Therefore, Buddha Shakyamuni taught the Third Turning of the Wheel of Dharma.
 
 The disciples who turn the wheel for the first time are those with dull roots, and the disciples who turn the wheel for the second time are those with sharp roots.
 
@@ -868,17 +874,17 @@ Therefore, those with dull roots have no doubts about the Dharma taught by the B
 
 The disciples who turn the wheel three times are middle-level people, so they have doubts.
 
-The Dharma taught by the Buddha to the middle-minded people is not the most ultimate Dharma, but the Mind-Only School believes that it is the most ultimate, and the Madhyamika school denies this statement.
+The Dharma taught by the Buddha to the middle-minded people is not the ultimate Dharma, but the Mind-Only School believes that it is the ultimate, and the Madhyamika school denies this statement.
 
-Section 6 - Tantra
+**Section 6 - Tantra**
 
 Buddha Shakyamuni taught many esoteric methods, such as Kalachakra and Dhysikava, in the human world.
 
-Esoteric Dharma is about the method of becoming a Buddha in one's body, such as the bright point of the Qi channel and the Kundalini fire.
+Esoteric Dharma is about the method of becoming a Buddha using one's own body, such as the bright points of the Qi channel and the Kundalini fire.
 
 Tantra is divided into four parts: Action tantra, Performance tantra, Yoga tantra, and Anuttarayoga tantras.
 
-The Action tantra talks about the practice of the rebirth deity and the self-born deity through the yoga of the six gods; Performance tantra talks about: the method of paying equal attention to both internal and external yoga; Yoga tantra is about: the method of realizing the wisdom of light through the inner yoga; Anuttarayoga tantra includes both the generation and completion phases, that is, the Dharma door of the generation stage and the completion stage.
+Action tantra talks about the practice of the rebirth deity and the self-born deity through the yoga of the six gods; Performance tantra talks about: the method of paying equal attention to both internal and external yoga; Yoga tantra is about: the method of realizing the clear light of wisdom   through the inner yoga; Anuttarayoga tantra includes both the generation and completion phases, that is, the Dharma doors of the generation stage and the completion stage.
 
 31
 
@@ -892,13 +898,13 @@ Mahayana must accumulate merit through three great asamkhya kalpas through ascet
 
 ##### Chapter 4 - Tibetan Buddhism
 
-With the passage of time, Buddhism has gradually developed into many sects, and these sects have been divided into three branches of Buddhism, which are divided into three major sects: Southern Buddhism, Chinese Buddhism, and Tibetan Buddhism.
+With the passage of time, Buddhism gradually developed into many sects, and these sects have been divided into three branches of Buddhism, which are divided into three major sects: South-East Asian Buddhism, Chinese Buddhism, and Tibetan Buddhism.
 
-Southern Buddhism is now the Buddhism of Southeast Asian countries, mainly Myanmar, Sri Lanka, and Thailand.
+South-East Asian Buddhism is now the Buddhism of Southeast Asian countries, mainly Myanmar, Sri Lanka, and Thailand.
 
-Southern Buddhism mainly talks about the method of Theravada, the Five Paths and the Thirty-seven Paths of Theravada, and these are its main contents.
+South-East Asian Buddhism mainly talks about the method of Theravada, the Five Paths and the Thirty-seven Paths of Theravada, and these are its main contents.
 
-Chinese Buddhism is dominated by countries such as China, Japan and South Korea.
+Chinese Buddhism is dominant in countries such as China, Japan and South Korea.
 
 Belongs to the Dharma.
 
@@ -908,15 +914,15 @@ The main contents of the sutra Dharma of Chinese Buddhism are: compassion, bodhi
 
 Tibetan Buddhism is a combination of exoteric Buddhism and esoteric Buddhism. It combines the dharma of esoteric Buddhism with that of esoteric Buddhism.
 
-Tibetan Buddhism is mainly based in Tibetan areas, Inner Mongolia, and Outer Mongolia. Now, there are more and more Tibetan Buddhists in Europe and China.
+Tibetan Buddhism is mainly prevalent in Tibetan areas, Inner Mongolia, and Outer Mongolia. Now, there are more and more Tibetan Buddhists in Europe and China.
 
-Section 1 - Overview of Tibetan Buddhism 
+**Section 1 - Overview of Tibetan Buddhism** 
 
-1. Princess Wencheng entered Tibet
+1. Princess Wencheng in Tibet
 
 Tibetan Buddhism has a history of more than 1,300 years.
 
-In 642 AD, during the reign of the Tibetan king Songtsen Gampo, Buddhism entered the Tibetan area.
+In 642 AD, during the reign of the Tibetan king Songtsen Gampo, Buddhism entered Tibet.
 
 In the past, people in Tibetan areas were very savage and often fought wars. They fought in places like India, Nepal, and China, and they fought every year with every neighbouring country, and wars broke out frequently.
 
@@ -932,9 +938,9 @@ Then, King Songtsen Gampo sent many capable young people from Tibet to India to 
 
 Among these people, some died on the way, some died of heatstroke after arriving in India, and only some returned after learning.
 
-Among those who came back, there was a man named Sambuza, who studied Buddhism in India. He learned very well and was very knowledgeable. When he returned to Tibet, he began to teach the Dharma.
+Among those who came back, there was a man named Thonmi Sambhota, who studied Buddhism in India. He learned very well and was very knowledgeable. When he returned to Tibet, he began to teach the Dharma.
 
-At that time, there was no written language in Tibet, so the Dharma could not be passed on, nor could it be spread by word of mouth. Sambuza created the Tibetan script in order to spread the Buddhadharma.
+At that time, there was no written language in Tibet, so the Dharma could not be passed on, nor could it be spread by word of mouth. Thonmi Sambhota created the Tibetan script in order to spread the Buddhadharma.
 
 He directly took twenty-four letters from the thirty-four letters of Sanskrit and used them as Tibetan letters. On this basis, he created six more letters by himself, making them into the thirty letters of Tibetan, and thus created the Tibetan language.
 
@@ -942,7 +948,7 @@ Tibetans learn Sanskrit very quickly, because most Tibetan characters were origi
 
 After the creation of the Tibetan script, the translation of scriptures began. Therefore, from Songtsen Gampo, the spread of Buddhism in Tibet began.
 
-At the same time, Princess Wencheng of the Han Dynasty went to Tibet to have a kiss, and brought a 12-year-old statue of Sakyamuni Buddha, which is still enshrined in the Jokhang Temple in Lhasa.
+At the same time, Princess Wencheng of the Tang Dynasty went to Tibet to marry King Songtsen Gampo of the Tibetan Empire in 641, and brought a 12-year-old statue of Sakyamuni Buddha, which is still enshrined in the Jokhang Temple in Lhasa.
 
 In addition, a lot of works of great masters were also brought from the Chinese region. In Tibet, the most famous is the works of Master Yuanshi, and there are 21 Chinese translations.
 
@@ -956,17 +962,17 @@ Twenty-one of them were translated from Chinese to Tibetan, and the others were 
 
 About a hundred years after Songtsen Gampo, the Tibetans produced a Tibetan king named Trisong Detsen.
 
-Trisong Detsen invited Padmasambhava and static life masters from India to Tibet.
+Trisong Detsen invited Padmasambhava and static life masters to come from India to Tibet.
 
 After Padmasambhava, Guru Rinpoche, arrived in Tibet, he passed on the esoteric method. In the time of Songtsen Gampo, there were some esoteric methods in Tibet, but only the esoteric method of Avalokitesvara Bodhisattva. There were very few other esoteric methods. The Dharma door is the main.
 
-Guru Padmasambhava brought the esoteric method to the Tibetan area and passed on the esoteric method. There were twenty-five disciples who have cultivated the secret method in their lifetime. These twenty-five are the twenty-five disciples of Guru Rinpoche.
+Guru Padmasambhava brought the esoteric method to Tibet and passed on the esoteric method. There were twenty-five disciples who practiced the secret mantra method in their lifetime. These twenty-five are the twenty-five disciples of Guru Rinpoche.
 
-Beginning with Guru Rinpoche, more and more masters have come to Tibet to teach Tantra. There are more than 5,000 great siddhas and masters from India who have been to Tibet, a lot.
+Beginning with Guru Rinpoche, more and more masters came to Tibet to teach Tantra. There were more than 5,000 great siddhas and masters from India who have been to Tibet.
 
 36
 
-Because India is very close to Tibet, even in 1193, when India destroyed the Dharma, the Nalanda Temple was burnt down. The great Panditas, the great siddhas, and the masters all fled to Tibet to take refuge with their scriptures on their backs. More than 5,000 eminent monks followed.
+Because India is very close to Tibet, even in 1193, when India destroyed the Dharma, and Nalanda Temple was burnt down. The great Panditas, the great siddhas, and the masters all fled to Tibet to take refuge with their scriptures on their backs. More than 5,000 eminent monks followed.
 
 The succession of the Dharma lineage of Tibetan Buddhism is so complete because many great siddhis have come from India.
 
@@ -974,23 +980,23 @@ In addition, when Tibetan Buddhism translated scriptures, there were more than 7
 
 3. Masters of static life theory enter Tibet to teach precepts
 
-Before Guru Rinpoche entered Tibet, the life-time master came to Tibet and was the first master to come to Tibet to teach the precepts.
+Before Guru Rinpoche (Padmasambhava) entered Tibet, the Master Śāntarakṣita came to Tibet and was the first master to come to Tibet to teach the precepts.
 
-After the master of static life theory entered Tibet, the king of Tibet said: We Tibetans should also become ordained and receive the precepts of being liberated.
+After the Master Śāntarakṣita entered Tibet, the king of Tibet said: We Tibetans should also become ordained and receive the precepts of being liberated.
 
-The master of life-skills said: Whether Tibetans can become a monk or not, they must first try.
+Master Śāntarakṣita said: Whether Tibetans can become a monk or not, they must first try.
 
-So, I first selected seven people to become monks, and after they became monks, I saw if they could stand it for three years.
+He then ordained the first seven Tibetan Buddhist monastics, and after they became monks, he observed them for three years.
 
-Three years later, the vitalist found that the precepts of these monks were very quiet, they kept the precepts with ease, and they achieved some achievements in three years.
+Three years later, Master Santaraksita found that the precepts of these monks were very quiet, they kept the precepts with ease, and they achieved some achievements in these three years.
 
 37
 
-The master of still life said: Tibetans can be ordained.
+Master Santaraksita said: Tibetans can be ordained.
 
 Since then, the precept of not liberation has been passed down, and many Tibetans have been ordained to become monks.
 
-There are more and more Tibetan monks, and the life-changing master said: I want to build a monastery.
+There are more and more Tibetan monks, and Master Santaraksita said: I want to build a monastery.
 
 The first monastery in Tibet, the Samye Monastery in Lhasa, was built in this way.
 
@@ -1004,35 +1010,35 @@ You should have heard of the place in Nyingchi, where there is a snow-capped mou
 
 Samye Monastery was the first monastery in Tibet and the first monastery of Tibetan Buddhism, which also marks the official establishment of Tibetan Buddhism.
 
-4. The method of extinction of Langdama
+4. Langdarma's persecution of Buddhism
 
-Almost 70 years after the completion of Samye Monastery, a Tibetan king named Langdawa appeared in Tibet. He and his courtiers respected the Bon religion, and later began to destroy the Buddha and the Dharma.
+Almost 70 years after the completion of Samye Monastery, a Tibetan king named Langdarma appeared in Tibet. He and his courtiers respected the Bon religion, and later began to destroy Buddhism and the Dharma.
 
 38
 
-Langdawa's extinction method is roughly like this: Only lay people are allowed to recite sutras, and all monks must return to the secular world.
+Langdarma's method of persecution was roughly like this: Only lay people were allowed to recite sutras, and all monks had to return to the secular world.
 
-Therefore, there were no monks in Tibet during that period, and it was not until many years later that there were monks.
+Therefore, there were no monks in Tibet during that period, and it was not until many years later that there were monks again.
 
-When Langdawa destroyed the Dharma, there were three eminent monks in the Tibetan area who fled from Lhasa to the Amdo area. After more than 30 years of practice in Amdo, a man named Lagan Gongba Resai wanted to become a monk and asked these three masters to become a monk preach to him.
+When Langdarma destroyed the Dharma, there were three eminent monks in the Tibetan area who fled from Lhasa to the Amdo area. After more than 30 years of practice in Amdo, a man named Lagan Gongba Resai wanted to become a monk and asked these three masters to teach him the precepts.
 
-However, it takes five monks to pass the ordination precepts. At that time, there were only three monks. What should we do? Later, two monks from the Han region were invited, and five Tibetan and Han monks passed on the monk precepts to Lagan Gongba Resai together.
+However, it takes five monks to pass on the ordination precepts. At that time, there were only three monks. What should we do? Later, two monks from the Han region were invited, and five Tibetan and Han monks passed on the monk precepts to Lagan Gongba Resai together.
 
 Therefore, the inheritance of precepts in Tibetan Buddhism is a combination of Tibetan and Chinese. Everyone must know this.
 
 In this way, Tibetan Buddhism once again has monks, and when there are monks, it means that the Buddha's Dharma has been passed down.
 
-Since then, twelve more disciples have become monks in Tibetan areas, and gradually, more and more monks have become monks in Tibetan areas.
+Since then, twelve more disciples have become monks in Tibetan areas, and gradually, more and more monks have been ordained in Tibetan areas.
 
 5. Nyingma School
 
-The Nyingma School was formed almost in the eighth century AD and is the earliest sect of Tibetan Buddhism.
+The Nyingma School was formed almost in the eighth century CE and is the earliest sect of Tibetan Buddhism.
 
 39
 
-After there were monks in Tibet, these monks first practiced the methods of the Nyingma sect, that is, the methods of the Nyingma sect before Langdama destroyed the dharma.
+After the reapearance of monks in Tibet, these monks first practiced the methods of the Nyingma sect, that is, the methods of the Nyingma sect before Langdarma's persecution of the Dharma.
 
-In the process of cultivating, I found some problems: when King Langdama destroyed the Dharma, all the Dharma books were burnt, some lay people wrote down all that they could recite before, some places were forgotten, and there were some loopholes.
+In the process of cultivating, they encountered some problems: when King Langdarma destroyed the Dharma, all the Dharma books were burnt, some lay people wrote down all that they could recite before, some places were forgotten, and there were some ommissions.
 
 When some family members were writing, they added some content they thought they had forgotten.
 
@@ -1040,37 +1046,41 @@ At that time, Buddhist disciples in Tibetan areas all discovered this problem, a
 
 Therefore, many Buddhist disciples went to India in batches.
 
-What Dharma door do you ask? I continued to search for the original Dzogchen method of the Nyingma School, but after searching all over India, I couldn't find this method. At this time, many people had doubts in their hearts, whether there was any Dzogchen method, everyone stopped searching, only Whatever kind of great siddhis you can meet, study the Dharma with that great siddhi.
+What Dharma did they ask for? They continued to search for the original Dzogchen method of the Nyingma School, but after searching all over India, they couldn't find this method. At this time, many people had doubts in their hearts, whether the Dzogchen method really existed, everyone stopped searching.
+
+Whatever kind of great siddhis you can meet, study the Dharma with that great siddhi.
 
 Later, after these Buddhist disciples returned from their studies in India, the teachings were different for each of them, especially the esoteric teachings of the Supreme Yoga, which were very different.
 
-At that time, many people began to have doubts: Will there be fake Dharma in Tibet? How to do it? Everyone discussed that they should invite one of India's top Mahasiddhas to save Tibetan Buddhism.
+At that time, many people began to have doubts: Will there be fake Dharma in Tibet? 
+
+How do we avoid this? Everyone discussed that they should invite one of India's top Mahasiddhas to save Tibetan Buddhism.
 
 At that time, the top Mahasiddha in India was Venerable Atisha.
 
 40
 
-Venerable Atisha has several characteristics: First, the inheritance is the most complete.
+Venerable Atisha has several characteristics: First, the lineage is the most complete.
 
-Venerable Atisha has the inheritance of Nagarjuna Bodhisattva, Asanga Bodhisattva, Shiqin Bodhisattva and other major Bodhisattvas. The inheritance of the sutras is complete, and even the inheritance of Theravada is also very complete.
+Venerable Atisha had the lineage transmission of Nagarjuna Bodhisattva, Asanga Bodhisattva, Vasubandhu Bodhisattva and other major Bodhisattvas. The inheritance of the sutras is complete, and even the inheritance of Theravada is also very complete.
 
-For people in Tibet, the first thing they see is his heritage.
+For people in Tibet, the first thing they see is his lineage.
 
 Second, his listening, thinking, and cultivation are very complete.
 
 Third, his achievements are high.
 
-Therefore, the Tibetans at that time, the Master, and King Ali from the Tibetan area discussed together: We should invite the Venerable Atisha to come to the Tibetan area to teach the Dharma.
+Therefore, the Tibetans, the Masters, and King Jangchub Ö from the Tibetan area discussed together: We should invite the Venerable Atisha to come to the Tibetan area to teach the Dharma.
 
 In order to invite the Venerable Atisha, the Tibetan area sent many people, one after another, to India, and finally the Venerable Atisha was invited.
 
-After arriving in the Tibetan area, Venerable Atisha began to rectify Tibetan Buddhism, and cleaned up those that were really not in accordance with the law at that time, such as some from the upper body of the emperor, and some false teachings.
+After arriving in the Tibetan area, Venerable Atisha began to rectify Tibetan Buddhism, and cleaned up those that were really not in accordance with the Dharma, such as some from the Son of Heaven Demon, and some false teachings.
 
-His Holiness also sorted out the outlines of the entire 84,000 Dharma-doors and wrote the famous "Lamp for the Path to Enlightenment", which has benefited countless people in future generations.
+Venerable Atisha also sorted out the outlines of the entire 84,000 Dharma-doors and wrote the famous "Lamp for the Path to Enlightenment", which has benefited countless people in future generations.
 
-6. Kadampa
+6. Kadampa School
 
-Venerable Atisha came to Tibet to spread the Dharma later, and he assisted the eldest disciple Chung Dunpa to establish the Kadam School.
+Venerable Atisha came to Tibet to spread the Dharma, and he assisted his eldest disciple Dromtönpa Gyalwé Jungné to establish the Kadam School.
 
 The main practice of Kadampa is the Three Ways:
 
@@ -1078,11 +1088,45 @@ The lower, the middle, and the upper.
 
 The Three Ways taught by Venerable Atisha mainly focus on three aspects: renunciation, bodhicitta, and the concept of impermanence in life.
 
-In terms of esoteric methods, the most famous Kadampa schools are Sakyamuni Buddha, Avalokitesvara with eleven faces, one thousand hands and one thousand eyes, King Fudoming, the four deities of the twenty-one mother, and the sixteen bright points of Kadam.
+In terms of esoteric methods, the most famous Kadampa schools are Sakyamuni Buddha, Avalokitesvara with eleven faces, one thousand hands and one thousand eyes, Arya Acalanātha, the Four Divinities, the twenty-one Taras, and the Sixteen Drops of Kadam.
 
-There are twelve auspicious heavenly mothers, mother-in-law Vajra protectors and so on.
+The sixteen drops are:
 
-Venerable Atisha passed on the Three Ways to Thongtunpa. In addition, Thongtunpa also has a lot of esoteric traditions.
+1. The drop of the outer inconceivable array
+
+2. The drop of this Endurance World
+
+3. The drop of the realm of Tibet
+
+4. The drop of one’s abode and the drawn mandala
+
+5. The drop of Perfection of Wisdom Mother
+
+6. The drop of her son, Buddha Śākyamuni
+
+7. The drop of Great Compassion
+
+8. The drop of Wisdom Tārā
+
+9. The drop of her wrathful form
+
+10. The drop of Acala, their immutable nature
+
+11. The drop of Atiśa
+
+12. The drop of Dromtön Gyalwai Jungné
+
+13. The drop of the vast practice
+
+14. The drop of the profound view
+
+15. The drop of the inspirational practice
+
+16. The drop of great awakening
+
+There are twelve auspicious heavenly dakini goddesses, Perfection of Wisdom Mother, Vajra protectors and so on.
+
+Venerable Atisha passed on the Three Ways to Dromtönpa. In addition, Dromtönpa also received a lot of esoteric transmissions.
 
 The disciples of Venerable Atisha have accomplished a lot.
 
@@ -1092,84 +1136,89 @@ After the establishment of the Kadam School, the Dharma-restoration flourished, 
 
 After the Nyingma Sect, the Kadam Sect was established, followed by the Kagyu Sect and the Sakya Sect. These two sects were established at about the same time.
 
-7. Kagyu School
+##### 7. Kagyu School
 
-The Kagyu sect is divided into Shangpa Kagyu and Dabo Kagyu. The patriarch of Shangpa Kagyu is Kezhiqiongwu. He went to India three times and worshipped 150 great siddhis as teachers, and obtained many methods. He founded the Shangpa Kagyu Sect in Tibetan areas, lived one hundred and fifty years old, and saved countless sentient beings.
+The Kagyu school is divided into Shangpa Kagyu and Dagpo Kagyu. The patriarch of Shangpa Kagyu is Khyungpo Naljor. He went to India seven times and studied with 150 great siddhis as teachers, bringing back many teachings from masters such as Niguma, Sukhasiddhi, Rahulaguptavajra, Maitripa and Vajrasana or Abhaya. . He founded the Shangpa Kagyu School in Tibet. He is said to have lived for 150 years., and saved countless sentient beings.
 
-Guru Marpa, Venerable Milarepa, and Gampopa are the founders of the Dapo Kagyu School.
+Guru Marpa, Venerable Milarepa, and Gampopa are the founders of the Dagpo Kagyu School.
 
-Master Marpa went to India three times, met many teachers such as Naropa and Mizhiba, and learned a lot of Dharma.
+Master Marpa went to India three times, and four times to Nepal, met many teachers such as Naropa and Maitripada, and learned a lot of Dharma.
 
-When Master Marpa first started teaching the Dharma in Tibetan areas, he was not very well-known. He taught the Dharma in a small place called Gongtang at that time.
+When Master Marpa first started teaching the Dharma in Tibetan areas, he was not very well-known. He taught the Dharma in a small place called Lhodrak.
 
-At that time, Venerable Milarepa went to Master Marpa to ask for the Dharma. At that time, Milarepa had a lot of karma, so Master Marpa asked him to eliminate the karma through hard work.
+At that time, Venerable Milarepa went to Master Marpa to ask for the Dharma. Milarepa had a lot of karma, so Master Marpa asked him to eliminate the karma through hard work.
 
-Milarepa wanted to seek the method of becoming a Buddha in one lifetime, and said to Master Marpa: Master, you teach me the method of becoming a Buddha in one lifetime. to you.
+Milarepa wanted to seek the method of becoming a Buddha in one lifetime, and said to Master Marpa: Master, teach me the method of becoming a Buddha in one lifetime.
 
-Marpa said: Did you really make offerings? He said: "It's really supportive.
+Marpa said: Did you really make offerings? 
 
-Master Marpa said: Well, from today onwards, your body, speech, and mind are mine. Whatever I tell you to do, you should do it. From tomorrow, help me build a palace.
+Milarepa said: Really.
 
-When Milarepa built the palace halfway, Master Marpa saw it, and found a reason to let him demolish it all. After demolishing it, let Milareba rebuild it. many times.
+Master Marpa said: Well, from today onwards, your body, speech, and mind are mine. Whatever I tell you to do, you should do it. From tomorrow, help me build a tower.
 
-All Milarepa's karma was eliminated through ascetic practice, and after that, he taught the Dharma, including the Dharma of Dhyana, the Six Dharma of Naruo, and the Dharma of Victory Vajra.
+When Milarepa was halfway through building the tower, Master Marpa saw it, and found a reason to let him demolish it. After demolishing it, Marpa ordered Milarepa to rebuild it many times.
 
-Then, Venerable Milareba began to retreat and practice, and he became a Buddha in his lifetime.
+All Milarepa's karma was eliminated through ascetic practice, and after that, he taught the Dharma, including the Dharma of Dhyana, the Six Dharmas of Naropa, and the Dharma of Victory Vajra.
 
-Venerable Milarepa had two great disciples: Gampopa and Jajumpa.
+Then, Venerable Milarepa began to retreat and practice, and he became a Buddha in his lifetime.
 
-Gampopa is a monk and a great achiever with the most disciples. He has all the inheritance of Venerable Milarepa.
+Venerable Milarepa had two great disciples: Gampopa and Rechungpa.
+
+Gampopa was a monk and a great achiever with the most disciples. He has all the inheritance of Venerable Milarepa.
 
 The era of Master Gampopa's teaching was also the most prosperous period of the Kagyu sect. Master Gampopa's teaching was to ask everyone not to pursue material life, but to practice with one heart.
 
 There are many siddhas of the Kagyu sect. At that time, half of the Tibetan practitioners were Kagyu sects, half of the Kagyu sects were beggars, and half of the beggars were Mahasiddhas.
 
-The disciples of Master Gampopa founded the four major sects of Dapo Kagyu: Karma Kagyu, Padrup Kagyu, Caipa Kagyu, and Barong Kagyu.
+The disciples of Master Gampopa founded the four major sects of Dagpo Kagyu: Karma Kamtsang (Karma Kagyu), Phagdru Kagyu, Tshalpa Kagyu, and Barom Kagyu.
 
-Later, Dapo Kagyu gradually divided into eight sub-sects.
+Later, Dagpo Kagyu gradually divided into Eight Secondary branches.
 
-The main method of the Kagyu school in the right view is Mahamudra, and the main deities are the Vajrayana, the Hevajra, and the Victory Vajra.
+The main method of the Kagyu school in the right view is Mahamudra, and the main deities are Vajrasana, the Hevajra, and Chakrasamvara.
 
 8. Sakya
 
-The Patriarchs of the Sakya Sect are the Five Sakya Patriarchs.
+The founders of the Sakya School are known as the Five Sakya Patriarchs.
 
-The first patriarch was Kunga Nyingpo, the second patriarch was Sonam Zimo, the third patriarch was Drapa Gyaltsen, the fourth patriarch was Gongga Gyaltsen, and the fifth patriarch was Sakya Phaspa.
+The first patriarch was Sachen Kunga Nyingpo, the second patriarch was Sönam Tsemo, the third patriarch was Jetsün Drakpa Gyaltsen, the fourth patriarch was Chögyal Pakpa, and the fifth patriarch was Sakya Pandita.
 
-The Five Sakya Patriarchs have handed down many excellent methods, and the most special method is called Daoguo, which is the most excellent in the Sakya sect.
+The Five Sakya Patriarchs have handed down many excellent methods, and the most special method is called Lamdré, or 'Path with Its Fruit', which is the most excellent in the Sakya sect.
 
 In the past, the Sakya and Kagyu sects still practiced the five great treatises and the thirteen golden methods.
 
-When the Sakya sect spread to the Yuan Dynasty, the two patriarchs, Gongga Gyaltsen and Sakya Phasepa, became the national teachers of the Yuan Dynasty emperor Kublai Khan. Since then, Tibetan Buddhism has spread to the Han region. historically recorded.
+When the Sakya sect spread to the Yuan Dynasty, the two patriarchs, Gongga Gyaltsen and Sakya Pandita, became the national teachers of the Yuan Dynasty emperor Kublai Khan. Since then, Tibetan Buddhism has spread to the Han region and is historically recorded.
 
-Nine, the sect
-The main patriarchs of the Juenang sect were Yumo Mijue Dorje and later Tuppo Xirao Gyaltsen. They also handed down a lot of dharmas, the most important dharma being his Kongjian.
+9. Jonang School
 
-Now the Kalachakra taught in various monasteries is mainly the inheritance of the Joonang School.
+The main patriarchs of the Juenang sect were Yumo Mikyo Dorje and later  Dolpopa Sherab Gyaltsen. They also handed down a lot of teachings, the most important dharma being his Kalchakara Teaching.
 
-In addition, the inheritance of Jue Nang sect empowerment is very rich.
+Now the Kalachakra taught in various monasteries is mainly the inheritance of the Jonang School.
 
-10. Dividend
+In addition, the lineage of the Jonang School empowerments is very rich.
 
-The founder of the Xijie School was Padangpa, who mainly practiced the body method.
+##### 10. Chöd (Anuttarayoga Tantra)
+
+The founder of the Chöd School was Dampa Sangye (Kamalaśīla), who mainly practiced the body method.
 
 45
 
-After Patriarch Bodhidharma passed away after showing false appearances in Han, his real body went to Tibet, that is, Padangpa.
+After Patriarch Bodhidharma passed away after showing false appearances in Han, his real body went to Tibet, that is, as Dampa Sangye.
 
-Xijie Pai is divided into matrilineal and paternal lineage. The matrilineal line was passed down from Padangpa to Maji Lazhun, and the paternal line was passed down to Chitso Jepa.
+In the esoteric oral tradition of Tibetan Buddhism, a version of Dampa Sangye's life-story has him traveling to China and teaching there for 12 years, where he was known as Bodhidharma the founder of Zen. Dampa Sangye is associated with the Tingri area of Tibet, where he lived for many years.
 
-11. Gelugpa
+Chöd is divided into matrilineal and paternal lineage. The matrilineal line was passed down from Dampa Sangye to  Machig Labdrön, and the paternal line was passed down to Kyo Sönam lama and Rampar Serpo.
 
-I talked about the Nyingma School, Kadam School, Kagyu School, Sakya School, Juenang School, and Sijie School. Everyone has some concepts about the various schools of Tibetan Buddhism. The last school of Tibetan Buddhism formed, It's the Gelugpa.
+11. Gelugpa School
+
+I talked about the Nyingma School, Kadam School, Kagyu School, Sakya School, Jonang School, and Chö School. Everyone has some concepts about the various schools of Tibetan Buddhism. The last school of Tibetan Buddhism to be established is the Gelugpa School.
 
 The patriarch and founder of Gelugpa is Master Tsongkhapa, who has sixteen unparalleled merits.
 
-The first merit is that the transformation world is unparalleled.
+1. transformation world is unparalleled.
 
 Why do we say so? Because Master Tsongkhapa is the incarnation of all Buddhas and Tathagatas, the true incarnation of Manjushri, and also the incarnation of Avalokitesvara and Vajrapani Bodhisattva. These are the incarnations of Master Tsongkhapa.
 
-The second is that birth is unparalleled.
+2. Auspicious birth
 
 As soon as Master Tsongkhapa was born, when cutting the umbilical cord, a drop of blood fell on the ground, and a sandalwood tree grew out of this place.
 
@@ -1177,11 +1226,11 @@ There is no such auspicious sign of a bodhi tree at birth, except for Shakyamuni
 
 46
 
-The third is the incomparable prophecy.
+3. Incomparable Prophecies
 
 There are many Bodhisattvas and Mahasiddhas who have been prophesied by Buddha Shakyamuni, but the prophecies of Master Tsongkhapa are different.
 
-The Prophecy of Manjusri Roots:
+The Prophecy of The Root Manual of Mañjuśrī:
 
 After I pass away
 
@@ -1203,109 +1252,120 @@ At that time, in the snow-capped mountains, you built the Huanxi Temple.
 
 Huanxi Monastery was the later Ganden Monastery.
 
-Buddha Shakyamuni once foretold that Master Tsongkhapa performed the actions of all the Buddhas. There are twelve kinds of actions of the Buddhas and Tathagatas. The most special one is lecturing the scriptures.
+Buddha Shakyamuni once foretold that Master Tsongkhapa would perform the actions of all the Buddhas. There are twelve kinds of actions of the Buddhas and Tathagatas. The most special one is teaching the scriptures.
 
 Master Tsongkhapa is unparalleled in listening, thinking, practicing, speaking, debating, and writing.
 
-Therefore, the Tsongkhapa prayer reads:
+Therefore, the Tsongkhapa Miktséma reads:
 
-no predestined sadness
+---
 
-Unsullied Wisdom King's Subtle Sound
+Great treasury of non-referential compassion, Avalokiteśvara,
 
-The Secret Lord of the Devil's Army
+Powerful lord of flawless wisdom, Mañjuśrī,
 
-Snowland Zhiyan Tsongkhapa
+And destroyer of all the hosts of Māra, Vajrapāṇi, Lord of Secrets—
 
-Prayer before Lobsang Zahua
+Crowning glory amongst all the learned masters of the Land of Snows,
 
-The Fifth Dalai Lama explained the phrase "Tsongkhapa in the snowy land": All the great siddhis in Tibet add up to Master Tsongkhapa, and one by one, no one is as good as Tsongkhapa.
+Tsongkhapa Lobzang Drakpa, at your feet I pray!
+
+---
+
+The Fifth Dalai Lama explained the phrase "Crowning glory amongst all the learned masters of the Land of Snows,
+Tsongkhapa Lobzang Drakpa": All the great siddhis in Tibet added together do not match up to Master Tsongkhapa, and taken one by one, not one is as good as Tsongkhapa.
 
 For example, some masters are as high as Tsongkhapa in achievement, but not as good as Tsongkhapa in their aspirations and actions; some masters are not as good as Tsongkhapa in hearing and thinking.
 
-For example, Venerable Milarepa, his achievements are not inferior to that of Master Tsongkhapa, but he is not as good as Master Tsongkhapa in lecturing, and not as good as Master Tsongkhapa in terms of inheritance, because Master Tsongkhapa has the inheritance of all major sects. Venerable Milarepa has only the Kagyu lineage.
+For example, Venerable Milarepa, his achievements are not inferior to that of Master Tsongkhapa, but he is not as good as Master Tsongkhapa in lecturing, and not as good as Master Tsongkhapa in terms of transmission, because Master Tsongkhapa has the transmission lineage of all the major schools. Venerable Milarepa has only the Kagyu lineage.
 
-Master Tsongkhapa was from Qinghai. After arriving in Tibet, he studied with great siddhis of various schools as his teachers. His teachers included Nyingma, Kadam, Kagyu, Sakya, and Jonang schools. There are all sects, so the inheritance of his Dharma is very complete.
+Master Tsongkhapa was from Qinghai. After arriving in Tibet, he studied with great siddhis of various schools as his teachers. His teachers included Nyingma, Kadam, Kagyu, Sakya, and Jonang schools. These are all the major schools, so the lineage of his Dharma is very complete.
 
 Master Tsongkhapa studied with more than 40 teachers, all of whom were the top great siddhis of each school at that time. Therefore, Master Tsongkhapa received the transmissions of teachers from Nyingma, Kadam, Kagyu, Sakya, and Jonang school lineages.
 
-Then, Master Tsongkhapa merged the most quiet and complete methods of each school and founded the Gelug School, also known as the Yellow Hat Sect.
+Then, Master Tsongkhapa merged the most pure and complete methods of each school and founded the Gelug School, also known as the Yellow Hat Sect.
 
-Gelugpa's Matou Mingwang, Puba Vajra, and Shanjian Dharma Protector are the inheritance of Nyingma Patriarch Guru Rinpoche; Densely Vajra, Naruo Six Dharma, and Mahamudra are the inheritance of Kagyu Pai; Sanshidao, Guanyin Bodhisattva empowerment, etc. The inheritance of Kadampa; Victory Vajra, Thirteen Golden Dharmas, etc. are the inheritance of Sakya; Kalachakra and more than 300 Sui Xu initiations are the inheritance of Jonang; Therefore, the Gelug School is a great fusion of the methods and traditions of the major sects.
+Gelugpa's Hayagriva Vidyaraja, Vajra-kīlaya, and  Damchen Dorje Legpa Dharma Protector are the inheritance of Nyingma Patriarch Guru Rinpoche; Vajrayana, the Six Dharmas of Naropa, and Mahamudra are the inheritance of Kagyu School; The Three Aspects of the Paths, the Guanyin Bodhisattva empowerment, etc. come from the  Kadampa lineage; Chakrasamvara, The Thirteen Golden Dharmas, etc. are the inheritance of Sakya; Kalachakra and more than 300 Seed Planting initiations are the inheritance of Jonang; Therefore, the Gelug School is a great fusion of the methods and traditions of the major schools.
 
-Everyone should know: Master Tsongkhapa has sixteen incomparable qualities, and the last one is the incomparable creation of a sect.
+Everyone should know: Master Tsongkhapa has sixteen incomparable qualities, and the last one is the incomparable creation of a school.
 
-wWhy do we say so? Before Master Tsongkhapa founded the Gelug Sect, there were many sects in Tibet, large and small, including four major sects and more than ten minor sects.
+wWhy do we say so? Before Master Tsongkhapa founded the Gelug Sect, there were many schools in Tibet, large and small, including four major schools and more than ten minor schools.
 
-After Master Tsongkhapa established the Gelugps School, there has never been any other new sect.
+After Master Tsongkhapa established the Gelugps School, there has never been any other new school.
 
-why is that? Because of the great integration of Buddhist traditions and dharma schools, there is no more splendid dharma than this sect.
+Why is that? Because of the great integration of Buddhist traditions and dharma schools, there is no more splendid dharma than this school.
 
-After Guru Rinpoche established the Nyingma Sect, Venerable Atisha also established the Kadam Sect, because the Nyingma Sect did not have the very special Sanshidao, Avalokitesvara, Sixteen Bright Points, etc., so he established it alone. this school.
+After Guru Rinpoche established the Nyingma School, Venerable Atisha also established the Kadam School, because the Nyingma School did not have the very special Three Aspects of the Path, Avalokitesvara, Sixteen Drops, etc., so he established this school alone.
 
 After the Kadam School, the Kagyu School appeared, because Venerable Atisha did not have some of the Kagyu practices such as Mahamudra, but Master Marpa had these practices. In this way, large and small schools continued to appear.
 
 49
 
-After the establishment of the Gelug faction, no other faction has appeared. Everyone should know this.
+After the establishment of the Gelug alone, no other alone has appeared. Everyone should know this.
 
-At that time, Emperor Yongle of the Ming Dynasty invited Master Tsongkhapa three times. Later, Master Tsongkhapa sent his attendant, Master Shakyamuni, to represent him in China to teach the Dharma.
+At that time, Emperor Yongle of the Ming Dynasty invited Master Tsongkhapa three times. Later, Master Tsongkhapa sent his attendant, Master Deshin Shekpa, to represent him in China to teach the Dharma.
 
-After arriving in Nanjing, the capital at that time, Master Shakyamuni saved Emperor Yongle's mother and gave Emperor Yongle the empowerment of great mighty virtue.
+After arriving in Nanjing, the capital at that time, Master Deshin Shekpa saved Emperor Yongle's mother and bestowed on Emperor Yongle the empowerment of the mystic black crown of Chenrezig.
 
-When the master went to Nanjing, he was accompanied by more than 300 monks. Emperor Yongle conferred nine of them as great masters and eighteen as masters.
+When the master went to Nanjing, he was accompanied by more than 300 monks. Emperor Yongle conferred the title of great masters to nine of them and eighteen as masters.
 
 However, the ministers did not know what to call these gurus. After seeing these gurus, they were called lamas.
 
-Since then, Tibetan monks have become lamas in the Han region, and lama means guru. This is a very good origin for Tibetan Buddhism, and it shows that Tibetan masters can be teachers of Han people.
+Since then, Tibetan monks have been called lamas in the Han region, and lama means guru. This is a very good origin for Tibetan Buddhism, and it shows that Tibetan masters can be teachers of Han people.
 
 Since then, some places in China have called Tibetan Buddhism Lamaism.
 
-In April 1415, the Yongle Emperor ordered Master Shakya Yeshi to be "Miaojue Yuantonghuici Pu Yingfu State's Great Teacher Empowering Hongshan Xitian Buddha Son Great State Master" and gave him a seal.
+In April 1415, the Yongle Emperor gave Master Deshin Shekpa the title "Great Precious Dharma King" and gave him a seal.
 
-After Emperor Yongle died, Emperor Xuande respected the master more than Emperor Yongle and let him live in Xifayuan Temple.
+After Emperor Yongle died, Emperor Xuande respected the master even more than Emperor Yongle and let him live in Xifayuan Temple.
 
-In 1433, Master Shakyamuni was entrusted with the title of "Myriad Elements, Miaoming, Zhenru, and Pure Prajna, Hongzhao, Puying Fuguo, and the Great Kindness of Dharma King Xitian Zhengjue Ru from the Great Yuantong Buddha", referred to as Dharma King of Great Compassion. The Tibetan name is synonymous with Xianqin Qujie.
+In 1433, Master Deshin Shekpa was given the title of "Precious Religious King, Great Loving One of the West, Mighty Buddha of Peace", referred to as Dharma King of Great Compassion. The Tibetan name is synonymous with Xianqin Qujie.
 
 It was also from that time that the emperors of the Ming Dynasty would secretly worship a Tibetan Buddhist master. After several generations of emperors, the secret was made public.
 
-In the Qing Dynasty, the emperor publicly worshipped Tibetan Buddhist monks as his guru. The Shunzhi Emperor summoned the fifth Dalai Lama, but did not worship him as his guru.
+In the Qing Dynasty, the emperor publicly worshipped Tibetan Buddhist monks as his guru. The Shunzhi Emperor summoned the fifth Dalai Lama, but did not take him as his guru.
 
 Emperor Kangxi worshipped the second living Buddha Zhangjia as his guru; Emperor Yongzheng worshiped the second living Buddha Tuguan Ngawang Gyatso as his teacher; Emperor Qianlong worshiped the third living Buddha Zhangjia and the second living Buddha Tuguan as his teachers.
 
-Emperor Qianlong was a very devout Tibetan Buddhist. One year, I visited Qianlong's tomb, Qingyu Mausoleum, in Beijing. The mural above the tomb is an underground Buddhist hall, full of Tibetan scriptures and Tibetan Buddhist statues. .
+Emperor Qianlong was a very devout Tibetan Buddhist. One year, I visited Qianlong's tomb, Yuling Mausoleum, near Beijing. The mural above the tomb is an underground Buddhist hall, full of Tibetan scriptures and Tibetan Buddhist imagery.
 
-Since the Ming and Qing Dynasties, the emperors of all dynasties will worship a Tibetan Buddhist master. Starting from the second and third Zhangjia Living Buddha, Tibetan Buddhism has spread to many places in China.
+Since the Ming and Qing Dynasties, the emperors of all dynasties followed a Tibetan Buddhist master. Starting from the second and third Zhangjia Living Buddha, Tibetan Buddhism has spread to many places in China.
 
-There are several Tibetan Buddhist monasteries in Chengde, Hebei, such as the Little Potala Palace; Wutai Mountain has 32 Tibetan Buddhist monasteries in history, and Beijing also has several Tibetan Buddhist monasteries, and there are still, such as Lama Temple.
+There are several Tibetan Buddhist monasteries in Chengde, Hebei, such as the Little Potala Palace; Wutai Mountain has had 32 Tibetan Buddhist monasteries historically, and Beijing also has several Tibetan Buddhist monasteries, and they are still there, such as Lama Temple.
 
 These monasteries of Tibetan Buddhism in the Han Dynasty are almost all monasteries of the Gelug sect.
 
 51
 
-The right view of the Gelug School is the right view of the Middle Way, which is learned through debating scriptures, paying equal attention to listening, thinking, cultivating, speaking, debating, and emphasizing.
+The right view of the Gelug School is the right view of the Madhyamaka, which is learned through debating scriptures, paying equal attention to listening, thinking, cultivating, speaking, arguing, and focusing.
 
-Hearing: First of all, the Dharma must be learned by listening to the Dharma.
+**Hearing**: First of all, the Dharma must be learned by listening to the Dharma.
 
-As a disciple of the Gelug School, you must first learn the Dharma of the sutras. For an ordinary lama, it takes 15 years to learn through debating scriptures. Those with better skills also need to study for seven or eight years. It takes seven or eight years to learn the tantra method, and it takes more than twenty years in total.
+As a disciple of the Gelug School, you must first learn the Dharma of the sutras. For an ordinary lama, it takes 15 years to learn through debating scriptures. Those with better skills still need to study for seven or eight years. It takes seven or eight years to learn the tantra method, and it takes more than twenty years in total.
 
 Therefore, the monks of the Gelug School are very consummate in their study and reflection.
 
-Contemplation: To practice by thinking.
+**Contemplation**: To practice by thinking.
 
-The more you smell, the deeper and wider your thinking.
+The more you contemplate, the deeper and wider your thinking.
 
-Xiu: The more you hear, the more things you cultivate. If you don’t know the Dharma, you have nothing to cultivate.
+**Study**: The more you hear, the more things you cultivate. If you don’t know the Dharma, you have nothing to cultivate.
 
-Speak: Speak is to speak the scriptures.
+**Recitation**: to recite the scriptures.
 
-Debate: The master of Tibetan Buddhism is like a teacher. He lectures every day, and monks also go to the Debating School to debate and study scriptures every day.
+**Debate**: The master of Tibetan Buddhism is like a teacher. He lectures every day, and monks also go to the Debating School to debate and study scriptures every day.
 
-Writing: Writing is writing books and sayings.
+**Writing**: Writing books and sayings.
 
-Tibetan Buddhism, especially the Gelug School and the Kadam School, must meet three conditions for writing: First, the content to be written must first be transmitted.
+Tibetan Buddhism, especially the Gelug School and the Kadam School, must meet three conditions for writing: 
 
-For example, if you want to write the four additions, you must first have the inheritance of the four additions; secondly, which method to write about, you must thoroughly understand the method; thirdly, when you really write, you must have the encouragement and persuasion of Buddhas and Bodhisattvas. Please, to write.
+1. The content to be written must first be transmitted.
+
+For example, if you want to write about Vajrasattva Practice, you must first have the transmission of the Vajrasattva Practice; 
+
+2. To write about a specific dharma door, you must thoroughly understand the method;
+
+3. When the time comes to write, you must have the encouragement and persuasion of Buddhas and Bodhisattvas before you can write.
 
 For example, when Master Tsongkhapa wrote "The Great Treatise on the Stages of the Path to Enlightenment", all the lineage patriarchs appeared and encouraged Master Tsongkhapa to write it.
 
@@ -1313,7 +1373,7 @@ Manjushri appeared three times in person to encourage Master Tsongkhapa. Under s
 
 Some essential Dharma-doors cannot be written if Buddhas and Bodhisattvas do not allow them to be written.
 
-There are these three conditions to write a book and say it, and you can't write it indiscriminately.
+There are these three conditions to write a book and teach it, and you can't write it indiscriminately.
 
 There are two types of writings, general commentaries on sutras and practice rituals.
 
@@ -1321,7 +1381,7 @@ For example, some ordinary explanations of sutras or tantras can be written by p
 
 However, some rituals cannot be written until they reach the level of Bodhisattva, and they must be cultivated to the level of Bodhisattva before they can be written.
 
-What are the benefits of writing a graded Bodhisattva? The rituals written by the bodhisattvas of the rank contain his vows, the offerings in the rituals, etc. If we do not visualize them, but recite them, these things will also appear in front of the Buddhas and Bodhisattvas.
+What are the benefits of writing at the level of a Bodhisattva? The rituals written by the bodhisattvas of the rank contain his vows, the offerings in the rituals, etc. If we do not visualize them, but just recite them, these things will also appear in front of the Buddhas and Bodhisattvas.
 
 Therefore, until that achievement is reached, one cannot write rituals without that vow. Only Buddhas and Bodhisattvas can write them, and ordinary people cannot.
 
@@ -1329,35 +1389,35 @@ Listening, thinking, cultivating, lecturing, debating, and writing are the tasks
 
 There are also differences between Tibetan and Chinese translations.
 
-There have been 723 translators in Tibetan history, and the classics translated by these 723 translators are all the same, and there are few different versions.
+There have been 723 translators in Tibetan history, and the classics translated by these 723 translators are all the same, and there are few differences in the versions.
 
-But the Chinese are different. For example, there were eleven versions of the Heart Sutra, and now there are seven versions, which were translated by seven masters.
+But the Chinese translations are different. For example, there were eleven versions of the Heart Sutra, and now there are seven versions, which were translated by seven masters.
 
-Xuanzang's translation, Kumarajiva's translation, Fayue's translation, etc., the texts are different.
+Xuanzang's translation, Kumarajiva's translation, Fayue's translation, etc. The texts are different.
 
-Tibetan Buddhism has also translated the Heart Sutra. How did they translate it? For example, suppose Master Kumarajiva is a translator in Tibet. After he translated the first one, Master Xuanzang read it. If he found any defects, Xuanzang could only make a supplementary translation, not another version. The translations are all the same.
+Tibetan Buddhism also has translations the Heart Sutra. How did they translate it? For example, suppose Master Kumarajiva is a translator in Tibet. After he translated the first one, Master Xuanzang read it. If he found any defects, Xuanzang could only make a supplementary translation, not another version. The translations end up being all the same.
 
-Let's take another example of the "Praise of Tara". If the "Praise of Tara" in the Tibetan area was translated by ten translators, the first translator finished the translation, and after a period of time, the second translator would check to see if there are any omissions, whether the expression is clear, and if there are problems, add them. After adding, the original text is not allowed to be translated again. It must be placed in the tower and no longer circulated. After that, no further changes were made.
+Let's take another example of the "Praise of Tara". If the "Praise of Tara" in the Tibetan area was translated by ten translators, the first translator finished the translation, and after a period of time, the second translator would check to see if there are any omissions, whether the expression is clear, and if there are problems, correct them. After adding, the original text is not allowed to be translated again. It must be placed in the tower and no longer circulated. After that, no further changes were made.
 
-In the past, in Tibet, such as Samye Monastery and Sakya Monastery, had scripture translation institutes with many translators and panditas.
+In the past, in Tibet, places like Samye Monastery and Sakya Monastery, had scripture translation institutes with many translators and panditas.
 
-Moreover, the translator in the Tibetan area must be translated by two people, an Indian Pandit and a translator from the Tibetan area.
+Moreover, the translation in the Tibetan area must be done by two people, an Indian Pandit and a translator from the Tibetan area.
 
 54
 
-Pandit in India must be proficient in Tibetan, and translators in Tibetan areas must be proficient in Sanskrit.
+Pandit from India must be proficient in Tibetan, and translators in Tibetan areas must be proficient in Sanskrit.
 
-After they have translated, they will hand it over to the Translation Institute. If there are a hundred panditas in the translation agency, everyone must read the hundred panditas. When they find any flaws, they will find these two translators together. For the revision, two translators and Pandit worked together to translate it. After the revision was completed, everyone took turns to read it several times, and only after passing it all could it be sent out.
+After they have translated, they will hand it over to the Translation Institute. If there are a hundred panditas in the translation agency, every one of them must read the translation. When they find any flaws, they will find these two translators together. For the revision, both translators and Pandit worked together to translate it. After the revision was completed, everyone took turns to read it several times, and only after passing all this scrutint could it be sent out.
 
-The translation in Tibetan areas is like this, so the translations of scriptures in Tibetan areas are almost always the same version.
+Translation in Tibetan areas is like this, so the translations of scriptures in Tibetan areas are almost always the same version.
 
 There are no different versions, and this is what makes Tibetan translation of scriptures so special.
 
-As mentioned earlier, Nalanda Temple in India  was destroyed by fire in 1193. Many great siddhas and masters fled to Tibet, and they brought a lot of Sanskrit scriptures with them.
+As mentioned earlier, Nalanda Temple in India was destroyed by fire in 1193. Many great siddhas and masters fled to Tibet, and they brought a lot of Sanskrit scriptures with them.
 
-The translation institutes in Tibetan areas continue to translate, every year, every Sanskrit text.
+The translation institutes in Tibetan areas continue to translate, every year, all of the Sanskrit texts.
 
-Up to now, there are still many Sanskrit scriptures in Tibet that have not been translated. Unfortunately, a lot of them were destroyed during the Cultural Revolution.
+So far, there are still many Sanskrit scriptures in Tibet that have not been translated. Unfortunately, a lot of them were destroyed during the Cultural Revolution.
 
 Since the establishment of Buddhism, the development in ancient India is mainly divided into four periods, namely the period of primitive Buddhism, the period of tribal Buddhism, the period of Mahayana Buddhism, and the period of Tantra.
 
@@ -1369,15 +1429,15 @@ In the early days of Mahayana Buddhism in ancient India, there were many scriptu
 
 Since the middle period of Mahayana Buddhism in ancient India, there have been many works on the interpretation of Buddhist scriptures.
 
-For example, these masters such as Nagarjuna, Asanga, etc. were all masters in the middle stage of Mahayana Buddhism, and these masters wrote a lot of commentaries on Buddhist scriptures.
+For example, masters such as Nagarjuna, Asanga, etc. were all masters in the middle stage of Mahayana Buddhism, and these masters wrote a lot of commentaries on Buddhist scriptures.
 
 In the late period of Mahayana Buddhism in ancient India, there were more great siddhas.
 
-For example, Chandrakirti Bodhisattva, Chen Na Bodhisattva, Dharma Bodhisattva, etc., were all masters in the late period of Mahayana Buddhism, and more theories on the interpretation of scriptures were published during this period.
+For example, Chandrakirti Bodhisattva, Dignāga Bodhisattva, Dharmakirti Bodhisattva, etc., were all masters in the late period of Mahayana Buddhism, and more theories on the interpretation of scriptures were published during this period.
 
-Chinese Buddhism has a history of more than 2,100 years. When Buddhism entered China, it was the early stage of Mahayana Buddhism in ancient India.
+Chinese Buddhism has a history of more than 2,100 years. When Buddhism entered China, it was in the early stage of Mahayana Buddhism in ancient India.
 
-Therefore, Chinese Buddhism began to translate classics in the early days of Mahayana Buddhism in ancient India. When it came to the middle and late stages of Mahayana Buddhism in ancient India, the masters in the Chinese believed that the scriptures and discussions of Mahayana Buddhism had all been translated satisfactorily. The translation also stopped.
+Therefore, Chinese Buddhism began to translate classics in the early days of Mahayana Buddhism in ancient India. When it came to the middle and late stages of Mahayana Buddhism in ancient India, the masters in China believed that the scriptures and discussions of Mahayana Buddhism had all been translated satisfactorily. So the translation also stopped.
 
 When the translation of Chinese scriptures stopped, Buddhism had just entered Tibet.
 
@@ -1391,7 +1451,7 @@ It was at that time that Tibetan Buddhism translated the Tripitaka.
 
 The Tripitaka of Tibetan Buddhism is divided into Kangyur and Tengyur. The content of Kangyur is mainly the original Buddhist classics, including the Sutras and Vinayas of the Sutras and Tantras.
 
-"Tengyur" is a commentary on Buddhist scriptures and tantras, and is a collection of Buddhist language interpretations and expositions by the later disciples of Buddha Shakyamuni.
+"Tengyur" is a collection of commentaries on Buddhist scriptures and tantras, and is a collection of Buddhist language interpretations and expositions by the later disciples of Buddha Shakyamuni.
 
 What is the most complete translation of Tibetan Buddhism? 
 
@@ -1403,34 +1463,34 @@ Since the translation of Chinese Buddhism was in the early period of Mahayana Bu
 
 As for the Madhyamika, there are only the treatises of Nagarjuna and his disciples, such as the "Four Hundred Verses" of the Madhyamika.
 
-However, without the writings of the masters of the late Mahayana School of Mahayana Buddhism in ancient India, such as the works of the Bodhisattva Chandrakirti, they were not translated into Chinese, because the translation of scriptures had stopped at that time.
+However, without the writings of the masters of the late Mahayana School of Mahayana Buddhism in ancient India, such as the works of the Bodhisattva Chandrakirti, they were not translated into Chinese, because the translation of scriptures had stopped by then.
 
-These Madhyamika writings by Chandrakirti Bodhisattva represent the views of the Madhyamika school, and the Madhyamika writings and interpretations of the Master of Discrimination and Nagarjuna represent the Madhyamika Self-Continuing School.
+These Madhyamika writings by Chandrakirti Bodhisattva represent the views of the Madhyamika school, and the Madhyamika writings and interpretations of Bhavaviveka and Nagarjuna represent the Madhyamika Svātantrika School.
 
 These are not found in the Tripitaka of Chinese Buddhism.
 
-Chen Na and Dharmakirti said that the two commentators were the representatives of the "Shi Liang Lun" in the late period of Mahayana Buddhism in ancient India, but there is no work of these two scholars in the "Tripitaka" in Chinese.
+Dignaga and Dharmakirti said that the two commentators were the representatives of the "Pramāṇavārttika" in the late period of Mahayana Buddhism in ancient India, but there is no work of these two scholars in the "Tripitaka" in Chinese.
 
 57
 
 Therefore, Tibetan Buddhism discusses this aspect in the Buddhist Dharma of the Tripitaka, and it is very complete.
 
-12. Dharma Doors Common to All Sects
+##### 12. Dharma Doors Common to All Schools
 
-The above describes the founders and main dharmas of the major sects of Tibetan Buddhism, as well as the Dharma practiced by the major sects.
+The above describes the founders and main dharmas of the major schools of Tibetan Buddhism, as well as the Dharma practiced by the major schools.
 
-All sects have common methods, and there are also different methods. There are many different methods, and I can’t finish talking about them in a month. Now let’s talk about the methods that are common to all sects.
+All schools have common methods, and there are also different methods. There are many different methods, and it would take me a month to talk about all of them. Now let’s talk about the methods that are common to all schools.
 
-The common method is the three scopes: the lower, the middle, and the upper.
+The common method is the three scopes or three aspects of the path: the lower, the middle, and the upper.
 
-It can be said that the essence of the 84,000 Dharma-doors is concentrated in the three scopes. Many people do not know the order of cultivation. Which one should be cultivated first and which one should be cultivated later. Master the Three Principal Aspects of the Path.
+It can be said that the essence of the 84,000 Dharma-doors is concentrated in the three scopes. Many people do not know the order of training. What should be cultivated first and what one should be cultivated later. Master the Three Principal Aspects of the Path in the correct order from lower to upper.
 
-This is the order of practice, and all sects are the same.
+This is the order of practice, and all schools are the same.
 
-Section 2 - Features of Tibetan Buddhism
+**Section 2 - Features of Tibetan Buddhism**
 
 
-Tibetan Buddhism has five characteristics: complete teaching, complete inheritance, complete practice, complete preservation, and complete teaching.
+Tibetan Buddhism has five characteristics: complete teaching, complete lineage, complete practice, complete preservation, and complete teaching.
 
 58
 
@@ -1438,40 +1498,40 @@ Tibetan Buddhism has five characteristics: complete teaching, complete inheritan
 
 The first characteristic of Tibetan Buddhism is that the teachings are complete.
 
-why do you say so? The Dharma of Tibetan Buddhism is divided into three parts: the Dharma of Theravada, the Dharma of the Mahayana Sutra, and the Dharma of the Mahayana Tantra.
+Why do we say so? The Dharma of Tibetan Buddhism is divided into three parts: the Dharma of Theravada, the Dharma of the Mahayana Sutra, and the Dharma of the Mahayana Tantra.
 
-The most complete Theravada Buddhism is the Southern Buddhism; the most complete Mahayana Buddhism is the Chinese Buddhism; the Mahayana, Tantric, and Theravada methods are all relatively complete is Tibetan Buddhism.
+The most complete Theravada Buddhism is the Southern Buddhism; the most complete Mahayana Buddhism is the Chinese Buddhism; the Mahayana, Tantric, and Theravada methods are all relatively complete in Tibetan Buddhism.
 
-Because Tibetan Buddhism is a combination of esoteric and esoteric, the external practice of Theravada, the internal practice of Mahayana, and the second of the Tantric Buddhism.
+Because Tibetan Buddhism is a combination of exoteric and esoteric, the external practice of Theravada, the internal practice of Mahayana, and the second class of the Tantric Buddhism.
 
-Therefore, to learn Tibetan Buddhism, one must first learn the Theravada method. In the Theravada method, the thirty-seven path and the precepts of not liberation must be studied in detail.
+Therefore, to learn Tibetan Buddhism, one must first learn the Theravada method. In the Theravada method, the thirty-seven qualities (bodhipakṣa dharma)and the precepts of renunciation and liberation of others must be studied in detail.
 
-The most essential things in all the Theravada Buddhism are included, plus the perfect practice of Sutra and Tantra. Therefore, the first characteristic of Tibetan Buddhism is the perfection of teaching methods.
+The most essential things in all of Theravada Buddhism are included, plus the perfect practice of Sutra and Tantra. Therefore, the first characteristic of Tibetan Buddhism is the perfection of teaching methods.
 
-In Chinese Buddhism, the teachings of the Xian sect are very complete, but there is no esoteric method; in Southern Buddhism, the teaching method of Theravada is very complete, but there is no Mahayana method, and there is no tantric method.
+In Chinese Buddhism, the teachings of the Mahayana school are very complete, but there is no esoteric method; in Southern Buddhism, the teaching method of Theravada is very complete, but there is no Mahayana method, and there is no tantric method.
 
 59
 
-2. the inheritance is complete
+2. The lineage is complete
 
 
-The second characteristic of Tibetan Buddhism is the complete inheritance. Tibetan Buddhism has five major inheritances: initiation, guidance, oral transmission, secret formulas, and precepts.
+The second characteristic of Tibetan Buddhism is the unbroken lineage. Tibetan Buddhism has five major lineages: initiation, guidance, oral transmission, secret mantras, and precepts.
 
-Buddhism has its inheritance regardless of southern, Tibetan, and Chinese traditions.
+Buddhism has its lineage regardless of whether it is Southern, Tibetan, or Chinese traditions.
 
 But Buddhism has gone through many trials and tribulations, and many traditions have been broken.
 
-Especially in Chinese Buddhism, at the end of the Tang Dynasty, Emperor Wu of Tang destroyed the Fa three times, and there were several eradications of the Fa in other dynasties. There should be four or five times.
+Especially in Chinese Buddhism, at the end of the Tang Dynasty, Emperor Wu of Tang destroyed the Dharma three times, and there were several eradications of the Dharma in other dynasties. There were four or five times that this happened.
 
-The Tibetan area also experienced a method of annihilation, that is, the annihilation of King Langdama.
+The Tibetan area also experienced persecution, that is, the annihilation of King Langdarma.
 
-Many lineages were broken, and only some of them survived. After that, many eminent monks and great virtues, such as Rinchen Sampo in Tibet, took the scriptures from India again and restored the lineage.
+Many lineages were broken, and only some of them survived. After that, many eminent monks and great virtues, such as Rinchen Sampo in Tibet, brought the scriptures from India again and restored the lineage.
 
-Venerable Atisha was invited again, and the inheritance was not greatly affected, but it was preserved.
+Venerable Atisha was invited again, and the linegae was not greatly affected, but it was preserved.
 
-Although Tibetan Buddhism also went through the era of the Cultural Revolution, the Cultural Revolution caused great damage to Tibetan Buddhist monasteries, but the inheritance had no effect.
+Although Tibetan Buddhism also went through the era of the Cultural Revolution, the Cultural Revolution caused great damage to Tibetan Buddhist monasteries, but had no effect on the lineage.
 
-During the Cultural Revolution, many masters in Tibetan areas went into caves, or hid in their family’s homes. For example, one of the seven masters I worshiped, Master Lobsang Dorje, was protected by the village without his cassocks. take off.
+During the Cultural Revolution, many masters in Tibetan areas went into caves, or hid in the homes of laypeople. For example, one of the seven masters I studied with, Master Lobsang Dorje, was protected by a village without having to take off his monk's robes.
 
 60
 
@@ -1479,27 +1539,27 @@ Another master, Master Gazang Qusong, was also protected by a village.
 
 Dharma King Yeshe Gyatso was hiding in a cave, and people surreptitiously brought him meals.
 
-In the 1980s, they were invited out by the villagers one by one, which had no effect on the inheritance.
+In the 1980s, they were invited out by the villagers one by one, and so had no effect on the inheritance.
 
 We were very lucky. When I was studying at Ta'er Monastery in the 1980s, there were a lot of eminent monks and great virtues.
 
-At that time, there were hundreds of eminent monks to choose from, and one could choose to worship this or that as a teacher.
+At that time, there were hundreds of eminent monks to choose from, and one could choose to follow this or that guru as one's teacher.
 
 This is not the case anymore. There are very few recognized great virtues in Tibetan areas.
 
 There are two other teachers in Labrang Monastery, Master Huadan and Master Jiayang Gyatso. Master Jiayang Gyatso is the teacher of the 11th Panchen Lama. These two masters are recognized as eminent monks and great virtues.
 
-Tibetan Buddhism has the characteristics of complete inheritance, first of all, the complete inheritance of precepts.
+Tibetan Buddhism has the characteristics of complete lineage, and most importantly, the complete lineage of precepts.
 
-There are three major precepts in Buddhism: the precepts of no liberation, the precepts of bodhisattvas, and the precepts of tantra.
+There are three major precepts in Buddhism: the precepts of renunciation, the precepts of Bodhisattvas, and the precepts of tantra.
 
-The Hinayana only has the precepts of different liberation. The Chinese tradition has the precepts of different liberation and the Bodhisattva. The Tibetan tradition adds a tantric precept on the basis of these two precepts. The inheritance of the three precepts is very complete.
+The Hinayana only has the precepts of solitary liberation. The Chinese tradition has the precepts of other liberation and the Bodhisattva path. The Tibetan tradition adds a tantric precept on the basis of these two precepts. The inheritance of the three precepts is very complete.
 
-The second is the success of oral inheritance.
+The second is the success of oral transmission.
 
-For example, in the Tibetan Tripitaka, we all have oral transmissions, and the inheritance has never been interrupted.
+For example, in the Tibetan Tripitaka, we all have oral transmissions, and the transmission has never been interrupted.
 
-An oral tradition is passed on from the master to the disciple. Every day the master and the disciple face each other, the master reads it every day, and the disciple listens every day.
+An oral tradition is passed on from master to disciple. Every day the master and the disciple face each other, the master reads to him every day, and the disciple listens every day.
 
 The inheritance of sermons and empowerments is complete.
 
@@ -1509,21 +1569,21 @@ There is a difference between those who have an inheritance and those who do not
 
 Masters who do not have a lineage teach the "Heart Sutra" using their own wisdom. When a master who has a lineage teaches the Sutra, whatever the lineage Patriarch says, he does what he says, and he doesn't add his own understanding.
 
-I have worshipped seven masters, and these seven masters were all disciples of the same master.
+I have served and followed seven masters, and these seven masters were all disciples of the same master.
 
-In front of five of them, I received the lineage of "The Extensive Treatise on the Stages of the Path to Bodhi", because they are all disciples of the same master, and they talk about the same thing, and even the examples are the same. .
+In front of five of them, I received the lineage of "The Great Treatise on the Stages of the Path to Enlightenment". Because they are all disciples of the same master, and they talk about the same thing, even the examples are the same.
 
 3. Perfection of practice
 
 The third characteristic of Tibetan Buddhism is the perfection of practice.
 
-Southern Buddhism cultivates the precepts for liberation and the thirty-seven path.
+Southern Buddhism cultivates the precepts for self liberation and the thirty-seven qualities.
 
-Chinese Buddhism cultivates the precepts of separation and liberation, the precepts of Bodhisattva, compassion, bodhicitta, and six degrees of perfection.
+Chinese Buddhism cultivates the precepts of renunciation and liberation, the precepts of Bodhisattva, compassion, bodhicitta, and six degrees of perfection.
 
-Tibetan Buddhism practice is relatively complete: the external practice of the Hinayana method, the internal practice of the Mahayana Sutra method and the Tantric practice of the four tantras, and the practice of the three vehicle precepts of Biejie, Bodhisattva and Tantric.
+Tibetan Buddhism practice is relatively complete: the external practice of the Hinayana method, the internal practice of the Mahayana Sutra method and the Tantric practice of the four classes of tantra, and the practice of the three vehicle precepts of Renunciation, Bodhisattva and Tantric.
 
-4. the preservation is complete
+4. Preservation is complete
 
 The fourth characteristic of Tibetan Buddhism is complete preservation.
 
@@ -1531,13 +1591,13 @@ Buddhism is very inclusive. No matter which religion or ethnic group you are wit
 
 When Buddhism spread to Southeast Asian countries, all countries integrated their own culture into Buddhism, and Buddhism was more or less influenced by local culture.
 
-When Buddhism was introduced to the Han, the Taoism and Confucian culture in the Han were also very prosperous. People integrated Buddhism with Taoism and Confucianism. Therefore, Buddhism itself will also be affected to some extent.
+When Buddhism was introduced to China, Taoism and Confucianism in China were also very prosperous. People integrated Buddhism with Taoism and Confucianism. Therefore, Buddhism itself was also affected to some extent.
 
-When Buddhism was introduced to Tibetan areas, there was no written language and no special culture was formed in Tibet, so Tibetan culture was formed on the basis of mature Buddhism.
+When Buddhism was introduced to Tibetan areas, there was no written language and no special culture had formed in Tibet, so Tibetan culture was formed on the basis of mature Buddhism.
 
 Likewise, Tibetan is also formed on the basis of Sanskrit.
 
-Therefore, Tibetan Buddhism has preserved the teachings of Buddha Shakyamuni more than 2,500 years ago in their original form. This is the fourth characteristic of Tibetan Buddhism.
+Therefore, Tibetan Buddhism has preserved the teachings of Buddha Shakyamuni of more than 2,500 years ago in their original form. This is the fourth characteristic of Tibetan Buddhism.
 
 63
 
@@ -1545,27 +1605,27 @@ Therefore, Tibetan Buddhism has preserved the teachings of Buddha Shakyamuni mor
 
 The courses of Buddhist study include sutras, tantras, and treatises. The Theravada scriptures and sutras taught by the Buddha himself are called sutras, and the tantra scriptures are called tantras.
 
-The interpretations of Buddhist scriptures and tantras by bodhisattvas or Mahasiddhas are called sutras.
+The interpretations of Buddhist scriptures and commentaries by bodhisattvas or Mahasiddhas are called tantras.
 
 There are more Buddhist scriptures directly studied in Southern and Chinese Buddhism.
 
-Tibetan Buddhism generally studies the sutras first, and then the sutras, because the content of the sutras is very deep and broad, and it is easier to understand the content of the sutras after studying the sutras.
+Tibetan Buddhism generally studies the sutras first, and then the tantras, because the content of the sutras is very deep and broad, and it is easier to understand the content of the tantras after studying the sutras.
 
-Tibetan Buddhism mainly studies the Five Great Treatises, "The Broad Theory of the Bodhi Path", "The Broad Theory of the Tantric Path" and so on.
+Tibetan Buddhism mainly studies the Five Great Treatises, "The Great Treaise on the Stages of the Path of Enlightenment", "The Great Treaise on the Stages of the Tantric Path" and so on.
 
-A treatise contains a lot of sutras, and if you study a treatise well, you will learn a lot of sutras well.
+A treatise contains a lot of sutras, and if you study a treatise well, you will learn a lot of sutras too.
 
-Therefore, Tibetan Buddhism advocates studying the theory first, then studying the scriptures, and then studying the continuum.
+Therefore, Tibetan Buddhism advocates studying the theory first, then studying the scriptures, and then studying the tantras.
 
-Tibetan Buddhism has the five perfections, the inheritance is pure, the sequence is complete, and at the same time, it integrates the essence of 84,000 methods. Therefore, it can cure the 84,000 kinds of troubles of modern people, and it is very suitable for lay people to practice.
+Tibetan Buddhism has the five perfections, the inheritance is pure, the sequence is complete, and at the same time, it integrates the essence of 84,000 methods. Therefore, it can cure the 84,000 kinds of afflictions of modern people, and it is very suitable for lay people to practice.
 
-The third section of Tibetan Buddhism and Tantric Tibetan Buddhism is a combination of esoteric and esoteric.
+Section 3 - Tibetan Buddhism and Tantric Tibetan Buddhism is a combination of exoteric and esoteric.
 
 The Sutra method says:
 
 64
 
-Renunciation, Bodhicitta, and Six Paramitas are the five paths and ten bhumis of the Bodhisattva Way; there are four tantric practices in tantra: the action tantra, performance tantra, yoga tantra, and supreme yoga. The combination of the two teachings of exoteric and esoteric is Tibetan Buddhism.
+Renunciation, Bodhicitta, and Six Paramitas are the five paths and ten bhumis of the Bodhisattva Way; there are four tantric practices in tantra: the action tantra, performance tantra, yoga tantra, and supreme yoga. Tibetan Buddhism is the combination of the two teachings of sutra and tantra.
 
 Tantra believes that man and nature are one.
 
@@ -1583,49 +1643,49 @@ For example, the earth is our flesh; water is the blood that flows through us; h
 
 How are the earth, water, fire, and wind outside the body connected with the earth, water, fire, and wind inside the body? 
 
-How to absorb the energy of earth, water, fire, and wind from the outside into the energy of earth, water, fire, and wind in the body? How to balance it? Esoteric Law is about how the inner and outer universes are combined. Esoteric Buddhism is probably such a concept.
+How to absorb the energy of earth, water, fire, and wind from the outside into the energy of earth, water, fire, and wind in the body? How to balance it? Tantra is about how the inner and outer universes are combined. Tantric Buddhism is such a concept.
 
 65
 
-There are four secrets.
+There are four classes of tantra.
 
-In the past, Chinese Buddhism also had Tantra. During the Tang Dynasty, Chinese Buddhism was divided into eight sects, among which was the Tantra founded by Master Bukong.
+In the past, Chinese Buddhism also had Tantra. During the Tang Dynasty, Chinese Buddhism was divided into eight sects, among which was the Tantra founded by Master Amoghavajra.
 
-The Han Tradition of Tantra is mainly the first level of the four classes of the Tibetan Tradition of Tantra. What methods are there in this level? For example, Vajra Vajra and Mahakala, these belong to the tantric practices of Chinese Buddhism, and Tibetan Buddhism also has these practices.
+The Han Tradition of Tantra is mainly the first level of the four classes of the Tibetan Tradition of Tantra. What methods are there in this level? For example, Vajra Krodha Mahābala (Ucchusma) and Mahakala, these belong to the tantric practices of Chinese Buddhism, and Tibetan Buddhism also has these practices.
 
 The content of Tibetan Buddhism is the combination of sutra and tantra, with equal emphasis on both.
 
-Therefore, when we study and cultivate, we must first learn the Dharma of the Mahayana sect, and then practice the Dharma of the Tantric sect. The study of Tibetan Buddhism is like this.
+Therefore, when we study and meditate, we must first learn the Dharma of the Mahayana school, and then practice the Dharma of the Tantric school. The study of Tibetan Buddhism is like this.
 
 66
 
-Chapter 5 "Changing Sutras" Overview
+##### Chapter 5 - "Chanting Sutras" Overview
 
-Section 1 The purpose and order of learning Buddhism
+**Section 1 - The purpose and order of learning Buddhism**
 
 First, we must understand the purpose of learning Buddhism.
 
-There are different purposes for studying Buddhism. Some people study Buddhism in order to be reborn in a pure land in the next life, some people in order to obtain the fruit of human and heaven in the next life, some people are for liberation in this life, and some people study Buddhism in order to become a Buddha. There are many different purposes.
+There are different purposes for studying Buddhism. Some people study Buddhism in order to be reborn in a pure land in the next life, some people in order to obtain the fruit of heavenly gods in the next life, some people aim for liberation in this life, and some people study Buddhism in order to become a Buddha. There are many different purposes.
 
-However, whether it is liberation or becoming a Buddha, one must cultivate step by step.
+However, whether it is liberation or becoming a Buddha, one must practice step by step.
 
-Learning Buddhism and cultivating need to have a sequence, and a sequence that can be achieved, and sequence is very important.
+Learning Buddhism and practicing need to have a sequence, and a sequence that can be achieved, and sequence is very important.
 
 If there is no sequence, there can be no achievement.
 
-If there is a step-by-step practice, first, it can eliminate the disobedience. On the way to becoming a Buddha, there are few obstacles, peace, and health.
+If there is a step-by-step practice, first of all, it can eliminate the unfavourable conditions. On the way to becoming a Buddha, there are few obstacles, peace, and health.
 
-Second, you can accumulate good fortune, eliminate karma, and even achieve something.
+Second, you can accumulate good merit, eliminate karma, and even achieve something.
 
-Without orderly cultivation, you can only accumulate a little fortune and eliminate a little karma, and there will be no achievement.
+Without orderly cultivation, you can only accumulate a little merit and eliminate a little karma, and there will be no achievement.
 
 67
 
 You will not cut off your afflictions, you will not achieve renunciation, you will not develop bodhicitta.
 
-If there is a stage of practice, no matter whether it is a lay person or a monk, it will be successful.
+If there is a stage of practice, no matter whether you are a lay person or a monk, you will be successful.
 
-In the past, in the history of Tibetan Buddhism, there were many achievements in the life of the lay family. For example, the master of the Kadam school, Dromtonpa, became a Buddha in his life; Buddha.
+In the past, in the history of Tibetan Buddhism, there were many achievements in the lives of householders. For example, the master of the Kadam school, Dromtonpa, became a Buddha in his lifetime.
 
 The great siddhi master Marpa of the Kagyu sect was also a householders. Of the five Sakya Patriarchs, except for two who were monks, the other three were householders.
 
@@ -1633,47 +1693,47 @@ So, householders can also be successful.
 
 Now, many lay people feel that they have no hope of achieving success in our practice at home, we just recite the Buddha's words, get some blessings, and eliminate karma.
 
-This kind of thinking is wrong, don’t be so desperate, all lay disciples can achieve, and even become Buddhas.
+This kind of thinking is wrong, don’t be so pessimistic, all lay disciples can achieve liberation, and even become Buddhas.
 
-Everyone should know the concept of achievement. If you get renunciation, you will be considered an achievement. If you have obtained bodhicitta, it will be considered an achievement. Anyone who has achieved the right path, such as the five paths of Buddhism, the path of accumulation, the path of joining, the path of seeing, the path of meditation, and the path of no-more-learning, entering even one of the paths can be said to be an achievement.
+Everyone should know the concept of achievement. If you attain renunciation, that can be considered an achievement. If you have developed bodhicitta, that can also be considered an achievement. Anyone who has achieved the right path, such as the five paths of Buddhism, the path of accumulation, the path of joining, the path of seeing, the path of meditation, and the path of no-more-learning, entering even one of the paths can be said to be an achievement.
 
 However, to achieve success, you must practice step by step.
 
-For example, to build a high-rise building, the first and second floors must be built first. It is impossible to build a building without this order, so the order is very important.
+For example, to build a high-rise building, the first and second floors must be built first. It is impossible to build without this order, so the order is very important.
 
 68
 
-Some people ask: Isn't it said that there are people who put down the butcher's knife and become a Buddha on the spot, and then achieve and become a Buddha right away? There are such people, but who is this kind of person? It refers to the merit accumulated in previous lives.
+Some people ask: Isn't it said that there are people who put down the butcher's knife and become a Buddha on the spot, and then achieve and become a Buddha right away? There are such people, but who is this kind of person? It depends on the merit accumulated in previous lives.
 
 For example, if you have attained the Path of Accumulation in your previous life, you don’t need to practice the Path of Accumulation in this life, you can start from the Path of Joining, and this kind of disciple can achieve enlightenment right now.
 
 Ninety-nine percent of lay disciples today are not such disciples, they are ordinary people among ordinary people. They must take it step by step, and not think about achieving and becoming enlightened all at once. There is no possibility of this.
 
-Step by step, you will definitely get it, such as climbing a mountain, you must climb step by step!
+Step by step, you will definitely get it, just like climbing a mountain, you must climb step by step!
 
 According to Master Tsongkhapa's "Great Treatise on the Stages of the Path of Enlightenment" or "A Brief Treatise on the Stages of the Path to Enlightenment", first practice the path of the lower scope, then the path of the middle scope, then the path of the upper scope, and then enter the second stage of Tantric Buddhism, and then Becoming a Buddha is such a sequence.
 
-In the simplest terms, the order is two: the first, to cultivate the renunciation of the world; the second, to cultivate beyond the world.
+In the simplest terms, the order is two: the first, to cultivate the renunciation of the world; the second, to cultivate transcendence of the world.
 
-This is two processes and two times.
+These are two processes and two times.
 
-The first step is to cultivate the consummation of the world.
+The first step is to cultivate perfection in the world.
 
-What does the perfection of the world mean? It is the Seven Virtues of Humanity and Heaven that are pursued by the clergy.
+What does the perfection in the world mean? It is the Seven qualities of birth in higher realms that are pursued by the lower scope.
 
 69
 
-The seven virtues of man and nature are: a healthy life, a long life, a wealthy life, a solemn life, a persuasive life, a wise life, and a loving life.
+The Seven qualities of birth in higher realms are: freedom from ill-health, a long life, good fortune, a beautiful form, high birth, great riches, and great wisdom.
 
 If one cultivates such a consummate life in this world, the accumulation of good fortune will be very fast.
 
-A single sentence can call on many people to recite the Buddha and accumulate blessings.
+A single sentence can call on many people to recite the Buddha and accumulate merit.
 
-In other words, if you can achieve the seven virtues of human beings and heaven, accumulate good fortune, and eliminate karmic obstacles quickly.
+In other words, if you can achieve the Seven qualities of birth in higher realms, accumulate good fortune, and eliminate karmic obstacles quickly.
 
-From the perspective of us Buddhists, the Panchen Lama of the past dynasties is a life with the seven virtues of man and nature.
+From the perspective of us Buddhists, the Panchen Lama of the past dynasties is a life with the Seven qualities of birth in higher realms.
 
-There are many other masters who also possess the seven virtues of human and heaven, which is very important.
+There are many other masters who also possess the Seven qualities of birth in higher realms, which is very important.
 
 We must first know that learning Buddhism requires a healthy body.
 
@@ -1695,21 +1755,21 @@ Wealth is needed in the beginning.
 
 70
 
-When I first started learning Buddhism, I didn't have the wisdom to open up, and I didn't have the power to meditate. There was wealth that could be used to accumulate blessings.
+When I first started learning Buddhism, I didn't have the wisdom to open up, and I didn't have the power to meditate. There was wealth that could be used to accumulate merit.
 
-For example, building a Buddha statue with one's own wealth can accumulate great blessings.
+For example, building a Buddha statue with one's own wealth can accumulate great merit.
 
-Making offerings to a collective practice center can also accumulate great blessings. Therefore, we need wealth to study Buddhism.
+Making offerings to a collective practice center can also accumulate great blesmeritsings. Therefore, we need wealth to study Buddhism.
 
-There is a little difference between Tantra and Mahayana. Tantric practice is joyful cultivation, and Mahayana is penance. Therefore, Tantric does not exclude wealth.
+There is a little difference between Tantra and Mahayana. Tantric practice is joyful cultivation, and Mahayana is penance. Therefore, Tantra does not exclude wealth.
 
-The secret law talks about the five gods of wealth: white god of wealth, yellow god of wealth, red god of wealth, black god of wealth, green god of wealth, why are there so many gods of wealth? We cultivators need wealth, so the Buddha also talked about these Gods of Wealth and the Dharma Doors of these Gods of Wealth.
+The secret mantra talks about the five gods of wealth: white god of wealth, yellow god of wealth, red god of wealth, black god of wealth, green god of wealth, why are there so many gods of wealth? We cultivators need wealth, so the Buddha also talked about these Gods of Wealth and the Dharma Doors of these Gods of Wealth.
 
-To study Buddhism requires a solemn appearance.
+To study Buddhism requires a beautiful form.
 
-If you reach the point of transcending the world, it doesn't matter whether your appearance is dignified or not, but when you start cultivating the perfection of the world, you still need a dignified appearance.
+If you reach the point of transcending the world, it doesn't matter whether your appearance is beautiful or not, but when you start cultivating the perfection of the world, you still need a dignified appearance.
 
-Therefore, the Medicine Buddha made twelve vows, one of which is "to look like a dignified being with me", which is to hope that the appearance of all living beings will become as solemn as Buddhas and Bodhisattvas.
+Therefore, the Medicine Buddha made twelve vows, one of which is "to look like a dignified being with me", which is to hope that the appearance of all living beings will become as beautiful as Buddhas and Bodhisattvas.
 
 When Venerable Atisha came to Tibet, many great masters in Tibet went to greet him. Among them was a Master named Keton, who had a very solemn appearance.
 
