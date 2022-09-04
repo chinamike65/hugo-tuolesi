@@ -1769,7 +1769,7 @@ To study Buddhism requires a beautiful form.
 
 If you reach the point of transcending the world, it doesn't matter whether your appearance is beautiful or not, but when you start cultivating the perfection of the world, you still need a dignified appearance.
 
-Therefore, the Medicine Buddha made twelve vows, one of which is "to look like a dignified being with me", which is to hope that the appearance of all living beings will become as beautiful as Buddhas and Bodhisattvas.
+Therefore, the Medicine Buddha made twelve vows, one of which is "The sixth great vow: ‘I vow that in a future life when I attain Bodhi, if there are sentient beings whose bodies are inferior and whose faculties are imperfect, who are ugly, dull, blind, deaf, mute, deformed, paralyzed, hunchbacked, or afflicted with skin disease, insanity, or various other sicknesses and sufferings, upon hearing my name they shall all become endowed with upright features, keen intelligence, and perfect faculties, and they shall be free of sickness and suffering.", which is to hope that the appearance of all living beings will become as beautiful as Buddhas and Bodhisattvas.
 
 When Venerable Atisha came to Tibet, many great masters in Tibet went to greet him. Among them was a Master named Keton, who had a very solemn appearance.
 
@@ -1811,7 +1811,11 @@ Learning Buddhism requires freedom and love.
 
 It is freedom and the power to love and influence others.
 
-There are three types of karma: present, coming, and coming.
+There are three types of karma: Sanchitta. This is accumulated past actions or karmas waiting to come to fruition.
+
+Parabda. This is the present action: what you are doing now, in this lifetime and its result.
+
+Agami. Future actions that result from your present actions are called agami karma.
 
 Great good and bad karma or long-term karma, the result is present; medium good and bad karma is coming; small good and bad karma is coming later.
 
