@@ -65,25 +65,25 @@ Practice requires an ordered sequence of steps
 
 
 
-**His Holiness Ramo Yongzin**
+**His Holiness Ramo Yongzeng**
 
-Dharma Master Yongzeng, named Ramo Yongzin Lobsang Kezhi Gyatso (1908-2004), entered Buddhism at the age of six. At the age of seventeen he went to Labrang Monastery, a famous Buddhist temple,  with XX as his root guru. He studied with more than a dozen masters, including Dharma Master Sangke Tankai and Dharma Master Gongtang Rinpoche of this monastery.
+Dharma Master Yongzeng, named Ramo Yongzeng Lobsang Kezhi Gyatso (1908-2004), entered Buddhism at the age of six. At the age of seventeen he went to Labrang Monastery, a famous Buddhist temple,  with XX as his root guru. He studied with more than a dozen masters, including Dharma Master Sangke Tankai and Dharma Master Gongtang Rinpoche of this monastery.
 
-Because Dharma Master Yongzeng often practiced the Three Ways, he was called the wish-fulfilling treasure of empowerments, follow-up empowerments, lineage holder of scriptures, teachings, secrets and rituals in Tibetan Buddhist circles.
+Because Dharma Master Yongzeng often practiced the Three Aspects of the Path, he was called the wish-fulfilling treasure of empowerments, follow-up empowerments, lineage holder of scriptures, teachings, secrets and rituals in Tibetan Buddhist circles.
 
 Dharma Master Yongzeng, with a heart of compassion, worked tirelessly, taught profound Dharma in various places throughout his life, saved countless sentient beings, and passed away at the age of ninety-seven.
 
 After Vajra Master Ngawang Gyatso became a follower of this master in 1980, he constantly received many sutras and teachings.
 
-From 1993 to 2004, the master has come to study with His Holiness Master Yongzeng every spring, summer and autumn for 11 consecutive years, and has completely obtained His Holiness's deep empowerments, the inheritance of scriptures, secrets and rituals.
+From 1993 to 2004, the Master Ngawang went to study with His Holiness Master Yongzeng every spring, summer and autumn for 11 consecutive years, and completely obtained His Holiness's deep empowerments, the inheritance of scriptures, secrets and rituals.
 
 **Introduction to Vajra Master Ngawang Gyatso**
 
 Master Ngawang Gyatso was born on March 3, 1969 (the fifteenth day of the first lunar month) in Hainan Tibetan Autonomous Prefecture, Qinghai Province.
 
-The master began to practice Buddhism as a novice monk at the age of six, and became an ordained monk at the age of eighteen. He studied with Dharma Master Lama Yong Zeng, Geshe Rinpoche, Lobsang Dorje Vajra Guru, Gejia Rinpoche, Dharma Master Yeshe Gyatso, and Gazang Qusong Vajra Guru and the 10th Panchen Lama.
+The master began to practice Buddhism as a novice monk at the age of six, and became an ordained monk at the age of eighteen. He studied with Dharma Master Lama YongZeng, Geshe Rinpoche, Lobsang Dorje Vajra Guru, Gejia Rinpoche, Dharma Master Yeshe Gyatso, and Gazang Qusong Vajra Guru and the 10th Panchen Lama.
 
-Master Ah Wang, having followed the precepts of his teachers, received complete transmission of the teachings from his seven masters, the forty-sixth generational heirs of the "Prajna Paramita Sutra", the most important classics of Buddhism. From them he obtained more than 200 kinds of empowerments, more than 300 advanced special empowerments, more than 280 guiding precepts, with more than 500 scriptural sutras and more than 80 oral transmissions of intangible secrets. Therefore, the lineage of the master's doctrinal transmission is extremely complete and especially rare.
+Master Ah Wang, having followed the precepts of his teachers, received complete transmission of the teachings from his seven masters, and is the forty-sixth generational heir of the "Prajna Paramita Sutras", the most important classics of Buddhism. From them he obtained more than 200 kinds of empowerments, more than 300 advanced special empowerments, more than 280 guiding precepts, with more than 500 scriptural sutras and more than 80 oral transmissions of intangible secrets. Therefore, the lineage of the master's doctrinal transmission is extremely complete and especially rare.
 
 His Holiness Dharma Master Yongzeng, who was once the sutra teacher of the living Buddha, Sechi, in Lamodeqin Monastery was a person of superior virtue and the complete holder of the transmissions of the Gelugpa tantric teachings. Master Ah Wang followed Master Yongzeng for more than 20 years and absorbed all of the experience of the Venerable Dharma Master. The other six masters are also highly proficient in the esoteric secrets and have sufficient evidence of exceptional scholarly achievements. 
 
@@ -92,25 +92,25 @@ Lama Yongzeng once told Master Ah Wang: **"Your whole career in this life is to 
 In addition, Master Ah Wang studied at Qinghai Buddhist College and the Ta'er (Kumbum) Monastery  Debating College of Dialectics (Debating College).
 With a single-minded commitment to study and wide erudition, he completed the study of sutra and tantra, the five major theories of the five great Dharma masters, well ahead of schedule.
 
-Since graduating from Qinghai Buddhist Academy and Ta'er Monastery Debating Academy with excellent grades, the master has been living at Qinghai Tuole Monastery, serving as the Vajra Guru and the abbot of the monastery. He teaches the monks of Tuole Monastery every day in groups: lectures on the five great treatises, San Shi Dao, and the four tantras, and has set up a new sutra debating school in the monastery.
+Since graduating from Qinghai Buddhist Academy and Ta'er Monastery Debating Academy with excellent grades, the master has been living at Qinghai Tuole Monastery, serving as the Vajra Guru and the abbot of the monastery. He teaches the monks of Tuole Monastery every day in groups: lectures on the five great treatises, the Three Principle Aspects of the Path, and the four classes of Ttantra, and has set up a new sutra debating school in the monastery.
 
-Master Ah Wang has now produced several batches of lamas with a Geshe degree (equivalent to a Ph.D. in Buddhism).
+Master Ah Wang has produced several batches of lamas with a Geshe degree (equivalent to a Ph.D. in Buddhism).
 
 The master also insists on going into retreat for two months every year.
 
-Master Ah Wang often gives sermons, teachings, lectures, and empowerment ceremonies in both Tibetan and Chinese areas, and often holds patriotic teachings, and patriotic activities in monasteries, making due contributions to the promotion of social harmony and stable development.
+Master Ah Wang often gives talks, teachings, lectures, and empowerment ceremonies in both Tibetan and Chinese areas, and often holds patriotic teachings, and patriotic activities in monasteries, making due contributions to the promotion of social harmony and stable development.
 
 At the invitation of believers from other places, the master has travelled all over the world to teach the sutras and the Dharma to those who are destined to hear them.
 
-Master Ah Wang is always compassionate and easily approachable, and speaks according to the occasion, and preaches the basic theories and simple practices of Buddhism, such as the San Shi Dao, the Four Refuges, the Seven Point Mandala Offering, the Dharma of Amitabha Buddha, the Vajrasattva Ritual, and the [Heart Sutra](/english/heartsutranotes) of Prajna Paramita.
+Master Ah Wang is always compassionate and easily approachable, and speaks according to the occasion, and preaches the basic theories and simple practices of Buddhism, such as the Three Principle Aspects of the Path, the Four Refuges, the Seven Point Mandala Offering, the Dharma of Amitabha Buddha, the Vajrasattva Ritual, and the [Heart Sutra](/english/heartsutranotes) of Prajna Paramita.
 
 The master has tens of thousands of disciples of many different nationalities.
 
-The master's writings include Commentary on Philosophy, Commentary on the Prajna Paramita Diamond Sutra, Dictation from the Three Masters of the Three Paths and Three Schools, Vajrasattva Ritual and Practice, and Dakini Buddha's Mother Ritual. Tracks and Practical Practices, Practice of Retreat, Simmering Sang Ritual, Biography of Vajra Guru Gazang Qusong, History of Tibetan Buddhism, Dabao Motto, Nectar Dharma Rain, Tantric Buddhism Feng Shui and the "Dharma Ocean Treasures" series, etc.
+The master's writings include Commentary on Philosophy, Commentary on the Prajna Paramita Diamond Sutra, Dictation from the Three Masters of the Three Paths and Three Schools, Vajrasattva Ritual and Practice, and Dakini Buddha's Mother Ritual. Tracks and Practical Practices, Practice of Retreat, Simmering Sang Ritual, Biography of Vajra Guru Gazang Qusong, History of Tibetan Buddhism, Dabao Motto, Nectar Dharma Rain, Tantric Buddhism and the "Dharma Ocean Treasures" series, etc.
 
-The master's writings are concise and comprehensive, and the analysis is profound and thorough, and has been praised and acclaimed by many great scholars in Buddhist circles at home and abroad.
+The master's writings are concise and comprehensive, and his analyses are profound and thorough, and have been praised and acclaimed by many great scholars in Buddhist circles at home and abroad.
 
-In recent years, believers from all over the world have made donations to Tuole Temple.
+In recent years, believers from all over the world have made donations to Tuole Monastery.
 
 Since March 2006, in order to meet the needs of an increasing number of monks and laypeople to hear the Dharma, the master has continued to expand the infrastructure of Tuole Monastery, and presided over the construction of the Daxiong Hall, the Great Lecture Hall, the Upper and Lower Debating Courts, the Tibetan Sutra Pavilion, the residence of the Sangha, the eight stupas, the Dharma Protector Hall and other buildings.
 
@@ -150,13 +150,13 @@ The method of liberation from birth, old age, sickness and death is only availab
 
 **3. Cause and effect**
 
-The teachings of most religions hold that the universe and everything that is characteristic of Buddhism was created by one Lord.
+The teachings of most religions hold that the universe and everything that is characteristic of it was created by one God.
 
 Buddhism teaches the theory of cause and effect, that is, whatever kind of cause you create, that kind of effect will be produced in return.
 
 Good is rewarded with good, evil is rewarded with evil, and both suffering and happiness are the results of good and evil karma.
 
-There is no savior, one's own destiny should be changed by oneself.
+There is no savior, one's own destiny can only be changed by oneself.
 
 Stop worrying.
 
@@ -170,9 +170,19 @@ Learning Buddhism can bring an end to any suffering you may have.
 
 Other religions only talk about faith and not about logic, while Buddhism talks about logic and truth.
 
-The Buddha said: Bhikkhus or wise people should contemplate my words well, like refining, cutting and grinding gold.
+The Buddha said: 
 
-**6. The Ultimate**
+>
+>O bhikshus and wise men, 
+>
+>just as a goldsmith would test his gold 
+>
+>by burning, cutting, and rubbing it, 
+>
+>so you must examine my words ...
+>
+
+**6. The Ultimate Truth**
 
 All religions use reasoning to some degree, but not through to the end. Buddhism is a knowledge of the ultimate, which is the biggest difference between Buddhism and other religions. The truth of what the Buddha said can help us reach liberation.
 
@@ -194,17 +204,17 @@ Complete preservation
 
 Complete training curriculum
 
-**1. Teaching is complete**
+**1. Complete Teaching**
 
 Buddha's teachings are divided into Theravada / Hinayana and Mahayana. Mahayana has both the sutra method and the tantra methods. Now there are three major schools of Buddhism, referred to as Southern Buddhism, Chinese Buddhism and Tibetan Buddhism. Southern Buddhism is the method of Theravada, it does not have the methods of Mahayana. Chinese Buddhism is still dominated by Mahayana Buddhism, but it does not have the four continuations of Tantric Buddhism. The teachings of Tibetan Buddhism include the Theravada method, the Mahayana Sutra method, and the Vajrayana Tantra method of perfection.
 
-**2. The lineage is complete**
+**2. Complete Lineage**
 
 Except for the sutras, most of the traditions of Southern Buddhism and Chinese Buddhism have been cut off. However, the inheritance of the precepts, oral transmissions, guidance, empowerments, etc. of Tibetan Buddhism have not been broken, and the lineage is pure and complete.
 
-**3. The practice is complete**
+**3. Complete Practice**
 
-Southern Buddhism cultivates the vows for liberation and the thirty-seven paths. Chinese Buddhism cultivates the vows of separation and liberation, the vows of Bodhisattvas, compassion, bodhicitta, and six degrees of perfection. Tibetan Buddhist practice is complete: the external practice of the Hinayana method, the internal practice of the Mahayana Sutra method and the Tantric practice of the four tantras, and the practice of the three vehicles of special liberation vows, Bodhisattva vows and Tantric vows.
+Southern Buddhism cultivates the vows for liberation and the thirty-seven paths. Chinese Buddhism cultivates the vows of renunciation and liberation, the vows of Bodhisattvas, compassion, bodhicitta, and six degrees of perfection. Tibetan Buddhist practice is complete: the external practice of the Hinayana method, the internal practice of the Mahayana Sutra method and the Tantric practice of the four classes of Tantra, and the practice of the three vehicles of Theravada, Mahayana, and Vajrayana.
 
 **4. Well preserved**
 
