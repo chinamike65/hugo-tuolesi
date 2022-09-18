@@ -214,7 +214,7 @@ Except for the sutras, most of the traditions of Southern Buddhism and Chinese B
 
 **3. Complete Practice**
 
-Southern Buddhism cultivates the vows for liberation and the thirty-seven paths. Chinese Buddhism cultivates the vows of renunciation and liberation, the vows of Bodhisattvas, compassion, bodhicitta, and six degrees of perfection. Tibetan Buddhist practice is complete: the external practice of the Hinayana method, the internal practice of the Mahayana Sutra method and the Tantric practice of the four classes of Tantra, and the practice of the three vehicles of Theravada, Mahayana, and Vajrayana.
+Southern Buddhism cultivates the vows for liberation and the thirty-seven paths. Chinese Buddhism cultivates the vows of renunciation and liberation, the vows of Bodhisattvas, compassion, bodhicitta, and six degrees of perfection. Tibetan Buddhist practice is complete: the external practice of the Hinayana method, the internal practice of the Mahayana Sutra method and the Vajrayana practice of the four classes of Tantra, and the practice of the three vehicles of Theravada, Mahayana, and Vajrayana.
 
 **4. Well preserved**
 
@@ -226,9 +226,9 @@ The courses of Buddhist study include sutras, tantras, and treatises. The Hinaya
 
 The explanations of the scriptures and tantras preached by the Buddhas, by Bodhisattvas and Mahasiddhas are called sutras. There are many Buddhists who study the scriptures directly in Southern and Chinese Buddhism.
 
-Tibetan Buddhism generally studies the sutras first, and then the tantras, because the content of the tantras is very deep and broad, it is easier to understand the content of the tantras having studied the sutras first.
+Tibetan Buddhists generally study the sutras first, and then the tantras, because the content of the tantras is very deep and broad, it is easier to understand the content of the tantras having studied the sutras first.
 
-Tibetan Buddhism mainly studies the Five Great Treatises, "The Great Treatise on the Stages of the Path to Enlightenment", "The Esoteric Essays on the Stages of Tantric Buddhism" and so on. A treatise contains references to a lot of sutras, and if you study a treatise well, you will also become familiar with a lot of sutras. Therefore, Tibetan Buddhism first studies the theories, then the scriptures, and then the continuations (the tantras).
+Tibetan Buddhists mainly study the Five Great Treatises, "The Great Treatise on the Stages of the Path to Enlightenment", "The Esoteric Essays on the Stages of Tantric Buddhism" and so on. A treatise contains references to a lot of sutras, and if you study a treatise well, you will also become familiar with a lot of sutras. Therefore, Tibetan Buddhism first studies the theories, then the scriptures, and then the continuations (the tantras).
 
 Tibetan Buddhism has the five perfections, pure lineage, and the complete sequence. At the same time, it integrates the essence of 84,000 dharmas, so it can cure the 84,000 kinds of troubles of modern people, and it is very suitable for contemporary lay people to practice.
 
@@ -284,6 +284,7 @@ Tibetan Buddhism has the five perfections, pure lineage, and the complete sequen
 
 **Training Curriculum - Tuo Le Si Monastery**
 #### {#practice-sequence}
+
 **1. Introductory Level**
 
 **(1) Recitation**
@@ -298,7 +299,7 @@ Tibetan Buddhism has the five perfections, pure lineage, and the complete sequen
 
 5. Foundation of All Good Qualities
 
-6. The Three Main Paths
+6. The Three Principal Aspects of the  Path
 
 7. A Hymn of Experience (Lam rim nyam gur)
 
@@ -342,7 +343,7 @@ https://www.lotsawahouse.org/words-of-the-buddha/samantabhadra-aspiration-good-a
 
 2. Frequent recitation of Scriptures
 
-3. San Shi Dao
+3. Three Principal Aspects of the  Path
 
 **2. Intermediate Level**
 
@@ -485,7 +486,7 @@ https://web.archive.org/web/20150430223200/http://ctzen.org/sunnyvale/enUS/index
 
 (2) Recite
 
-**Outline of San Shi Dao**
+**Outline of the Three Principal Aspects of the  Path**
 
 (3) Learning (mainly watching the videos and reading books)
 
@@ -517,27 +518,27 @@ https://web.archive.org/web/20150430223200/http://ctzen.org/sunnyvale/enUS/index
 
 1. Three Body Method - Three-Kaya Dharma Door
 
-#### 5, The Perfection Stage Class (Supreme Yoga)
+#### 5, The Completion Stage (Supreme Yoga)
 
 (1) Chanting (choose one of the following according to the deity being cultivated)
 
 1. Mahavira mantra 10 million times
 
-2. Dakini Buddha's Heart Mantra 10,000,000 Times
+2. Dakini Buddha's Heart Mantra 10 million Times
 
 3. Hayagriva Heart Mantra 10 million times
 
 (2) Learning (mainly watching the videos and reading books)
 
-Tantric Consummation
+1. Tantric Stages of the Path
 
-The Dharma Door of Xi Zeng Huai Punishment
+2. The Dharma Door of breathing method, increasing method, holding method, and killing method
 
 (3) Practice
 
-1. Energy-Wind
+1. Energy-Winds and Drops
 
-2. Kundalini
+2. Kundalini (Tummo / Inner Heat)
 
 3. Emptiness and Bliss
 
@@ -549,13 +550,13 @@ Please arouse Bodhicitta and listen carefully!
 
 Now I will talk about the sequence of practice in the Tuo Le Center, which is also the order for success in the practice of laypeople.
 
-If you want to learn Buddhism and practice, you need a sequence, and a sequence can be completed. The sequence is very important.
+If you want to learn Buddhism and practice, you need a sequence, and a sequence that can be completed. The sequence is very important.
 
 Without orderly cultivation, you can only accumulate a little blessing, eliminate a little karma. You will not achieve success, you will not cut off your afflictions, you will not attain renunciation, and you will not gain bodhicitta.
 
 If you follow the ordered stages of practice, no matter whether you are a lay person or a monk, you will be successful.
 
-In the history of Tibetan Buddhism in the past, there were many examples of the achievement of enlightenment in one lifetime by lay people. For example, the master of the Kadampa school, Zhongdunpa, became a Buddha in his own lifetime. 
+In the history of Tibetan Buddhism, there have been many examples of the achievement of enlightenment in one lifetime by lay people. For example, the master of the Kadampa school, Zhongdunpa, became a Buddha in his own lifetime. 
 
 The master of the Kagyu school, Milarepa, was also a layperson and became a Buddha in his own lifetime.
 
@@ -567,62 +568,62 @@ So laypeople and householders can also be successful.
 
 But now many laypeople feel that we have no hope of achieving success in our practice at home, we just recite the Buddha's words, get a little blessing, and eliminate some karma.
 
-The idea is wrong, don't be so pessimistic.
+This way of thinking is wrong, don't be so pessimistic.
 
 All disciples who practice at home can achieve success, and even become Buddhas.
 
-Everyone should know the concept of achievement. If you have attained renunciation, it will be considered an achievement; if you have attained bodhicitta, it will be considered an achievement. Anyone who has attained the right path, such as the five paths of Buddhism, the path of accumulation, the path of practice, the path of vision, the path of cultivation without learning the Dharma, as long as one obtains one of the Dharmas, it can be said to be an achievement.
+Everyone should know the concept of achievement. If you have attained renunciation, it will be considered an achievement; if you have attained bodhicitta, it will be considered an achievement. Anyone who has attained the right path, such as the five paths of Buddhism: the path of accumulation, the path of joining, the path of seeing, the path of cultivation and the path of no-more-learning, as long as one completes one of the paths, it can be said to be an achievement.
 
 In fact, among lay disciples, there are many, many people who become Buddhas in this current  lifetime. It can be seen that lay disciples can also achieve liberation.
 
-But to achieve it, you need to practice the steps.
+But to achieve it, you need to practice the steps in the correct order.
 
 Without work, there will be no success.
 
-For example, to build a ten thousand zhang tall building, it must be built on one or two floors.
+For example, to build a ten thousand foot tall building, it must be begun on one or two floors.
 
 It is impossible to build a building if it is not built in the order of first floor first, and second floor second, so the order is very important.
 
-But some people ask: Isn't it said that there are people who achieve instant enlightenment and become Buddhas right now? There are such people, but who is this kind of person? It refers to their achievements through practice in a previous life.
+But some people ask: Isn't it said that there are people who achieve instant enlightenment and become Buddhas right now? There are people, like this but who are they? It refers to their achievements through practice in a previous life.
 
-For example, if you have attained the path of resources in your previous life, you don’t need to practice the path of resources in this life, and you start from the path of additional practice. This kind of disciple can achieve enlightenment now.
+For example, if you have attained the path of accumulation in your previous life, you don’t need to practice the path of accumulation in this life, and you start from the path of joining. This kind of disciple can achieve enlightenment now.
 
 The vast majority (at least 99%) of lay disciples today are not this kind of disciple.
 
-Ordinary people among ordinary people must take it step by step, and don’t think about achieving success or enlightenment all at once, there is no such possibility.
+Ordinary people living among ordinary people must take it step by step, and shouldn’t think about achieving success or enlightenment all at once, there is no such possibility.
 
 But one step at a time, it will surely come.
 
 For example, when climbing a mountain, you must climb step by step! 
 
-This is the truth, everyone must understand.
+This is the truth, everyone must understand this.
 
 The practice order of the Tuo Le Center is the order in which the disciples practice in their lifetimes.
 
-It is divided into five classes: 
+I have divided it into five stages: 
 
-the first class is the Preparatory class, 
+the first class is the path of accumulation, 
 
-the second class is the Main class, 
+the second class is the path of preparation, 
 
-the third class is the wisdom stage, 
+the third class is the path of seeing, 
 
-the fourth class is the generation stage, 
+the fourth class is the path of cultivation, 
 
-and the fifth class is the completion stage.
+and the fifth class is the path of no more learning or consummation.
 
-**The first stage is Preparatory.**
+**The first stage is the path of accumulation.**
 
-Preparatory classes are mainly based on reciting scriptures.
+Path of accumulation classes are mainly based on reciting scriptures.
 
 The Heart Sutra of Prajna Paramita is the quintessence of 84,000 dharmas and must be memorized.
 
 
-The practice sequence of the Tuo Le Co-cultivation Center explains that "Reciting Sutras" is the essence of the five major treatises, and must be memorized.
+The practice sequence of the Tuo Le Cultivation Center explains that "Reciting Sutras" is the essence of the five major treatises, and must be memorized.
 
 The Guru Longevity Prayer is very important.
 
-If you have a strong belief in your guru, you can get great blessings; if your beliefs are small, you will get small blessings; if you don’t have any beliefs, you can’t get any blessings.
+If you have a strong belief in your guru, you can get great blessings; if your beliefs are small, you will get small blessings; if you don’t have any beliefs, you won’t get any blessings.
 
 Therefore, as the previous masters said, if the power of belief is great, then the power of blessing is great; the stronger the belief, the greater the blessing; if the power of belief is small, the power of blessing is small; if there is no belief, there is no blessing.
 
@@ -632,7 +633,7 @@ Therefore, the "Longevity Prayer for the Guru" must be memorized.
 
 "A Hymn of Experience (Lam rim nyam gur)" is about how to achieve step-by-step cultivation, and it must be memorized.
 
-"The Three Main Paths" is about the three main paths of renunciation, bodhicitta, and emptiness, which must be memorized.
+"The Three Principal Aspects of the Path" is about the three main paths of renunciation, bodhicitta, and emptiness, which must be memorized.
 
 There are more than ten chapters in "A Hymn of Experience (Lam rim nyam gur)", which condensed the essence of the two major treatises, "The Great Treatise on the Stages of the Path to Enlightenment" and "The Brief Treatise on the Stages of the Path to Enlightenment".
 
@@ -642,13 +643,13 @@ Memorizing the merits and virtues of "A Hymn of Experience (Lam rim nyam gur)" i
 
 In the "Thirty-five Buddhas of Repentance", each of us has a lot of karma, so we should repent and make amends every day.
 
-Repentance, the most outstanding method in the dharma door of Mahayana is the "Thirty-five Buddhas of Repentance", which must be memorized.
+Repentance, the most outstanding method of all the dharma doors of Mahayana is the "Thirty-five Buddhas of Repentance", which must be memorized.
 
-"Golden Brightness Most Victorious King Jing Confession" and "Minimal Confession" have only one chapter each, and it is very easy to memorize them.
+"Golden Brightness Most Victorious King Jing Confession" and "Short Confession" have only one chapter each, and it is very easy to memorize them.
 
 "The Seven Point Mandala Offering", "Mandala Offering Text", "Psalmist's Prayer and Vows", "Gelugpa Teaching Prosperity Vows", these have already been discussed, and they all have to be memorized.
 
-In addition to reciting the above, the preparatory class will also recite the following.
+In addition to reciting the above, the path of preparation class will also recite the following.
 
 First, recite the Heart Sutra 10,000 times.
 
