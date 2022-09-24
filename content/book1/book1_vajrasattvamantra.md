@@ -64,5 +64,27 @@ draft: false
 
 om benza sato samaya manu palaya benza sato té nopa tishta dridho mé bhava sutokhayo mé bhava supokhayo mé bhava anurakto mé bhava sarva siddhi mé prayatsa sarva karma sutsa mé tsittam shré yah kuru hung ha ha ha ha ho bhagavan sarva tathagata benza ma mé muntsa badzra bhava maha samayasato ah hung pé
 
+OM BENZA SATA SAMAYA MANU PALAYA
+
+BENZA SATA TEY NO PA TEETA DEEDO MEY BAWA
+
+SUTO KAYO MEY BAWA
+
+SUPO KAYO MEY BAWA
+
+A NU RATO MEY BAWA
+
+SARWA SIDDI MEY PRA YA TSA
+
+SARWA KARMA SU TSA MEY
+
+TSEE TAM SHRI YAM KURU HUNG
+
+HA HA HA HA HO BAGAWAN
+
+SARWA TATAGATA BENZA MA MEY MUN TSA
+
+BENZA BAWA MAHA SAMAYA SATA AH HUNG PEY
+
 
 https://www.bodhicittasangha.org/100-syllable-mantra/
