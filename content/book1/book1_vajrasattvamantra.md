@@ -36,7 +36,7 @@ draft: false
 > 
 > āḥ (hūṃ phaṭ)
 
-#### English
+##### English
 > 
 > Oṃ Vajrasattva! Preserve the bond!
 > 
