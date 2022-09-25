@@ -10,7 +10,7 @@ On the fifteenth day of the first lunar month in 1969, Ah Wang Gyatso was born i
 
 [Masters](/masters/masters)
 
-These seven masters all were taught by Lako Rinpoche, the greatest Buddhist scholar and great saviour of Tibetan Buddhism in the 20th century, and the transmission of the teachings down through this lineage is very pure and complete.
+These seven masters all were taught by Rako Rinpoche, the greatest Buddhist scholar and great saviour of Tibetan Buddhism in the 20th century, and the transmission of the teachings down through this lineage is very pure and complete.
 
 Master Ah Wang, having followed the precepts of his teachers, received complete transmission of the teachings from his seven masters, the forty-sixth generational heirs of the "Prajna Paramita Sutra", the most important classic of Buddhism. From them he obtained more than 200 kinds of empowerments, more than 300 advanced special empowerments, more than 280 guiding precepts, with more than 500 scriptural sutras and more than 80 oral transmissions of intangible secrets. Therefore, the lineage of the master's doctrinal transmission is extremely complete and especially rare.
 

@@ -317,7 +317,7 @@ Tibetan Buddhism has the five perfections, pure lineage, and the complete sequen
 
 14. Samantabhadra’s "Aspiration to Good Actions"
 
-https://www.lotsawahouse.org/words-of-the-buddha/samantabhadra-aspiration-good-actions
+[Aspiration to Good Actions](https://www.lotsawahouse.org/words-of-the-buddha/samantabhadra-aspiration-good-actions)
 
 15. Gelugpa Prosperity Wishes
 
@@ -378,17 +378,20 @@ https://www.lotsawahouse.org/words-of-the-buddha/samantabhadra-aspiration-good-a
 >
 
 7. Ucchusma Mantra 100,000 times
+
 >
->Oṃ vajra-krodha mahābala hana daha paca mātha vi-kiraṇa vidhavaṃsaya ucchuṣma-krodha huṃ huṃ huṃ phaṭ phaṭ phaṭ svāhā
-
+>Oṃ vajra-krodha mahābala hana daha paca mātha vi-kiraṇa vidhavaṃsaya ucchuṣma-krodha 
+>
+>huṃ huṃ huṃ phaṭ phaṭ phaṭ svāhā
+>
 >Oṃ krodhana hūṃ jaḥ
-
+>
 >Oṃ śūri śūri mahā-śūri śūśūri svāhā (Purification of speech)
-
+>
 >Oṃ śutāri śutāri śumari śumari svāhā (Purification of action)
-
+>
 >Oṃ śrimali mamali mali śuśri svāhā (Removal of filth)
-
+>
 
 
 8. The mantra of the Mother of Light 100,000 times 
@@ -536,7 +539,7 @@ https://web.archive.org/web/20150430223200/http://ctzen.org/sunnyvale/enUS/index
 
 (3) Practice
 
-1. Energy-Winds and Drops
+1. Energy-Winds, Channels and Drops
 
 2. Kundalini (Tummo / Inner Heat)
 
