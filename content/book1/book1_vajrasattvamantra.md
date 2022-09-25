@@ -185,6 +185,8 @@ BENZA BAWA MAHA SAMAYA SATA AH HUNG PEY
 སརྦ ཏ་ཐཱ་ག་ཏ་བཛྲ་མ་མེ་མུཉྩ།
 བཛྲི་བྷ་ཝ་མ་ཧཱ་ས་མ་ཡ་སཏྭ ཨཱཿ །།
 
+https://www.youtube.com/watch?v=JVWxVbKvM8s&list=RDJVWxVbKvM8s&index=2
+
 https://www.bodhicittasangha.org/100-syllable-mantra/
 
 https://buddhaweekly.com/vajrasattva-great-purifyer-among-powerful-profound-healing-purifications-techniques-vajrayana-buddhism/
