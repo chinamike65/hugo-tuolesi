@@ -129,14 +129,15 @@ Book 2
 Book 3
 ------
 
-
+| Chinese | Pinyin | English | Author | Notes |
+| ------- | ------ | ------- | ------ | -------------------------------- |
  | 《般若经注解》|Bōrě jīng zhùjiě|Prajna Sutra Annotation|https://m.jingangjfw.com/banruoj/6967.html
  | 《三士道三派上师口授》|Sān shìdào sān pài shàng shī kǒushòu|Oral dictation by masters of the three schools of Sanshido|
  | 《法海宝藏》|||https://read01.com/P52GBa4.html#.YuuaxHZByUk
  | 《三士道》|Sān shìdào|San Shi Dao|The Three Principal Aspects of the Path|
  | 《大般若经》|Dà bōrě jīng|Prajna Paramita Sutra - Perfection of Wisdom|https://www.youtube.com/watch?v=3ErG5PE6QyE
  | 《现观庄严论》|Xiàn guān zhuāngyán lùn|Ornament for Clear Realization|Abhisamaya-alaṅkāra|https://www.lotsawahouse.org/topics/abhisamayalankara/
- | 《菩提道炬论》|Pútí dào jù lùn|Lamp for the Path to Enlightenment| Jang-chub lam-gyi drön-ma|Atiśa Dīpaṃkara|https://www.lotsawahouse.org/indian-masters/atisha/lamp-path-enlightenmen
+ | 《菩提道炬论》|Pútí dào jù lùn|Lamp for the Path to Enlightenment| Jang-chub lam-gyi drön-ma|Atiśa Dīpaṃkara|https://www.lotsawahouse.org/indian-masters/atisha/lamp-path-enlightenment
  | 《菩提道次第广论》|Pútí dào cìdì guǎng lùn|The Great Treatise on the Stages of the Path to Enlightenment|Lam rim chen mo
  | 《菩提道次第摄颂》|Pútí dào cìdì shè sòng|Poetry of the Bodhi Path|A Song of Stages of the Path to Enlightenment|https://www.youtube.com/watch?v=aX276NJUqBA|Khensur Jangchup Choeden
 https://www.lamayeshe.com/article/hymn-experience
