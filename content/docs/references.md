@@ -10,33 +10,18 @@ Book 1
 
 | Chinese | Pinyin | English | Author | Notes |
 | ------- | ------ | ------- | ------ | -------------------------------- |
- | 《哲学（堆扎）注解》|Zhéxué (duī zhā) zhùjiě|Philosophical Notes | 
-
+ | 《哲学（堆扎）注解》|Zhéxué (duī zhā) zhùjiě|Philosophical Notes | |
  | 《金刚般若波罗蜜多经注解》|Jīngāng bōrě bōluómì duō jīng zhùjiě|Commentary on the Vajra Prajnaparamita Sutra |  | 
-| 
- | 《三士道三派上师口授》|Sān shìdào sān pài shàng shī kǒushòu|Oral dictation by the masters of the three schools of Sanshidao
-
- | 《金刚萨埵仪轨及实修法》|Jīngāng sà duǒ yí guǐ jí shí xiūfǎ|Vajrasattva Ritual and Practical Practice | 
-
- | 《空行佛母仪轨及实修法》|Kōng xíng fú mǔ yí guǐ jí shí xiūfǎ|Dakini Buddha Ritual and Practical Practice
-
-
-
-
- | 《闭关实修法》|Bìguān shí xiūfǎ|Retreat practice method
-
- | 《煨桑仪轨》|Wēi sāng yí guǐ|simmering mulberry ritual
-
- | 《尕藏曲松金刚上师传》|Gǎ cáng qū sōng jīngāng shàng shī chuán|The Biography of the Vajra Master of Gazang Qusong
-
- | 《藏传佛教史》|Zàng chuán fójiào shǐ|History of Tibetan Buddhism
-
- | 《大宝格言》|Dàbǎo géyán|Dabao motto
-
- | 《甘露法雨》|Gānlù fǎ yǔ|nectar rain
-
- | 《密宗风水》|Mìzōng fēngshuǐ|Tantric Feng Shui
-
+ | 《三士道三派上师口授》|Sān shìdào sān pài shàng shī kǒushòu|Oral dictation by the masters of the three schools of San shi dao
+ | 《金刚萨埵仪轨及实修法》|Jīngāng sà duǒ yí guǐ jí shí xiūfǎ|Vajrasattva Ritual and Practical Practice | 
+ | 《空行佛母仪轨及实修法》|Kōng xíng fú mǔ yí guǐ jí shí xiūfǎ|Dakini Buddha Ritual and Practical Practice |
+ | 《闭关实修法》|Bìguān shí xiūfǎ|Retreat practice method|
+ | 《煨桑仪轨》|Wēi sāng yí guǐ|simmering mulberry ritual|
+ | 《尕藏曲松金刚上师传》|Gǎ cáng qū sōng jīngāng shàng shī chuán|The Biography of the Vajra Master of Gazang Qusong|
+ | 《藏传佛教史》|Zàng chuán fójiào shǐ|History of Tibetan Buddhism|
+ | 《大宝格言》|Dàbǎo géyán|Dabao motto|
+ | 《甘露法雨》|Gānlù fǎ yǔ|nectar rain|
+ | 《密宗风水》|Mìzōng fēngshuǐ|Tantric Feng Shui|
  | 《法海宝藏》|Fǎ hǎi bǎozàng|Dharma Ocean Treasures|
 
 -------
