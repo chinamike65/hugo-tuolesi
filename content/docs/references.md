@@ -29,133 +29,74 @@ Book 1
  | 《般若波罗蜜多心经》|Bōrě bōluómì duō xīnjīng|Prajnaparamita Heart Sutra|
 
  | 《常诵经文》|Cháng sòng jīng wén|chanting scriptures | 
-
  | 《上师长寿祈祷文》|Shàng shī chángshòu qídǎo wén|Guru Longevity Prayer | 
-
  | 《上师瑜伽》|Shàng shī yújiā|Guru Yoga
-
  | 《胜道启门颂》|Shèng dào qǐ mén sòng|Foundation of All Good Qualities| |  
-
  | 《三主要道颂》|| |  
-
  | 《菩提道次第摄颂》|Pútí dào cìdì shè sòng|Poetry of the Bodhi Path|A Song of Stages of the Path to Enlightenment|https://www.youtube.com/watch?v=aX276NJUqBA|Khensur Jangchup Choeden |  
-
  | 《菩提道次第略论》|Pútí dào cìdì lüè lùn|A Brief Commentary on the Steps of the Path to Enlightenment| |  
-
  | 《八圣吉祥颂》|Sān zhǔyào dào sòng|The Three Main Paths |  
-
  | 《三十五佛忏悔文》|Sānshíwǔ fú chànhuǐ wén|Thirty-five Buddhas Repentance |  
-
  | 《金光明最胜王经忏悔文》|Jīn guāngmíng zuì shèng wáng jīng chànhuǐ wén|Jin Guangming is the most superior to Wang Jing's confession |  
-
  | 《极简忏悔文》|Jí jiǎn chànhuǐ wén|Minimalist Confession |  
-
  | 《七支供养》|Qī zhī gòngyǎng|seven offerings |  
-
  | 《曼札供养文》|Màn zhá gòngyǎng wén|Mandhala offering text |  
-
  | 《普贤行愿品》|Pǔ xián xíng yuàn pǐn||https://www.youtube.com/watch?v=lNmxC3Ip62c |  
-
  | 《格鲁善教昌盛愿辞》|Gé lǔ shànjiào chāngshèng yuàn cí| |  
-
  | 《心经》|Xīn jīng|Heart Sutra|Gelukha's Prosperity Wishes |  
-
  | 《四皈依》|Sì guīyī|Four Refuges |  
-
  | 《二十一尊度母礼赞经》|Èrshíyī zūn dù mǔ lǐzàn jīng|Twenty-one Tara Prayer Sutras |  
-
  | 《药师佛仪轨》|Yàoshī fó yí guǐ|Medicine Buddha Ritual |  
-
  | 《缘起赞》|Yuánqǐ zàn|Originated like |  
-
  | 《初中后善祈愿文》|Chūzhōng hòu shàn qí yuàn wén| |  
-
  | 《语加持》|Yǔ jiāchí|Speech Blessing |  
-
  | 《药师经》|Yàoshī jīng|Medicine Buddha Sutra |  
-
  | 《密宗道次第论》|Mìzōng dào cìdì lùn|Esoteric Buddhism |  
-
  | 《金刚经》|Jīngāng jīng|Diamond Sutra |  
-
  | 《般若摄颂》|Bōrě shè sòng|Ode to Wisdom |  
-
  | 《文殊真实名经》|Wénshū zhēnshí míng jīng|Manjushri's True Name|Mañjuśrī-Nāma-Saṃgīti|http://studybuddhism.com/en/advanced-studies/prayers-rituals/prayers/a-concert-of-names-of-manjushri |  
-
  | 《三士道纲要》|Sān shìdào gāngyào|Outline of Sanshidao |  
-
  | 《安乐道论》|Ānlè dào lùn|Theory of Well-being| |  
-
  | 《文殊根本续》|Wénshū gēnběn xù|Manjusri root continuation|| |  
-
  | 《金刚手根本续》|Jīngāng shǒu gēnběn xù| |  
-
  | 《宗喀巴大师祈请文》|Zōng kā bā dàshī qí qǐng wén|Prayer of Master Tsongkhapa |  
-
  | 《佛说放钵经》|Fú shuō fàng bō jīng|Buddha said the alms bowl |  
-
  | 《心地观经》|Xīndì guān jīng|contemplation of the heart |  
-
  | 《见一切刹土经》|Jiàn yīqiè shā tǔ jīng|see all samsara sutras |  
-
  | 《大般若经》|Dà bōrě jīng|Great Prajna Sutra |  
-
  | 《传授教授王经》|Chuánshòu jiàoshòu wáng jīng| |  
-
  | 《催促牌记》|Cuīcù pái jì|urging sign |  
-
  | 《莲花遗教》|Liánhuā yíjiào|Lotus Legacy |  
-
  | 《大藏经》|Dàzàng jīng|Tripitaka |  
-
  | 《甘珠尔》甘珠儿|Gān zhū ěr|Kangyur |  
-
  | 《丹珠尔》丹珠儿|Dān zhū ěr|Tangyur |  
-
  | 《善方策传》|Shàn fāngcè chuán|good recipes |  
-
  | 《弥勒五论》|Mílè wǔ lùn|Maitreya's Five Theories |  
-
  | 《回诤论》|Huí zhēng lùn|rebuttal |  
-
  | 《六十正理论》|Liùshí zhèng lǐlùn|Sixty Theory |  
-
  | 《七十空性论》|Qīshí kōng xìng lùn|Seventy Emptiness Theory |  
-
  | 《精研论》|Jīng yán lùn|Intensive Research Theory |  
-
  | 《集论》|Jí lùn|set theory |  
-
  | 《俱舍论》|Jù shě lùn|Abhidharma-kośa-śāstra|Vasubandhu |  
-
- | 《释量论》||Pramāṇavārttika|Commentary on Valid Cognition|Dharmakīrti |  
-
+ | 《释量论》|Shì liàng lùn|Pramāṇavārttika|Commentary on Valid Cognition|Dharmakīrti |  
  | 《入行论》|Rùxíng lùn|entry theory |  
-
  | 《入中论》|Rù zhōng lùn|Entrance to the Middle Way|Madhyamakāvatāra|Candrakīrti|Yuecheng Boddhisattva |  
-
  | 《四百论》|Sìbǎi lùn|Four Hundred Verses |  
-
  | 《大藏经》|Qiánlóng dàzàng jīng|Qianlong Tripitaka |  
-
  | 《三士道》|Sān shìdào|San Shi Dao|The Three Principal Aspects of the Path| |  
-
  | 《念诵集》|Niàn sòng jí|chanting set |  
-
  | 《易经》|Yì jīng|Book of Changes |  
-
  | 《吉祥经》|Jíxiáng jīng|Auspicious Sutra |  
-
  | 《乾隆大藏经》|Qiánlóng dàzàng jīng|Qianlong Tripitaka |  
-
  | 《弘一法师全集》|Hóngyī fǎshī quánjí|The Complete Works of Master Hongyi |  
+ | 《般若经》|Bōrě jīng|Prajna Paramita Sutra| |   |  
 
- | 《般若经》|Bōrě jīng|Prajna Paramita Sutra| |  
- |  
 
 Book 2
 ---
 
+| Chinese | Pinyin | English | Author | Notes |
+| ------- | ------ | ------- | ------ | -------------------------------- |
 
  | 《哲学（堆扎）注解》|Zhéxué (duī zhā) zhùjiě|Philosophical Notes
 
@@ -394,7 +335,7 @@ The Tathāgatagarbha sūtra opens in Rājagṛha (present-day Rajgir) and descri
 8. the embryo of a cakravartin (universal monarch) carried in the womb of an unsuspecting and destitute mother; and
 9. golden figures within the grubby clay molds that are used to cast them, before the mold is broken.
 
-The sūtra closes by describing the merit that accrues to one who propagates the text and deprecates the comparative value of the veneration of the buddhas. As an illustration of the power of the text, there follows a story of a past buddha, Sadāpramutkaraśmi, who always emitted a great and wondrous light from his body; he preached the Tathāgatagarbha sūtra at the request of the bodhisattva *Anantaraśmi, and countless bodhisattvas attained supreme and perfect awakening as a result. The Buddha’s disciple Ānanda then asks from how many buddhas one must hear the Tathāgatagarbha sūtra, in order to become perfected (niryāta) and is told that it varies from a hundred buddhas to a myriad. Brief sections then praise one who holds the Tathāgatagarbha sūtra in his or her hands, and onlookers delight and rejoice.
+The sūtra closes by describing the merit that accrues to one who propagates the text and deprecates the comparative value of the veneration of the buddhas. As an illustration of the power of the text, there follows a story of a past buddha, Sadāpramutkaraśmi, who always emitted a great and wondrous light from his body; he preached the Tathāgatagarbha sūtra at the request of the bodhisattva Anantaraśmi, and countless bodhisattvas attained supreme and perfect awakening as a result. The Buddha’s disciple Ānanda then asks from how many buddhas one must hear the Tathāgatagarbha sūtra, in order to become perfected (niryāta) and is told that it varies from a hundred buddhas to a myriad. Brief sections then praise one who holds the Tathāgatagarbha sūtra in his or her hands, and onlookers delight and rejoice.
 
  | 《喻赞》|Yù zàn|Blessing of Speech|
 
@@ -424,7 +365,7 @@ The sūtra closes by describing the merit that accrues to one who propagates the
 
  | 《摄波罗蜜多论》|Shè bōluómì duō lùn|Taking Paramita|
 
- | 《大悲白莲华经》|Dàbēi báilián huá jīng|Scripture of the White Lotus of Compassion|karuṇāpuṇḍarīkasūtra|སྙིང་རྗེ་པདྨ་དཀར་པོའི་མདོ།
+ | 《大悲白莲华经》|Dàbēi báilián huá jīng|Scripture of the White Lotus of Compassion|karuṇāpuṇḍarīkasūtra|**སྙིང་རྗེ་པདྨ་དཀར་པོའི་མདོ།**
 
  | 《广大游戏经》|Guǎngdà yóuxì jīng|The vast game|
 
@@ -474,13 +415,11 @@ The important thing is to realize that even in a traditional guru/student relati
 Book 4
 ------
 
+| Chinese | Pinyin | English | Author | Notes |
+| ------- | ------ | ------- | ------ | -------------------------------- |
  | 《菩提道次第摄颂》|Pútí dào cìdì shè sòng|Poetry of the Bodhi Path|A Song of Stages of the Path to Enlightenment|https://www.youtube.com/watch?v=aX276NJUqBA|Khensur Jangchup Choeden
-
-
  | 《菩提道次第纲要》|||
-
  | 《亲友书》|Qīnyǒu shū|family and friends book|Letter to a Friend|Nagarjuna
-
  | 《广大游戏经》|Guǎngdà yóuxì jīng|The vast game|
 
  | 《入菩萨行论》|Rù púsà xíng lùn|On Entering the Bodhisattva's Actions|Bodhisattvacaryāvatāra|Shantideva|The Ākāśagarbha Sūtra
@@ -558,14 +497,12 @@ http://www.thezensite.com/ZenEssays/Miscellaneous/Buddhism_by_Numbers.html
 Book 5 
 ---
 
+| Chinese | Pinyin | English | Author | Notes |
+| ------- | ------ | ------- | ------ | -------------------------------- |
  | 《心经》|Xīn jīng|Heart Sutra|
-
  | 《般若经》|Bōrě jīng|Prajna Paramita Sutra|
-
  | 《大般若经》|Dà bōrě jīng|Prajna Paramita Sutra - Perfection of Wisdom|https://www.youtube.com/watch?v=3ErG5PE6QyE
-
  | 《般若波罗蜜多心经》|Bōrě bōluómì duō xīnjīng|Prajnaparamita Heart Sutra
-
  | 《释量论》|Shì liàng lùn|Pramāṇavārttika|Commentary on Valid Cognition|Dharmakīrti
 
  | 《现观庄严论》|Xiàn guān zhuāngyán lùn|Present View of Majesty
@@ -645,113 +582,3 @@ http://www.cttbusa.org/sutratexts.asp.html
 
 
 文殊根本续
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
