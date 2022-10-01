@@ -53,7 +53,7 @@ Book 1
  | 《密宗道次第论》|Mìzōng dào cìdì lùn|Esoteric Buddhism |  
  | 《金刚经》|Jīngāng jīng|Diamond Sutra |  
  | 《般若摄颂》|Bōrě shè sòng|Ode to Wisdom |  
- | 《文殊真实名经》|Wénshū zhēnshí míng jīng|Manjushri's True Name|Mañjuśrī-Nāma-Saṃgīti|http://studybuddhism.com/en/advanced-studies/prayers-rituals/prayers/a-concert-of-names-of-manjushri |  
+ | 《文殊真实名经》|Wénshū zhēnshí míng jīng|Manjushri's True Name (Mañjuśrī-Nāma-Saṃgīti)|http://studybuddhism.com/en/advanced-studies/prayers-rituals/prayers/a-concert-of-names-of-manjushri |  
  | 《三士道纲要》|Sān shìdào gāngyào|Outline of Sanshidao |  
  | 《安乐道论》|Ānlè dào lùn|Theory of Well-being| |  
  | 《文殊根本续》|Wénshū gēnběn xù|Manjusri root continuation|| |  
@@ -96,65 +96,34 @@ Book 2
 
 | Chinese | Pinyin | English | Author | Notes |
 | ------- | ------ | ------- | ------ | -------------------------------- |
-
  | 《哲学（堆扎）注解》|Zhéxué (duī zhā) zhùjiě|Philosophical Notes
-
  | 《金刚般若波罗蜜多经注解》|Jīngāng bōrě bōluómì duō jīng zhùjiě|Commentary on the Vajra Prajnaparamita Sutra
-
  | 《三士道三派上师口授》|Sān shìdào sān pài shàng shī kǒushòu|Oral dictation by the masters of the three schools of Sanshidao
-
  | 《金刚萨埵仪轨及实修法》|Jīngāng sà duǒ yí guǐ jí shí xiūfǎ|Vajrasattva Ritual and Practical Practice
-
  | 《空行佛母仪轨及实修法》|Kōng xíng fú mǔ yí guǐ jí shí xiūfǎ|Dakini Buddha Ritual and Practical Practice
-
  | 《闭关实修法》|Bìguān shí xiūfǎ|Retreat practice method
-
  | 《煨桑仪轨》|Wēi sāng yí guǐ|simmering mulberry ritual
-
  | 《尕藏曲松金刚上师传》|Gǎ cáng qū sōng jīngāng shàng shī chuán|The Biography of the Vajra Master of Gazang Qusong
-
  | 《藏传佛教史》|Zàng chuán fójiào shǐ|History of Tibetan Buddhism
-
  | 《大宝格言》|Dàbǎo géyán|Dabao motto
-
  | 《甘露法雨》|Gānlù fǎ yǔ|nectar rain
-
  | 《密宗风水》|Mìzōng fēngshuǐ|Tantric Feng Shui
-
  | 《法海宝藏》|Fǎ hǎi bǎozàng|Dharma Ocean Treasures|
-
--------
-
  | 《菩提道次第广论》|Pútí dào cìdì guǎng lùn|The Great Treatise on the Stages of the Path to Enlightenment|Lam rim chen mo
-
  | 《密宗道次第广论》|Mìzōng dào cìdì guǎng lùn|The Great Treatise on the Tantric Stages of the Path to Enlightenment|Ngakrim Chenmo
-
  | 《喻赞》|Yù zàn|Blessing of Speech|
-
  | 《普贤行愿品》|Pǔ xián xíng yuàn pǐn||https://www.youtube.com/watch?v=lNmxC3Ip62c
-
  | 《百五十赞》|Bǎi wǔshí zàn|Hymn of 150 Verses|Praise in One Hundred and Fifty Verses
-
  | 《赞应赞》|Zàn yīng zàn|Like to like|
-
  | 《上师瑜伽》|Shàng shī yújiā|Guru Yoga
-
  | 《甘珠儿》|Gān zhū ěr|Kangyur
-
  | 《丹珠儿》|Dān zhū ěr|Tangyur
-
  | 《时轮金刚》|Shí lún jīngāng|Kalachakra
-
  | 《吉祥经》|Jíxiáng jīng|Auspicious Sutra
-
  | 《乾隆大藏经》|Qiánlóng dàzàng jīng|Qianlong Tripitaka
-
  | 《弘一法师全集》|Hóngyī fǎshī quánjí|The Complete Works of Master Hongyi
-
  | 《般若经》|Bōrě jīng|Prajna Paramita Sutra|
-
  | 《大般若经》|Dà bōrě jīng|Great Prajna Sutra
-
 
 
 Book 3
@@ -162,140 +131,74 @@ Book 3
 
 
  | 《般若经注解》|Bōrě jīng zhùjiě|Prajna Sutra Annotation|https://m.jingangjfw.com/banruoj/6967.html
-
  | 《三士道三派上师口授》|Sān shìdào sān pài shàng shī kǒushòu|Oral dictation by masters of the three schools of Sanshido|
-
  | 《法海宝藏》|||https://read01.com/P52GBa4.html#.YuuaxHZByUk
-
  | 《三士道》|Sān shìdào|San Shi Dao|The Three Principal Aspects of the Path|
-
  | 《大般若经》|Dà bōrě jīng|Prajna Paramita Sutra - Perfection of Wisdom|https://www.youtube.com/watch?v=3ErG5PE6QyE
-
  | 《现观庄严论》|Xiàn guān zhuāngyán lùn|Ornament for Clear Realization|Abhisamaya-alaṅkāra|https://www.lotsawahouse.org/topics/abhisamayalankara/
-
- | 《菩提道炬论》|Pútí dào jù lùn|	
-Lamp for the Path to Enlightenment| Jang-chub lam-gyi drön-ma|Atiśa Dīpaṃkara|https://www.lotsawahouse.org/indian-masters/atisha/lamp-path-enlightenment
-
+ | 《菩提道炬论》|Pútí dào jù lùn|Lamp for the Path to Enlightenment| Jang-chub lam-gyi drön-ma|Atiśa Dīpaṃkara|https://www.lotsawahouse.org/indian-masters/atisha/lamp-path-enlightenmen
  | 《菩提道次第广论》|Pútí dào cìdì guǎng lùn|The Great Treatise on the Stages of the Path to Enlightenment|Lam rim chen mo
-
  | 《菩提道次第摄颂》|Pútí dào cìdì shè sòng|Poetry of the Bodhi Path|A Song of Stages of the Path to Enlightenment|https://www.youtube.com/watch?v=aX276NJUqBA|Khensur Jangchup Choeden
-
 https://www.lamayeshe.com/article/hymn-experience
 https://www.lamayeshe.com/article/chapter/appendix-2-lines-experience
-
-
  | 《入菩萨行论》|Rù púsà xíng lùn|On Entering the Bodhisattva's Actions|Bodhisattvacaryāvatāra| Shantideva
-
  | 《圣教次第论》|Shèng jiào cìdì lùn|The Order of the Holy Religion|
-
  | 《文殊真实名经》|Wénshū zhēnshí míng jīng|Manjushri's True Name|Mañjuśrī-Nāma-Saṃgīti|http://studybuddhism.com/en/advanced-studies/prayers-rituals/prayers/a-concert-of-names-of-manjushri
-
-
  | 《策励牌文》|Cèlì pái wén|Incentive card text|
-
  | 《密宗道次第广论》|Mìzōng dào cìdì guǎng lùn|The Great Treatise on the Tantric Stages of the Path to Enlightenment|Ngakrim Chenmo
-
  | 《菩提道次第略论》|Pútí dào cìdì lüè lùn|A Brief Commentary on the Steps of the Path to Enlightenment|
-
  | 《道歌》|Dào gē|Song of the Way|
-
  | 《安乐道论》|Ānlè dào lùn|Theory of Well-being|
-
  | 《乐道》|Lè dào|Path of Bliss|
-
  | 《菩提道次第直授》|Pútí dào cìdì zhí shòu|The direct teaching of the Bodhi path|
-
  | 《速道》|Sù dào|Fast Track|
-
  | 《道次第•纯金》|Dào cìdì•chún jīn|Pure Gold|
-
  | 《文殊口授》|Wénshū kǒushòu|Manjushri dictates|
-
  | 《善说精髓》|Shàn shuō jīngsuǐ|The essence of good talk / eloquence|
-
  | 《经庄严论》|Jīng zhuāngyán lùn|Sutra of Majesty|Mahāyāna-sūtrālaṃkāra|Ornament of Mahāyāna Sūtras
-
  | 《亲友集经》|Qīnyǒu jí jīng|Friends and relatives|Nagarjuna
-
  | 《胜乐金刚主续》|Shèng lè jīngāng zhǔ xù|Chakrasamvara Tantra|
-
  | 《桑布扎续》|Sāng bù zhá xù|Sambhota Tantra|Samputa Tantra|Hevajra
-
  | 《华严经》|Huá yán jīng|Huayan Sutra|Flower Ornament Scripture|(Mahāvaipulya Buddhāvataṃsaka Sūtra)| Avatamsaka Sutra
-
  | 《萨班教言》|Sà bān jiào yán|Sapan's teachings|Sakya Pandita|
-
  | 《现在佛陀现证三摩地经》|Xiànzài fótuó xiàn zhèng sān mó dì jīng|Now the Buddha has realized the Samadhi Sutra|
-
  | 《般若八千颂》|Bōrě bāqiān sòng|The Eight Thousand Poems of Prajna|
-
  | 《蓝宝书》|Lán bǎo shū|Sapphire Book / The Blue Annals|The Blue Compendium by Potowa
-
  | 《噶举五法》|Gá jǔ wǔ fǎ|The Five Ways of Kagyu|
-
  | 《阿底峡形相续》|Ā dǐ xiá xíngxiāng xù|Atisha Form Continuity|
-
  | 《宣誓教典》|Xuānshì jiàodiǎn|swearing scriptures|
-
  | 《善军请求续》|Shàn jūn qǐngqiú xù|Good Army Request Continued|
-
  | 《宝积经•父子相见会》|Bǎo jī jīng.Fùzǐ xiāng jiàn huì |ratnakūṭa sūtra|
-
  | 《二观察续》|Èr guānchá xù|Two observations continued|
-
  | 《金刚大持密续》|Jīngāng dà chí mì xù|Vajra Sutra|
-
  | 《珍雯达瓦传》|Zhēn wén dá wǎ chuán|Biography of Jenvin Dawa|
-
  | 《金刚手灌顶续》|Jīngāng shǒu guàndǐng xù|Vajra Hand Initiation Continued|Vajrapani
-
  | 《密集金刚根本续》|Mìjí jīngāng gēnběn xù|Dense Vajra Root Tantra|Vajrapani Tantra
-
  | 《金刚心要庄严续》|Jīngāng xīn yào zhuāngyán xù|The Vajra Heart must be solemnly continued|
-
  | 《上师法五十颂》|Shàng shī fǎ wǔshí sòng|Fifty Verses of Guru Devotion|Ashvagosha
-
  | 《金刚帐续》|Jīngāng zhàng xù|Indestructible Tent Tantra|Vajrapañjara Tantra
-
  | 《时轮金刚根本续》|Shí lún jīngāng gēnběn xù|Kalachakra Root Continuation|
-
  | 《俱舍论》|Jù shě lùn|Abhidharma-kośa-śāstra|Vasubandhu
-
  | 《道次第•甘露藏》|Dào cìdì•gānlù cáng|The Essential Nectar of the Holy Doctrine|
-
  | 《续部》|Xù bù|sequel|
-
  | 《二思惟续》|Èr sīwéi xù|Two thoughts continued|
-
  | 《吉祥三界颂》|Jíxiáng sānjiè sòng|Ode to the Three Realms of Auspiciousness|
-
  | 《甘露藏》|Gānlù cáng|Nectar|
-
  | 《楼阁经》|Lóugé jīng|Pavilion Sutra|
-
  | 《菩提道次第略论释》|Pútí dào cìdì lüè lùn shì|A Brief Commentary on the Steps of the Path to Bodhi|
-
  | 《华严经•普贤菩萨行愿品》|Pǔ xián púsà xíng yuàn pǐn|Samantabhadra Bodhisattva vows|
 http://www.buddhism.org/Sutras/3/sutra21.html
-
-
  | 《普贤行愿品》|Pǔ xián xíng yuàn pǐn||https://www.youtube.com/watch?v=lNmxC3Ip62c
-
  | 《中观四百颂》|Zhōng guān sìbǎi sòng|The Four Hundred Odes of the Middle View|Commentary on Aryadeva's Catuhsataka, the monumental work on Madhyamika philosophy|Aryadeva's “400 Stanzas on the Middle Way” - Thubten Chodron
-
  | 《毗奈耶经》|Pí nài yé jīng|Vinaya|
-
  | 《西藏王统记》|Xīzàng wángtǒngjì|Records of the King of Tibet|Clear Mirror on Royal Genealogy
-
  | 《亲友书》|Qīnyǒu shū|family and friends book|Book of Relatives and Friends|Nagarjuna
-
  | 《亲友集经》|||Vasubandhu
-
  | 《喻法集》|Yù fǎ jí|Collection of metaphors|Parables of Potoba
-
  | 《弟子书》|Dìzǐ shū|Disciple book|
-
  | 《善说宝匣论》|Shàn shuō bǎo xiá lùn|Good Talking about the Treasure Box|Ashvaghosha
+
+
 
 What is written by Ashvaghosha?
 Among the works attributed to him are the Mahayana-shraddhotpada-shastra (“The Awakening of Faith in the Mahayana”), the Buddhacarita (“The Life of Buddha”), in verse, and the Mahalankara (“Book of Glory”).
