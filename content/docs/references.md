@@ -138,65 +138,64 @@ Book 3
  | 《现观庄严论》|Xiàn guān zhuāngyán lùn|Ornament for Clear Realization|Abhisamaya-alaṅkāra|https://www.lotsawahouse.org/topics/abhisamayalankara/
  | 《菩提道炬论》|Pútí dào jù lùn|Lamp for the Path to Enlightenment| Jang-chub lam-gyi drön-ma|Atiśa Dīpaṃkara|https://www.lotsawahouse.org/indian-masters/atisha/lamp-path-enlightenment
  | 《菩提道次第广论》|Pútí dào cìdì guǎng lùn|The Great Treatise on the Stages of the Path to Enlightenment|Lam rim chen mo
- | 《菩提道次第摄颂》|Pútí dào cìdì shè sòng|Poetry of the Bodhi Path|A Song of Stages of the Path to Enlightenment|https://www.youtube.com/watch?v=aX276NJUqBA|Khensur Jangchup Choeden
-https://www.lamayeshe.com/article/hymn-experience
-https://www.lamayeshe.com/article/chapter/appendix-2-lines-experience
- | 《入菩萨行论》|Rù púsà xíng lùn|On Entering the Bodhisattva's Actions|Bodhisattvacaryāvatāra| Shantideva
+ | 《菩提道次第摄颂》|Pútí dào cìdì shè sòng|Poetry of the Bodhi Path|A Song of Stages of the Path to Enlightenment|https://www.youtube.com/watch?v=aX276NJUqBA|Khensur Jangchup Choeden|https://www.lamayeshe.com/article/hymn-experience
+https://www.lamayeshe.com/article/chapter/appendix-2-lines-experience|
+ | 《入菩萨行论》|Rù púsà xíng lùn|On Entering the Bodhisattva's Actions|Bodhisattvacaryāvatāra| Shantideva|
  | 《圣教次第论》|Shèng jiào cìdì lùn|The Order of the Holy Religion|
  | 《文殊真实名经》|Wénshū zhēnshí míng jīng|Manjushri's True Name|Mañjuśrī-Nāma-Saṃgīti|http://studybuddhism.com/en/advanced-studies/prayers-rituals/prayers/a-concert-of-names-of-manjushri
  | 《策励牌文》|Cèlì pái wén|Incentive card text|
- | 《密宗道次第广论》|Mìzōng dào cìdì guǎng lùn|The Great Treatise on the Tantric Stages of the Path to Enlightenment|Ngakrim Chenmo
+ | 《密宗道次第广论》|Mìzōng dào cìdì guǎng lùn|The Great Treatise on the Tantric Stages of the Path to Enlightenment|Ngakrim Chenmo|
  | 《菩提道次第略论》|Pútí dào cìdì lüè lùn|A Brief Commentary on the Steps of the Path to Enlightenment|
- | 《道歌》|Dào gē|Song of the Way|
+ | 《道歌》|Dào gē|Song of the Way||
  | 《安乐道论》|Ānlè dào lùn|Theory of Well-being|
- | 《乐道》|Lè dào|Path of Bliss|
+ | 《乐道》|Lè dào|Path of Bliss||
  | 《菩提道次第直授》|Pútí dào cìdì zhí shòu|The direct teaching of the Bodhi path|
- | 《速道》|Sù dào|Fast Track|
- | 《道次第•纯金》|Dào cìdì•chún jīn|Pure Gold|
- | 《文殊口授》|Wénshū kǒushòu|Manjushri dictates|
+ | 《速道》|Sù dào|Fast Track||
+ | 《道次第•纯金》|Dào cìdì•chún jīn|Pure Gold||
+ | 《文殊口授》|Wénshū kǒushòu|Manjushri dictates||
  | 《善说精髓》|Shàn shuō jīngsuǐ|The essence of good talk / eloquence|
- | 《经庄严论》|Jīng zhuāngyán lùn|Sutra of Majesty|Mahāyāna-sūtrālaṃkāra|Ornament of Mahāyāna Sūtras
- | 《亲友集经》|Qīnyǒu jí jīng|Friends and relatives|Nagarjuna
- | 《胜乐金刚主续》|Shèng lè jīngāng zhǔ xù|Chakrasamvara Tantra|
- | 《桑布扎续》|Sāng bù zhá xù|Sambhota Tantra|Samputa Tantra|Hevajra
- | 《华严经》|Huá yán jīng|Huayan Sutra|Flower Ornament Scripture|(Mahāvaipulya Buddhāvataṃsaka Sūtra)| Avatamsaka Sutra
- | 《萨班教言》|Sà bān jiào yán|Sapan's teachings|Sakya Pandita|
+ | 《经庄严论》|Jīng zhuāngyán lùn|Sutra of Majesty|Mahāyāna-sūtrālaṃkāra|Ornament of Mahāyāna Sūtras|
+ | 《亲友集经》|Qīnyǒu jí jīng|Friends and relatives|Nagarjuna|
+ | 《胜乐金刚主续》|Shèng lè jīngāng zhǔ xù|Chakrasamvara Tantra||
+ | 《桑布扎续》|Sāng bù zhá xù|Sambhota Tantra (Samputa Tantra)|Hevajra|
+ | 《华严经》|Huá yán jīng|Huayan Sutra|Flower Ornament Scripture(Mahāvaipulya Buddhāvataṃsaka Sūtra)| Avatamsaka Sutra
+ | 《萨班教言》|Sà bān jiào yán|Sapan's teachings|Sakya Pandita||
  | 《现在佛陀现证三摩地经》|Xiànzài fótuó xiàn zhèng sān mó dì jīng|Now the Buddha has realized the Samadhi Sutra|
- | 《般若八千颂》|Bōrě bāqiān sòng|The Eight Thousand Poems of Prajna|
- | 《蓝宝书》|Lán bǎo shū|Sapphire Book / The Blue Annals|The Blue Compendium by Potowa
- | 《噶举五法》|Gá jǔ wǔ fǎ|The Five Ways of Kagyu|
- | 《阿底峡形相续》|Ā dǐ xiá xíngxiāng xù|Atisha Form Continuity|
- | 《宣誓教典》|Xuānshì jiàodiǎn|swearing scriptures|
- | 《善军请求续》|Shàn jūn qǐngqiú xù|Good Army Request Continued|
- | 《宝积经•父子相见会》|Bǎo jī jīng.Fùzǐ xiāng jiàn huì |ratnakūṭa sūtra|
- | 《二观察续》|Èr guānchá xù|Two observations continued|
- | 《金刚大持密续》|Jīngāng dà chí mì xù|Vajra Sutra|
- | 《珍雯达瓦传》|Zhēn wén dá wǎ chuán|Biography of Jenvin Dawa|
- | 《金刚手灌顶续》|Jīngāng shǒu guàndǐng xù|Vajra Hand Initiation Continued|Vajrapani
- | 《密集金刚根本续》|Mìjí jīngāng gēnběn xù|Dense Vajra Root Tantra|Vajrapani Tantra
+ | 《般若八千颂》|Bōrě bāqiān sòng|The Eight Thousand Poems of Prajna||
+ | 《蓝宝书》|Lán bǎo shū|Sapphire Book / The Blue Annals|The Blue Compendium by Potowa|
+ | 《噶举五法》|Gá jǔ wǔ fǎ|The Five Ways of Kagyu||
+ | 《阿底峡形相续》|Ā dǐ xiá xíngxiāng xù|Atisha Form Continuity||
+ | 《宣誓教典》|Xuānshì jiàodiǎn|swearing scriptures||
+ | 《善军请求续》|Shàn jūn qǐngqiú xù|Good Army Request Continued||
+ | 《宝积经•父子相见会》|Bǎo jī jīng.Fùzǐ xiāng jiàn huì |Ratnakūṭa sūtra||
+ | 《二观察续》|Èr guānchá xù|Two observations continued||
+ | 《金刚大持密续》|Jīngāng dà chí mì xù|Vajra Sutra||
+ | 《珍雯达瓦传》|Zhēn wén dá wǎ chuán|Biography of Jenvin Dawa||
+ | 《金刚手灌顶续》|Jīngāng shǒu guàndǐng xù|Vajra Hand Initiation Continued|Vajrapani|
+ | 《密集金刚根本续》|Mìjí jīngāng gēnběn xù|Dense Vajra Root Tantra|Vajrapani Tantra|
  | 《金刚心要庄严续》|Jīngāng xīn yào zhuāngyán xù|The Vajra Heart must be solemnly continued|
- | 《上师法五十颂》|Shàng shī fǎ wǔshí sòng|Fifty Verses of Guru Devotion|Ashvagosha
- | 《金刚帐续》|Jīngāng zhàng xù|Indestructible Tent Tantra|Vajrapañjara Tantra
+ | 《上师法五十颂》|Shàng shī fǎ wǔshí sòng|Fifty Verses of Guru Devotion|Ashvagosha||
+ | 《金刚帐续》|Jīngāng zhàng xù|Indestructible Tent Tantra|Vajrapañjara Tantra||
  | 《时轮金刚根本续》|Shí lún jīngāng gēnběn xù|Kalachakra Root Continuation|
- | 《俱舍论》|Jù shě lùn|Abhidharma-kośa-śāstra|Vasubandhu
+ | 《俱舍论》|Jù shě lùn|Abhidharma-kośa-śāstra|Vasubandhu||
  | 《道次第•甘露藏》|Dào cìdì•gānlù cáng|The Essential Nectar of the Holy Doctrine|
  | 《续部》|Xù bù|sequel|
  | 《二思惟续》|Èr sīwéi xù|Two thoughts continued|
  | 《吉祥三界颂》|Jíxiáng sānjiè sòng|Ode to the Three Realms of Auspiciousness|
- | 《甘露藏》|Gānlù cáng|Nectar|
- | 《楼阁经》|Lóugé jīng|Pavilion Sutra|
+ | 《甘露藏》|Gānlù cáng|Nectar|||
+ | 《楼阁经》|Lóugé jīng|Pavilion Sutra|||
  | 《菩提道次第略论释》|Pútí dào cìdì lüè lùn shì|A Brief Commentary on the Steps of the Path to Bodhi|
  | 《华严经•普贤菩萨行愿品》|Pǔ xián púsà xíng yuàn pǐn|Samantabhadra Bodhisattva vows|
 http://www.buddhism.org/Sutras/3/sutra21.html
  | 《普贤行愿品》|Pǔ xián xíng yuàn pǐn||https://www.youtube.com/watch?v=lNmxC3Ip62c
- | 《中观四百颂》|Zhōng guān sìbǎi sòng|The Four Hundred Odes of the Middle View|Commentary on Aryadeva's Catuhsataka, the monumental work on Madhyamika philosophy|Aryadeva's “400 Stanzas on the Middle Way” - Thubten Chodron
- | 《毗奈耶经》|Pí nài yé jīng|Vinaya|
- | 《西藏王统记》|Xīzàng wángtǒngjì|Records of the King of Tibet|Clear Mirror on Royal Genealogy
+ | 《中观四百颂》|Zhōng guān sìbǎi sòng|The Four Hundred Odes of the Middle View|Commentary on Aryadeva's Catuhsataka, the monumental work on Madhyamika philosophy|Aryadeva's “400 Stanzas on the Middle Way” - Thubten Chodron|
+ | 《毗奈耶经》|Pí nài yé jīng|Vinaya|||
+ | 《西藏王统记》|Xīzàng wángtǒngjì|Records of the King of Tibet|Clear Mirror on Royal Genealogy|
  | 《亲友书》|Qīnyǒu shū|family and friends book|Book of Relatives and Friends|Nagarjuna
  | 《亲友集经》|||Vasubandhu
- | 《喻法集》|Yù fǎ jí|Collection of metaphors|Parables of Potoba
- | 《弟子书》|Dìzǐ shū|Disciple book|
- | 《善说宝匣论》|Shàn shuō bǎo xiá lùn|Good Talking about the Treasure Box|Ashvaghosha
+ | 《喻法集》|Yù fǎ jí|Collection of metaphors|Parables of Potoba||
+ | 《弟子书》|Dìzǐ shū|Disciple book|||
+ | 《善说宝匣论》|Shàn shuō bǎo xiá lùn|Good Talking about the Treasure Box|Ashvaghosha||
 
 
 
