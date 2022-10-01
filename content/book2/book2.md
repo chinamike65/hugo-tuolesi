@@ -234,17 +234,17 @@ draft: false
 
 **目录**
 
-四皈依....................................16
+四皈依.................................... 16
 
-上师瑜伽..................................36
+上师瑜伽.................................. 36
 
-曼札.....................................103
+曼札..................................... 103
 
-金刚萨埵.................................144
+金刚萨埵................................. 144
 
-大礼拜...................................181
+大礼拜................................... 181
 
-陀乐寺简介...............................190
+陀乐寺简介............................... 190
 
 ![宗喀巴师徒三尊](/images/tsongkhapa3apprentices.png)
 
@@ -252,37 +252,99 @@ draft: false
 ![皈依境](/images/refuge.png)
 
 
-### 四 皈 依
+#### 四 皈 依
 
-（中文）
+**（中文）- Chinese**
 
 皈依上师
 
+Guīyī shàng shī
+
 皈依佛
+
+Guīyī fó
 
 皈依法
 
+Guīyī fǎ
+
 皈依僧
 
-（梵文）
+Guīyī sēng
+
+---
+
+**（梵文）- Sanskrit**
 
 那摩咕噜贝
 
+Nà mó gūlū bèi
+
 那摩布达雅
+
+Nà mó bù dá yǎ
+
+Namo Buddhaya
 
 那摩达玛雅
 
+Nà mó dá mǎyǎ
+
+Namo Dharmaya
+
 那美桑噶雅
 
-（藏文）
+Nà měi sāng gá yǎ
+
+Namo Sanghaya
+
+---
+
+**（藏文）- Tibetan**
 
 喇嘛拉交斯奇哦
 
+Lǎma lā jiāo sī qí ó
+
 桑杰拉交斯奇
+
+Sāng jié lā jiāo sī qí
 
 哦曲拉交斯奇哦
 
+Ó qū lā jiāo sī qí ó
+
 格登拉交斯奇哦
+
+Gēdēng lā jiāo sī qí ó
+
+---
+
+Sanjay, cho dang gedung la kyapsutsiwo
+
+Lama, Yidam, Khandro la kyapsutsiwo
+
+Tsa, Lung, Tigle la kyapsutsiwo
+
+Chuku, Lonku, Truku la kyapsutsiwo
+
+Rang sem tong-sel ngowo la kyapsutsiwo
+
+---
+
+**English**
+
+I take refuge in the Buddha, Dharma, Sangha
+
+I take refuge in the teacher, the archetype, the Dakinis
+
+I take Refuge in the channels, the Qi, the life force drops
+
+I take refuge in the Dharmakaya, Sambhogakaya, Nirmanakaya
+
+In the true nature of my own mind emptiness-clarity, I take refuge
+
+---
 
 ### 四 皈 依
 
