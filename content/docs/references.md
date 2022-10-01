@@ -78,16 +78,16 @@ Book 1
  | 《俱舍论》|Jù shě lùn|Abhidharma-kośa-śāstra|Vasubandhu
  | 《释量论》|Shì liàng lùn|Pramāṇavārttika|Commentary on Valid Cognition|Dharmakīrti
  | 《入行论》|Rùxíng lùn|entry theory
- | 《入中论》|Rù zhōng lùn|Entrance to the Middle Way|Madhyamakāvatāra|Candrakīrti|Yuecheng Boddhisattva
- | 《四百论》|Sìbǎi lùn|Four Hundred Verses
- | 《大藏经》|Qiánlóng dàzàng jīng|Qianlong Tripitaka
+ | 《入中论》|Rù zhōng lùn|Entrance to the Middle Way (Madhyamakāvatāra)|Candrakīrti(Yuecheng Boddhisattva)|
+ | 《四百论》|Sìbǎi lùn|Four Hundred Verses|
+ | 《大藏经》|Qiánlóng dàzàng jīng|Qianlong Tripitaka|
  | 《三士道》|Sān shìdào|San Shi Dao|The Three Principal Aspects of the Path|
- | 《念诵集》|Niàn sòng jí|chanting set
- | 《易经》|Yì jīng|Book of Changes
- | 《吉祥经》|Jíxiáng jīng|Auspicious Sutra
- | 《乾隆大藏经》|Qiánlóng dàzàng jīng|Qianlong Tripitaka
- | 《弘一法师全集》|Hóngyī fǎshī quánjí|The Complete Works of Master Hongyi
- | 《般若经》|Bōrě jīng|Prajna Paramita Sutra|
+ | 《念诵集》|Niàn sòng jí|chanting set|
+ | 《易经》|Yì jīng|Book of Changes|
+ | 《吉祥经》|Jíxiáng jīng|Auspicious Sutra|
+ | 《乾隆大藏经》|Qiánlóng dàzàng jīng|Qianlong Tripitaka|
+ | 《弘一法师全集》|Hóngyī fǎshī quánjí|The Complete Works of Master Hongyi|
+ | 《般若经》|Bōrě jīng|Prajna Paramita Sutra|||
 
 
 Book 2
