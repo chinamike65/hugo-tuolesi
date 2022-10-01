@@ -40,8 +40,8 @@ Book 1
  | 《七支供养》|Qī zhī gòngyǎng|Seven Branch Offering | |
  | 《曼札供养文》|Màn zhá gòngyǎng wén|Mandhala offering text |
  | 《普贤行愿品》|Pǔ xián xíng yuàn pǐn||https://www.youtube.com/watch?v=lNmxC3Ip62c |
- | 《格鲁善教昌盛愿辞》|Gé lǔ shànjiào chāngshèng yuàn cí| | 
- | 《心经》|Xīn jīng|Heart Sutra|Gelukha's Prosperity Wishes | 
+ | 《格鲁善教昌盛愿辞》|Gé lǔ shànjiào chāngshèng yuàn cí|Gelugpa Prosperity Wishes| 
+ | 《心经》|Xīn jīng|Heart Sutra| | 
  | 《四皈依》|Sì guīyī|Four Refuges | 
  | 《二十一尊度母礼赞经》|Èrshíyī zūn dù mǔ lǐzàn jīng|Twenty-one Tara Prayer Sutras |
  | 《药师佛仪轨》|Yàoshī fó yí guǐ|Medicine Buddha Ritual | 
@@ -56,7 +56,7 @@ Book 1
  | 《三士道纲要》|Sān shìdào gāngyào|Outline of Sanshidao|
  | 《安乐道论》|Ānlè dào lùn|Theory of Well-being|
  | 《文殊根本续》|Wénshū gēnběn xù|Manjusri root continuation||
- | 《金刚手根本续》|Jīngāng shǒu gēnběn xù|
+ | 《金刚手根本续》|Jīngāng shǒu gēnběn xù|Vajrapani Root Tantra|
  | 《宗喀巴大师祈请文》|Zōng kā bā dàshī qí qǐng wén|Prayer of Master Tsongkhapa|
  | 《佛说放钵经》|Fú shuō fàng bō jīng|Buddha said the alms bowl|
  | 《心地观经》|Xīndì guān jīng|contemplation of the heart|
@@ -78,7 +78,7 @@ Book 1
  | 《俱舍论》|Jù shě lùn|Abhidharma-kośa-śāstra|Vasubandhu
  | 《释量论》|Shì liàng lùn|Commentary on Valid Cognition (Pramāṇavārttika)|Dharmakīrti
  | 《入行论》|Rùxíng lùn|entry theory
- | 《入中论》|Rù zhōng lùn|Entrance to the Middle Way (Madhyamakāvatāra)|Candrakīrti(Yuecheng Boddhisattva)|
+ | 《入中论》|Rù zhōng lùn|Entrance to the Middle Way (Madhyamakāvatāra)|Candrakīrti (Yuecheng Boddhisattva)|
  | 《四百论》|Sìbǎi lùn|Four Hundred Verses|
  | 《大藏经》|Qiánlóng dàzàng jīng|Qianlong Tripitaka|
  | 《三士道》|Sān shìdào|(San Shi Dao) The Three Principal Aspects of the Path|
@@ -95,7 +95,7 @@ Book 2
 
 | Chinese | Pinyin | English | Author | Notes |
 | ------- | ------ | ------- | ------ | -------------------------------- |
- | 《哲学（堆扎）注解》|Zhéxué (duī zhā) zhùjiě|Philosophical Notes
+ | 《哲学（堆扎）注解》|Zhéxué (duī zhā) zhùjiě|Philosophical Notes|
  | 《金刚般若波罗蜜多经注解》|Jīngāng bōrě bōluómì duō jīng zhùjiě|Commentary on the Vajra Prajnaparamita Sutra|
  | 《三士道三派上师口授》|Sān shìdào sān pài shàng shī kǒushòu|Oral dictation by the masters of the three schools of Sanshidao|
  | 《金刚萨埵仪轨及实修法》|Jīngāng sà duǒ yí guǐ jí shí xiūfǎ|Vajrasattva Ritual and Practical Practice|
