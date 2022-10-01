@@ -1,4 +1,4 @@
-baseURL = 'https://tuo-le-si.herokuapp.com/'
+baseURL = 'https://gray-forest-0484e9903.1.azurestaticapps.net/'
 languageCode = 'zh-cn'
 title = 'Tuo Le Si English'
 theme = "hugo-theme-learn"
@@ -11,7 +11,7 @@ theme = "hugo-theme-learn"
   # Author of the site, will be used in meta information
   author = "Michael Smith"
   # Description of the site, will be used in meta information
-  description = "A collection of books by Vajra Master Ah Wang Gyatso - TuoLeSi"
+  description = "A collection of books by Vajra Master Ah Wang Gyatso - TuoLeSi Monestary"
   # Shows a checkmark for visited pages on the menu
   showVisitedLinks = true
   # Disable search function. It will hide search bar
