@@ -8,7 +8,7 @@ draft: false
 
 金剛薩埵菩薩
 
-Jīngāng Sàduǒ Púsà
+Jīn gāng Sà duǒ Pú sà
 
 唵:
 
@@ -16,7 +16,7 @@ Jīngāng Sàduǒ Púsà
 
 斡指囉薩埵
 
-Wòzīluōsàduǒ
+Wò zī luō sà duǒ
 
 薩摩耶 摩奴巴拉耶!
 
@@ -125,7 +125,7 @@ Wòzīlī Fāwǎ Máhē Sàmóyé Sàduǒ A
 
 om benza sato samaya manu palaya benza sato té nopa tishta dridho mé bhava sutokhayo mé bhava supokhayo mé bhava anurakto mé bhava sarva siddhi mé prayatsa sarva karma sutsa mé tsittam shré yah kuru hung ha ha ha ha ho bhagavan sarva tathagata benza ma mé muntsa badzra bhava maha samayasato ah hung pé
 
-##### ཨོཾ་ བཛྲ་སཏྭ་ས་མ་ཡ་མ་ནུ་པཱ་ལ་ཡ།
+#### **ཨོཾ་ བཛྲ་སཏྭ་ས་མ་ཡ་མ་ནུ་པཱ་ལ་ཡ།**
 
 OM BENZA SATA SAMAYA MANU PALAYA
 
