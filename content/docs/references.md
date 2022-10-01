@@ -219,38 +219,22 @@ Among the works attributed to him are the Mahayana-shraddhotpada-shastra (“The
  | 《开示如来秘密不可思议经》|Kāi shì rúlái mìmì bùkěsīyì jīng|Revealing the Tathagata's Secret|| 
  
  
- ---
- Inconceivable Sutra|Tathāgataguhyasūtra
-
-The Tathāgatagarbha sūtra opens in Rājagṛha (present-day Rajgir) and describes a miraculous display by the Buddha of a myriad tathāgatas seated in the calyx of each of a copious array of gigantic lotuses floating in the sky, which then blacken and rot away. The body of the scripture follows, giving nine similes for the hidden potential of sentient beings to attain liberation. According to the similes, this hidden potential resembles the following:
-
-1. brightly shining tathāgatas sitting inside withered, rotting lotus flowers;
-2. honey inside a hive fiercely guarded by bees;
-3. the kernel of a cereal grain, encased in the husk;
-4. a gold nugget in a pile of excrement;
-5. a hidden treasure buried beneath the house of a poor person;
-6. the sprout inside a seed;
-7. a statuary image of a tathāgata wrapped in rotten rags and dropped by the wayside in a dangerous wasteland;
-8. the embryo of a cakravartin (universal monarch) carried in the womb of an unsuspecting and destitute mother; and
-9. golden figures within the grubby clay molds that are used to cast them, before the mold is broken.
-
-The sūtra closes by describing the merit that accrues to one who propagates the text and deprecates the comparative value of the veneration of the buddhas. As an illustration of the power of the text, there follows a story of a past buddha, Sadāpramutkaraśmi, who always emitted a great and wondrous light from his body; he preached the Tathāgatagarbha sūtra at the request of the bodhisattva Anantaraśmi, and countless bodhisattvas attained supreme and perfect awakening as a result. The Buddha’s disciple Ānanda then asks from how many buddhas one must hear the Tathāgatagarbha sūtra, in order to become perfected (niryāta) and is told that it varies from a hundred buddhas to a myriad. Brief sections then praise one who holds the Tathāgatagarbha sūtra in his or her hands, and onlookers delight and rejoice.
-
+ 
 ---
 
 | Chinese | Pinyin | English | Author | Notes |
 | ------- | ------ | ------- | ------ | -------------------------------- |
- | 《喻赞》|Yù zàn|Blessing of Speech|
- | 《宝积经•谛者品》|Bǎo jī jīng•dì zhě pǐn|Treasure Accumulation Sutra|
- | 《百五十赞》|Bǎi wǔshí zàn|Hymn of 150 Verses|Praise in One Hundred and Fifty Verses
+ | 《喻赞》|Yù zàn|Blessing of Speech||
+ | 《宝积经•谛者品》|Bǎo jī jīng•dì zhě pǐn|Treasure Accumulation Sutra||
+ | 《百五十赞》|Bǎi wǔshí zàn|Praise in One Hundred and Fifty Verses||
  | 《赞应赞》|Zàn yīng zàn|Like to like|
- | 《正摄法经》|Zhèng shè fǎ jīng|orthodoxy|
- | 《随念三宝经》|Suí niàn sānbǎo jīng|The Noble Sūtra of Recalling the Three Jewels|
- | 《圣者赞》|Shèng zhě zàn|the saint|Praise of the Sages|
- | 《殊胜赞》|Shū shèng zàn|Exalted Praise|
- | 《大般涅槃经》|Dà bān nièpán jīng|Mahāparinirvāṇa Sūtra|Great Gone Beyond Sorrow|
- | 《劝发增上意乐经》|Quàn fā zēng shàng yì lè jīng|Sutra of Persuasion to Increase Inspiration and Happiness|Aryadhyasayasamcodana-nama-ma hayana-sutra
- | 《三摩地王经》|Sān mó de wáng jīng|The King of Samādhis, the Revealed Equality of the Nature of All Phenomena|Samādhirāja|https://read.84000.co/translation/UT22084-055-001.html
+ | 《正摄法经》|Zhèng shè fǎ jīng|orthodoxy||
+ | 《随念三宝经》|Suí niàn sānbǎo jīng|The Noble Sūtra of Recalling the Three Jewels||
+ | 《圣者赞》|Shèng zhě zàn|the saint|Praise of the Sages||
+ | 《殊胜赞》|Shū shèng zàn|Exalted Praise||
+ | 《大般涅槃经》|Dà bān nièpán jīng|Mahāparinirvāṇa Sūtra|Great Gone Beyond Sorrow||
+ | 《劝发增上意乐经》|Quàn fā zēng shàng yì lè jīng|Sutra of Persuasion to Increase Inspiration and Happiness|Aryadhyasayasamcodana-nama-ma hayana-sutra|
+ | 《三摩地王经》|Sān mó de wáng jīng|The King of Samādhis, the Revealed Equality of the Nature of All Phenomena|Samādhirāja|https://read.84000.co/translation/UT22084-055-001.html|
  | 《观音经》|Guānyīn jīng|Avalokitesvara Sutra|
  | 《阿阇世王授决经》|Ā dū shì wáng shòu jué jīng|King Ajataseya's Sutra of Judgment|
  | 《摄波罗蜜多论》|Shè bōluómì duō lùn|Taking Paramita|
@@ -264,6 +248,115 @@ The sūtra closes by describing the merit that accrues to one who propagates the
 
 
 ---
+
+
+Book 4
+------
+
+| Chinese | Pinyin | English | Author | Notes |
+| ------- | ------ | ------- | ------ | -------------------------------- |
+ | 《菩提道次第摄颂》|Pútí dào cìdì shè sòng|Poetry of the Bodhi Path|A Song of Stages of the Path to Enlightenment|https://www.youtube.com/watch?v=aX276NJUqBA|Khensur Jangchup Choeden
+ | 《菩提道次第纲要》|||
+ | 《亲友书》|Qīnyǒu shū|family and friends book|Letter to a Friend|Nagarjuna
+ | 《广大游戏经》|Guǎngdà yóuxì jīng|The vast game|
+ | 《入菩萨行论》|Rù púsà xíng lùn|On Entering the Bodhisattva's Actions|Bodhisattvacaryāvatāra|Shantideva|The Ākāśagarbha Sūtra
+ | 《资粮论》|Zī liáng lùn | Abundance theory| Sambhara-parikatha | The Advice for Gathering Accumulations|Vasubandhu
+ | 《释量论》|Shì liàng lùn|Pramāṇavārttika|Commentary on Valid Cognition|Dharmakīrti
+ | 《大乘阿毗达摩集论》|Dàchéng ā pí dá mó jí lùn|The Mahayana Abhidharma
+ | 《法身偈》|Fǎshēn jì|Dharmakaya|https://www.youtube.com/watch?v=OqQ9q6O3EUQ
+ | 《入中论》|Rù zhōng lùn|Entrance to the Middle Way|Madhyamakāvatāra|Candrakīrti|Yuecheng Boddhisattva
+ | 《俱舍论》|Jù shě lùn|Abhidharma-kośa-śāstra|Vasubandhu
+ | 《经庄严论》|Jīng zhuāngyán lùn|Sutra of Majesty|Mahāyāna-sūtrālaṃkāra|Ornament of Mahāyāna Sūtras
+ | 《金刚经》|Jīngāng jīng|Diamond Sutra
+ | 《心经》|Xīn jīng|Heart Sutra|
+ | 《菩提道次第广论》|Pútí dào cìdì guǎng lùn|The Great Treatise on the Stages of the Path to Enlightenment|Lam rim chen mo
+ | 《密宗根本续》|Mìzōng gēnběn xù|Tantric Root Continuation
+ | 《地藏十轮经》|De cáng shí lún jīng|Ksitigarbha Ten Wheels Sutra|
+ | 《开经偈》|Kāi jīng jì|opening verses|
+ | 《大乘宝要义论》|Dàchéng bǎo yàoyì lùn|The Essence of Mahayana Treasures|
+ | 《华严经》|Huá yán jīng|Huayan Sutra  (Flower Ornament Scripture)|(Mahāvaipulya Buddhāvataṃsaka Sūtra)| Avatamsaka Sutra|
+ | 《宝鬘论》|Bǎo mán lùn |The theory of treasure||
+ | 《正摄法经》|Zhèng shè fǎ jīng|orthodoxy|
+ | 《辨中边论》|Biàn zhōng biān lùn|Madhyantavibhaga|Distinguishing the Middle from Extremes|Asanga - Maitreya||
+ | 《楞伽经》|Léngjiā jīng|Langkavatara Sutra|
+ | 《大鼓经》|Dàgǔ jīng|Drum Sutra|||
+ | 《大云经》|Dà yún jīng|Great Cloud Classic||
+ | 《文殊根本续》|Wénshū gēnběn xù|Manjusri root continuation||
+ | 《智慧百论》|Zhìhuì bǎi lùn|One hundred essays on wisdom|
+ | 《胜道启门颂》|Shèng dào qǐ mén sòng|Foundation of All Good Qualities|
+ | 《证道歌》|Zhèng dào gē|Song of the True Path|
+ | 《般若经》|Bōrě jīng|Prajna Paramita Sutra|
+ | 《大般若经》|Dà bōrě jīng|Prajna Paramita Sutra - Perfection of Wisdom|https://www.youtube.com/watch?v=3ErG5PE6QyE|
+ | 《菩提道次第纲要》|Pútí dào cìdì gāngyào|Outline of the Bodhi Path|
+ | 《吉祥经》|Jíxiáng jīng|Auspicious Sutra|
+ | 《乾隆大藏经》|Qiánlóng dàzàng jīng|Qianlong Tripitaka|
+ | 《弘一法师全集》|Hóngyī fǎshī quánjí|The Complete Works of Master Hongyi|
+
+
+
+Book 5 
+---
+
+| Chinese | Pinyin | English | Author | Notes |
+| ------- | ------ | ------- | ------ | -------------------------------- |
+ | 《心经》|Xīn jīng|Heart Sutra|
+ | 《般若经》|Bōrě jīng|Prajna Paramita Sutra|
+ | 《大般若经》|Dà bōrě jīng|Prajna Paramita Sutra - Perfection of Wisdom|https://www.youtube.com/watch?v=3ErG5PE6QyE|
+ | 《般若波罗蜜多心经》|Bōrě bōluómì duō xīnjīng|Prajnaparamita Heart Sutra|
+ | 《释量论》|Shì liàng lùn|Pramāṇavārttika|Commentary on Valid Cognition|Dharmakīrti
+ | 《现观庄严论》|Xiàn guān zhuāngyán lùn|Present View of Majesty|
+ | 《中观论》|Zhōng guān lùn|Madhyamika|
+ | 《俱舍论》|Jù shě lùn|Abhidharma-kośa-śāstra|Vasubandhu
+ | 《戒律论》|Jièlǜ lùn|precepts|
+ | 《普贤行愿品》|Pǔ xián xíng yuàn pǐn|Samantabhadra's Vows|https://www.youtube.com/watch?v=3HY0hXcuirw|
+ | 《入菩萨行论》|Rù púsà xíng lùn|Entering the Bodhisattva Path|
+ | 《金刚经》|Jīngāng jīng|Diamond Sutra|
+ | 《掌中解脱》|Zhǎngzhōng jiětuō|Liberation in the palm of your hand|
+ | 《菩提道次第广论》|Pútí dào cìdì guǎng lùn|The Great Treatise on the Stages of the Path to Enlightenment|Lam rim chen mo|
+ | 《中观宝鬘论》|Zhōng guān bǎo mán lùn|The Madhyamika Theory||
+ | 《开示如来秘密不可思议经》|Kāi shì rúlái mìmì bùkěsīyì jīng|Revealing the Tathagata's Secret Inconceivable Sutra||
+ | 《毗奈耶经》|Pí nài yé jīng|Vinaya||
+ | 《宝积经•谛者品》|Bǎo jī jīng•dì zhě pǐn|Treasure Accumulation Sutra||
+ | 《百五十赞》|Bǎi wǔshí zàn|Hymn of 150 Verses|Praise in One Hundred and Fifty Verses|
+ | 《赞应赞》|Zàn yīng zàn|Like to like|||
+ | 《大乘阿毗达摩集论》|Dàchéng ā pí dá mó jí lùn|The Mahayana Abhidhamma|lotsawahouse.org/tibetan-masters/tsongkhapa/|
+ | 《法身偈》|Fǎshēn jì|Dharmakaya||
+ | 《入中论》|Rù zhōng lùn|Entering the middle theory||
+ | 《珍雯达瓦传》|Zhēn wén dá wǎ chuán|Biography of Jenvin Dawa||
+ | 《甘珠儿》|Gān zhū er|Kangyur||
+ | 《摩诃般若波罗蜜大明咒经》|Mó hē bōrě bōluómì dàmíng zhòu jīng|Maha Prajnaparamita Great Bright Mantra|
+ | 《普遍智藏般若波罗蜜多心经》|Pǔbiàn zhì cáng bōrě bōluómì duō xīnjīng|Universal Knowledge Store Prajnaparamita Heart Sutra|
+ | 《般若波罗蜜多心经》|Bōrě bōluómì duō xīnjīng|Prajnaparamita Heart Sutra|
+ | 《佛说圣佛母般若波罗蜜多经》|Fú shuō shèng fú mǔ bōrě bōluómì duō jīng|The Buddha said the Prajnaparamita Sutra||
+ | 《薄伽梵母智慧到彼岸心经》|Báojiāfàn mǔ zhìhuì dào bǐ'àn xīnjīng|Bhagavan's Wisdom to the Other Shore Heart Sutra||
+ | 《乾隆大藏经》|Qiánlóng dàzàng jīng|Qianlong Tripitaka||
+ | 《弘一法师全集》|Hóngyī fǎshī quánjí|The Complete Works of Master Hongyi||
+
+---
+
+After I pass away
+
+And my pure doctrine is absent,
+
+You will appear as an ordinary being,
+
+Performing the deeds of a Buddha
+
+And establishing the Joyful Land, the great Protector,
+
+In the Land of the Snows.
+
+---
+
+
+http://www.cttbusa.org/sutratexts.asp.html
+
+
+
+studying logic Abhisamayālaṃkāra, Madhyamaka, Abhidharmakośa, Pramāṇavārttika and Vinaya, the major subjects of the Gelug monastic curriculum
+
+http://www.thezensite.com/ZenEssays/Miscellaneous/Buddhism_by_Numbers.html
+
 Candrakīrti = Yuecheng Boddhisattva
 
 
@@ -296,110 +389,20 @@ We see the teacher as the Buddha, first of all so that we don’t get attached t
 The important thing is to realize that even in a traditional guru/student relationship, it’s not really so necessary to always be around the guru. Once one has made a connection, even if one doesn’t see the guru very often and the guru is very far away, still one can keep the inner heart connection. For example, in the Tibetan tradition, there are very beautiful prayers for calling on the guru from afar. And especially if these are set to a melody and one can sing them from the heart—they create that connection with the guru, because it’s a mind-to-mind connection. Sometimes, even if the lama is sitting in front of you, you can feel there’s a thousand miles between you; likewise, you can be a thousand miles away and feel that the guru is right there, sitting in your heart. At the same time, one has to realize that the ultimate guru is one’s own buddha nature: it’s the nature of the mind, and one has to cultivate being able to be centered within one’s own innate awareness and not depend so much on an external relationship. Because when one is in the nature of the mind, then one is indeed one with the guru. This is why when we do guru yoga we absorb the guru into ourselves—to realize that his/her mind and our own mind have become one. This is very important to realize. The ultimate guru is our own innate wisdom, and if we can access and cultivate that, then the enthusiasm for the Dharma just bubbles up endlessly. It doesn’t depend on external shots of inspiration from an actual person.
 
 
-Book 4
-------
-
-| Chinese | Pinyin | English | Author | Notes |
-| ------- | ------ | ------- | ------ | -------------------------------- |
- | 《菩提道次第摄颂》|Pútí dào cìdì shè sòng|Poetry of the Bodhi Path|A Song of Stages of the Path to Enlightenment|https://www.youtube.com/watch?v=aX276NJUqBA|Khensur Jangchup Choeden
- | 《菩提道次第纲要》|||
- | 《亲友书》|Qīnyǒu shū|family and friends book|Letter to a Friend|Nagarjuna
- | 《广大游戏经》|Guǎngdà yóuxì jīng|The vast game|
- | 《入菩萨行论》|Rù púsà xíng lùn|On Entering the Bodhisattva's Actions|Bodhisattvacaryāvatāra|Shantideva|The Ākāśagarbha Sūtra
- | 《资粮论》|Zī liáng lùn | Abundance theory| Sambhara-parikatha | The Advice for Gathering Accumulations|Vasubandhu
- | 《释量论》|Shì liàng lùn|Pramāṇavārttika|Commentary on Valid Cognition|Dharmakīrti
- | 《大乘阿毗达摩集论》|Dàchéng ā pí dá mó jí lùn|The Mahayana Abhidharma
- | 《法身偈》|Fǎshēn jì|Dharmakaya|https://www.youtube.com/watch?v=OqQ9q6O3EUQ
- | 《入中论》|Rù zhōng lùn|Entrance to the Middle Way|Madhyamakāvatāra|Candrakīrti|Yuecheng Boddhisattva
- | 《俱舍论》|Jù shě lùn|Abhidharma-kośa-śāstra|Vasubandhu
- | 《经庄严论》|Jīng zhuāngyán lùn|Sutra of Majesty|Mahāyāna-sūtrālaṃkāra|Ornament of Mahāyāna Sūtras
- | 《金刚经》|Jīngāng jīng|Diamond Sutra
- | 《心经》|Xīn jīng|Heart Sutra|
- | 《菩提道次第广论》|Pútí dào cìdì guǎng lùn|The Great Treatise on the Stages of the Path to Enlightenment|Lam rim chen mo
- | 《密宗根本续》|Mìzōng gēnběn xù|Tantric Root Continuation
- | 《地藏十轮经》|De cáng shí lún jīng|Ksitigarbha Ten Wheels Sutra|
- | 《开经偈》|Kāi jīng jì|opening verses|
- | 《大乘宝要义论》|Dàchéng bǎo yàoyì lùn|The Essence of Mahayana Treasures|
- | 《华严经》|Huá yán jīng|Huayan Sutra|Flower Ornament Scripture|(Mahāvaipulya Buddhāvataṃsaka Sūtra)| Avatamsaka Sutra
- | 《宝鬘论》|Bǎo mán lùn - Shèng dào bǎo mán lùn|The theory of treasure|
- | 《正摄法经》|Zhèng shè fǎ jīng|orthodoxy|
- | 《辨中边论》|Biàn zhōng biān lùn|Madhyantavibhaga|Distinguishing the Middle from Extremes|Asanga - Maitreya|
- | 《楞伽经》|Léngjiā jīng|Langkavatara Sutra|
- | 《大鼓经》|Dàgǔ jīng|Drum Sutra|||
- | 《大云经》|Dà yún jīng|Great Cloud Classic||
- | 《文殊根本续》|Wénshū gēnběn xù|Manjusri root continuation||
- | 《智慧百论》|Zhìhuì bǎi lùn|One hundred essays on wisdom|
- | 《胜道启门颂》|Shèng dào qǐ mén sòng|Foundation of All Good Qualities|
- | 《证道歌》|Zhèng dào gē|Song of the True Path|
- | 《般若经》|Bōrě jīng|Prajna Paramita Sutra|
- | 《大般若经》|Dà bōrě jīng|Prajna Paramita Sutra - Perfection of Wisdom|https://www.youtube.com/watch?v=3ErG5PE6QyE
- | 《菩提道次第纲要》|Pútí dào cìdì gāngyào|Outline of the Bodhi Path
- | 《吉祥经》|Jíxiáng jīng|Auspicious Sutra
- | 《乾隆大藏经》|Qiánlóng dàzàng jīng|Qianlong Tripitaka
- | 《弘一法师全集》|Hóngyī fǎshī quánjí|The Complete Works of Master Hongyi
-
-
-studying logic Abhisamayālaṃkāra, Madhyamaka, Abhidharmakośa, Pramāṇavārttika and Vinaya, the major subjects of the Gelug monastic curriculum
-
-http://www.thezensite.com/ZenEssays/Miscellaneous/Buddhism_by_Numbers.html
-
-
-Book 5 
 ---
+ Inconceivable Sutra|Tathāgataguhyasūtra
 
-| Chinese | Pinyin | English | Author | Notes |
-| ------- | ------ | ------- | ------ | -------------------------------- |
- | 《心经》|Xīn jīng|Heart Sutra|
- | 《般若经》|Bōrě jīng|Prajna Paramita Sutra|
- | 《大般若经》|Dà bōrě jīng|Prajna Paramita Sutra - Perfection of Wisdom|https://www.youtube.com/watch?v=3ErG5PE6QyE
- | 《般若波罗蜜多心经》|Bōrě bōluómì duō xīnjīng|Prajnaparamita Heart Sutra
- | 《释量论》|Shì liàng lùn|Pramāṇavārttika|Commentary on Valid Cognition|Dharmakīrti
- | 《现观庄严论》|Xiàn guān zhuāngyán lùn|Present View of Majesty
- | 《中观论》|Zhōng guān lùn|Madhyamika
- | 《俱舍论》|Jù shě lùn|Abhidharma-kośa-śāstra|Vasubandhu
- | 《戒律论》|Jièlǜ lùn|precepts
- | 《普贤行愿品》|Pǔ xián xíng yuàn pǐn|Samantabhadra's Vows |https://www.youtube.com/watch?v=3HY0hXcuirw
- | 《入菩萨行论》|Rù púsà xíng lùn|Entering the Bodhisattva Path
- | 《金刚经》|Jīngāng jīng|Diamond Sutra
- | 《掌中解脱》|Zhǎngzhōng jiětuō|Liberation in the palm of your hand
- | 《菩提道次第广论》|Pútí dào cìdì guǎng lùn|The Great Treatise on the Stages of the Path to Enlightenment|Lam rim chen mo
- | 《中观宝鬘论》|Zhōng guān bǎo mán lùn|The Madhyamika Theory||
- | 《开示如来秘密不可思议经》|Kāi shì rúlái mìmì bùkěsīyì jīng|Revealing the Tathagata's Secret Inconceivable Sutra||
- | 《毗奈耶经》|Pí nài yé jīng|Vinaya
- | 《宝积经•谛者品》|Bǎo jī jīng•dì zhě pǐn|Treasure Accumulation Sutra||
- | 《百五十赞》|Bǎi wǔshí zàn|Hymn of 150 Verses|Praise in One Hundred and Fifty Verses
- | 《赞应赞》|Zàn yīng zàn|Like to like|
- | 《大乘阿毗达摩集论》|Dàchéng ā pí dá mó jí lùn|The Mahayana Abhidhamma||
-lotsawahouse.org/tibetan-masters/tsongkhapa/
- | 《法身偈》|Fǎshēn jì|Dharmakaya|
- | 《入中论》|Rù zhōng lùn|Entering the middle theory|
- | 《珍雯达瓦传》|Zhēn wén dá wǎ chuán|Biography of Jenvin Dawa|
- | 《甘珠儿》|Gān zhū er|Kangyur|
- | 《摩诃般若波罗蜜大明咒经》|Mó hē bōrě bōluómì dàmíng zhòu jīng|Maha Prajnaparamita Great Bright Mantra|
- | 《普遍智藏般若波罗蜜多心经》|Pǔbiàn zhì cáng bōrě bōluómì duō xīnjīng|Universal Knowledge Store Prajnaparamita Heart Sutra|
- | 《般若波罗蜜多心经》|Bōrě bōluómì duō xīnjīng|Prajnaparamita Heart Sutra|
- | 《佛说圣佛母般若波罗蜜多经》|Fú shuō shèng fú mǔ bōrě bōluómì duō jīng|The Buddha said the Prajnaparamita Sutra|
- | 《薄伽梵母智慧到彼岸心经》|Báojiāfàn mǔ zhìhuì dào bǐ'àn xīnjīng|Bhagavan's Wisdom to the Other Shore Heart Sutra|
- | 《乾隆大藏经》|Qiánlóng dàzàng jīng|Qianlong Tripitaka
- | 《弘一法师全集》|Hóngyī fǎshī quánjí|The Complete Works of Master Hongyi
+The Tathāgatagarbha sūtra opens in Rājagṛha (present-day Rajgir) and describes a miraculous display by the Buddha of a myriad tathāgatas seated in the calyx of each of a copious array of gigantic lotuses floating in the sky, which then blacken and rot away. The body of the scripture follows, giving nine similes for the hidden potential of sentient beings to attain liberation. According to the similes, this hidden potential resembles the following:
 
----
+1. brightly shining tathāgatas sitting inside withered, rotting lotus flowers;
+2. honey inside a hive fiercely guarded by bees;
+3. the kernel of a cereal grain, encased in the husk;
+4. a gold nugget in a pile of excrement;
+5. a hidden treasure buried beneath the house of a poor person;
+6. the sprout inside a seed;
+7. a statuary image of a tathāgata wrapped in rotten rags and dropped by the wayside in a dangerous wasteland;
+8. the embryo of a cakravartin (universal monarch) carried in the womb of an unsuspecting and destitute mother; and
+9. golden figures within the grubby clay molds that are used to cast them, before the mold is broken.
 
-After I pass away
-
-And my pure doctrine is absent,
-
-You will appear as an ordinary being,
-
-Performing the deeds of a Buddha
-
-And establishing the Joyful Land, the great Protector,
-
-In the Land of the Snows.
-
----
-
-
-http://www.cttbusa.org/sutratexts.asp.html
-
+The sūtra closes by describing the merit that accrues to one who propagates the text and deprecates the comparative value of the veneration of the buddhas. As an illustration of the power of the text, there follows a story of a past buddha, Sadāpramutkaraśmi, who always emitted a great and wondrous light from his body; he preached the Tathāgatagarbha sūtra at the request of the bodhisattva Anantaraśmi, and countless bodhisattvas attained supreme and perfect awakening as a result. The Buddha’s disciple Ānanda then asks from how many buddhas one must hear the Tathāgatagarbha sūtra, in order to become perfected (niryāta) and is told that it varies from a hundred buddhas to a myriad. Brief sections then praise one who holds the Tathāgatagarbha sūtra in his or her hands, and onlookers delight and rejoice.
 
