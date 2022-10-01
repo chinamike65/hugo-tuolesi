@@ -76,12 +76,12 @@ Book 1
  | 《精研论》|Jīng yán lùn|Intensive Research Theory
  | 《集论》|Jí lùn|set theory
  | 《俱舍论》|Jù shě lùn|Abhidharma-kośa-śāstra|Vasubandhu
- | 《释量论》|Shì liàng lùn|Pramāṇavārttika|Commentary on Valid Cognition|Dharmakīrti
+ | 《释量论》|Shì liàng lùn|Commentary on Valid Cognition (Pramāṇavārttika)|Dharmakīrti
  | 《入行论》|Rùxíng lùn|entry theory
  | 《入中论》|Rù zhōng lùn|Entrance to the Middle Way (Madhyamakāvatāra)|Candrakīrti(Yuecheng Boddhisattva)|
  | 《四百论》|Sìbǎi lùn|Four Hundred Verses|
  | 《大藏经》|Qiánlóng dàzàng jīng|Qianlong Tripitaka|
- | 《三士道》|Sān shìdào|San Shi Dao|The Three Principal Aspects of the Path|
+ | 《三士道》|Sān shìdào|(San Shi Dao) The Three Principal Aspects of the Path|
  | 《念诵集》|Niàn sòng jí|chanting set|
  | 《易经》|Yì jīng|Book of Changes|
  | 《吉祥经》|Jíxiáng jīng|Auspicious Sutra|
@@ -96,33 +96,33 @@ Book 2
 | Chinese | Pinyin | English | Author | Notes |
 | ------- | ------ | ------- | ------ | -------------------------------- |
  | 《哲学（堆扎）注解》|Zhéxué (duī zhā) zhùjiě|Philosophical Notes
- | 《金刚般若波罗蜜多经注解》|Jīngāng bōrě bōluómì duō jīng zhùjiě|Commentary on the Vajra Prajnaparamita Sutra
- | 《三士道三派上师口授》|Sān shìdào sān pài shàng shī kǒushòu|Oral dictation by the masters of the three schools of Sanshidao
- | 《金刚萨埵仪轨及实修法》|Jīngāng sà duǒ yí guǐ jí shí xiūfǎ|Vajrasattva Ritual and Practical Practice
- | 《空行佛母仪轨及实修法》|Kōng xíng fú mǔ yí guǐ jí shí xiūfǎ|Dakini Buddha Ritual and Practical Practice
- | 《闭关实修法》|Bìguān shí xiūfǎ|Retreat practice method
- | 《煨桑仪轨》|Wēi sāng yí guǐ|simmering mulberry ritual
- | 《尕藏曲松金刚上师传》|Gǎ cáng qū sōng jīngāng shàng shī chuán|The Biography of the Vajra Master of Gazang Qusong
- | 《藏传佛教史》|Zàng chuán fójiào shǐ|History of Tibetan Buddhism
- | 《大宝格言》|Dàbǎo géyán|Dabao motto
- | 《甘露法雨》|Gānlù fǎ yǔ|nectar rain
- | 《密宗风水》|Mìzōng fēngshuǐ|Tantric Feng Shui
+ | 《金刚般若波罗蜜多经注解》|Jīngāng bōrě bōluómì duō jīng zhùjiě|Commentary on the Vajra Prajnaparamita Sutra|
+ | 《三士道三派上师口授》|Sān shìdào sān pài shàng shī kǒushòu|Oral dictation by the masters of the three schools of Sanshidao|
+ | 《金刚萨埵仪轨及实修法》|Jīngāng sà duǒ yí guǐ jí shí xiūfǎ|Vajrasattva Ritual and Practical Practice|
+ | 《空行佛母仪轨及实修法》|Kōng xíng fú mǔ yí guǐ jí shí xiūfǎ|Dakini Buddha Ritual and Practical Practice|
+ | 《闭关实修法》|Bìguān shí xiūfǎ|Retreat practice method|
+ | 《煨桑仪轨》|Wēi sāng yí guǐ|simmering mulberry ritual|
+ | 《尕藏曲松金刚上师传》|Gǎ cáng qū sōng jīngāng shàng shī chuán|The Biography of the Vajra Master of Gazang Qusong|
+ | 《藏传佛教史》|Zàng chuán fójiào shǐ|History of Tibetan Buddhism|
+ | 《大宝格言》|Dàbǎo géyán|Dabao motto|
+ | 《甘露法雨》|Gānlù fǎ yǔ|nectar rain|
+ | 《密宗风水》|Mìzōng fēngshuǐ|Tantric Feng Shui|
  | 《法海宝藏》|Fǎ hǎi bǎozàng|Dharma Ocean Treasures|
- | 《菩提道次第广论》|Pútí dào cìdì guǎng lùn|The Great Treatise on the Stages of the Path to Enlightenment|Lam rim chen mo
- | 《密宗道次第广论》|Mìzōng dào cìdì guǎng lùn|The Great Treatise on the Tantric Stages of the Path to Enlightenment|Ngakrim Chenmo
+ | 《菩提道次第广论》|Pútí dào cìdì guǎng lùn|The Great Treatise on the Stages of the Path to Enlightenment|Lam rim chen mo|
+ | 《密宗道次第广论》|Mìzōng dào cìdì guǎng lùn|The Great Treatise on the Tantric Stages of the Path to Enlightenment|Ngakrim Chenmo|
  | 《喻赞》|Yù zàn|Blessing of Speech|
- | 《普贤行愿品》|Pǔ xián xíng yuàn pǐn||https://www.youtube.com/watch?v=lNmxC3Ip62c
- | 《百五十赞》|Bǎi wǔshí zàn|Hymn of 150 Verses|Praise in One Hundred and Fifty Verses
+ | 《普贤行愿品》|Pǔ xián xíng yuàn pǐn|Bodhisattva vows|Samantabhadra|https://www.youtube.com/watch?v=lNmxC3Ip62c|
+ | 《百五十赞》|Bǎi wǔshí zàn|Praise in One Hundred and Fifty Verses
  | 《赞应赞》|Zàn yīng zàn|Like to like|
- | 《上师瑜伽》|Shàng shī yújiā|Guru Yoga
- | 《甘珠儿》|Gān zhū ěr|Kangyur
- | 《丹珠儿》|Dān zhū ěr|Tangyur
- | 《时轮金刚》|Shí lún jīngāng|Kalachakra
- | 《吉祥经》|Jíxiáng jīng|Auspicious Sutra
- | 《乾隆大藏经》|Qiánlóng dàzàng jīng|Qianlong Tripitaka
- | 《弘一法师全集》|Hóngyī fǎshī quánjí|The Complete Works of Master Hongyi
+ | 《上师瑜伽》|Shàng shī yújiā|Guru Yoga|
+ | 《甘珠儿》|Gān zhū ěr|Kangyur|
+ | 《丹珠儿》|Dān zhū ěr|Tangyur|
+ | 《时轮金刚》|Shí lún jīngāng|Kalachakra|
+ | 《吉祥经》|Jíxiáng jīng|Auspicious Sutra|
+ | 《乾隆大藏经》|Qiánlóng dàzàng jīng|Qianlong Tripitaka|
+ | 《弘一法师全集》|Hóngyī fǎshī quánjí|The Complete Works of Master Hongyi|
  | 《般若经》|Bōrě jīng|Prajna Paramita Sutra|
- | 《大般若经》|Dà bōrě jīng|Great Prajna Sutra
+ | 《大般若经》|Dà bōrě jīng|Great Prajna Sutra|
 
 
 Book 3
