@@ -27,27 +27,26 @@ Book 1
  | 《菩提道次第广论》|Pútí dào cìdì guǎng lùn|The Great Treatise on the Stages of the Path to Enlightenment|Lam rim chen mo|
  | 《密宗道次第广论》|Mìzōng dào cìdì guǎng lùn|The Great Treatise on the Tantric Stages of the Path to Enlightenment|Ngakrim Chenmo|
  | 《般若波罗蜜多心经》|Bōrě bōluómì duō xīnjīng|Prajnaparamita Heart Sutra|
-
- | 《常诵经文》|Cháng sòng jīng wén|chanting scriptures | 
- | 《上师长寿祈祷文》|Shàng shī chángshòu qídǎo wén|Guru Longevity Prayer | 
- | 《上师瑜伽》|Shàng shī yújiā|Guru Yoga
- | 《胜道启门颂》|Shèng dào qǐ mén sòng|Foundation of All Good Qualities| |  
- | 《三主要道颂》|| |  
- | 《菩提道次第摄颂》|Pútí dào cìdì shè sòng|Poetry of the Bodhi Path|A Song of Stages of the Path to Enlightenment|https://www.youtube.com/watch?v=aX276NJUqBA|Khensur Jangchup Choeden |  
- | 《菩提道次第略论》|Pútí dào cìdì lüè lùn|A Brief Commentary on the Steps of the Path to Enlightenment| |  
- | 《八圣吉祥颂》|Sān zhǔyào dào sòng|The Three Main Paths |  
- | 《三十五佛忏悔文》|Sānshíwǔ fú chànhuǐ wén|Thirty-five Buddhas Repentance |  
- | 《金光明最胜王经忏悔文》|Jīn guāngmíng zuì shèng wáng jīng chànhuǐ wén|Jin Guangming is the most superior to Wang Jing's confession |  
- | 《极简忏悔文》|Jí jiǎn chànhuǐ wén|Minimalist Confession |  
- | 《七支供养》|Qī zhī gòngyǎng|seven offerings |  
- | 《曼札供养文》|Màn zhá gòngyǎng wén|Mandhala offering text |  
- | 《普贤行愿品》|Pǔ xián xíng yuàn pǐn||https://www.youtube.com/watch?v=lNmxC3Ip62c |  
- | 《格鲁善教昌盛愿辞》|Gé lǔ shànjiào chāngshèng yuàn cí| |  
- | 《心经》|Xīn jīng|Heart Sutra|Gelukha's Prosperity Wishes |  
- | 《四皈依》|Sì guīyī|Four Refuges |  
- | 《二十一尊度母礼赞经》|Èrshíyī zūn dù mǔ lǐzàn jīng|Twenty-one Tara Prayer Sutras |  
- | 《药师佛仪轨》|Yàoshī fó yí guǐ|Medicine Buddha Ritual |  
- | 《缘起赞》|Yuánqǐ zàn|Originated like |  
+ | 《常诵经文》|Cháng sòng jīng wén|chanting scriptures | 
+ | 《上师长寿祈祷文》|Shàng shī chángshòu qídǎo wén|Guru Longevity Prayer | 
+ | 《上师瑜伽》|Shàng shī yújiā|Guru Yoga|
+ | 《胜道启门颂》|Shèng dào qǐ mén sòng|Foundation of All Good Qualities| |  
+ | 《三主要道颂》|| |  
+ | 《菩提道次第摄颂》|Pútí dào cìdì shè sòng|Poetry of the Bodhi Path|A Song of Stages of the Path to Enlightenment|https://www.youtube.com/watch?v=aX276NJUqBA|Khensur Jangchup Choeden |  
+ | 《菩提道次第略论》|Pútí dào cìdì lüè lùn|A Brief Commentary on the Steps of the Path to Enlightenment| |  
+ | 《八圣吉祥颂》|Sān zhǔyào dào sòng|The Three Main Paths |  
+ | 《三十五佛忏悔文》|Sānshíwǔ fú chànhuǐ wén|Thirty-five Buddhas Repentance |  
+ | 《金光明最胜王经忏悔文》|Jīn guāngmíng zuì shèng wáng jīng chànhuǐ wén|Jin Guangming is the most superior to Wang Jing's confession |  
+ | 《极简忏悔文》|Jí jiǎn chànhuǐ wén|Minimalist Confession |  
+ | 《七支供养》|Qī zhī gòngyǎng|seven offerings |  
+ | 《曼札供养文》|Màn zhá gòngyǎng wén|Mandhala offering text |  
+ | 《普贤行愿品》|Pǔ xián xíng yuàn pǐn||https://www.youtube.com/watch?v=lNmxC3Ip62c |  
+ | 《格鲁善教昌盛愿辞》|Gé lǔ shànjiào chāngshèng yuàn cí| |  
+ | 《心经》|Xīn jīng|Heart Sutra|Gelukha's Prosperity Wishes |  
+ | 《四皈依》|Sì guīyī|Four Refuges |  
+ | 《二十一尊度母礼赞经》|Èrshíyī zūn dù mǔ lǐzàn jīng|Twenty-one Tara Prayer Sutras |  
+ | 《药师佛仪轨》|Yàoshī fó yí guǐ|Medicine Buddha Ritual |  
+ | 《缘起赞》|Yuánqǐ zàn|Originated like |  
  | 《初中后善祈愿文》|Chūzhōng hòu shàn qí yuàn wén| |  
  | 《语加持》|Yǔ jiāchí|Speech Blessing |  
  | 《药师经》|Yàoshī jīng|Medicine Buddha Sutra |  
