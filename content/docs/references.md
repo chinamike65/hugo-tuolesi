@@ -23,19 +23,19 @@ Book 1
  | **《甘露法雨》**|Gānlù fǎ yǔ|nectar rain|
  | **《密宗风水》**|Mìzōng fēngshuǐ|Tantric Feng Shui|
  | **《法海宝藏》**|Fǎ hǎi bǎozàng|Dharma Ocean Treasures|
- | **《菩提道次第广论》**|Pútí dào cìdì guǎng lùn|The Great Treatise on the Stages of the Path to Enlightenment|Lam rim chen mo|
- | **《密宗道次第广论》**|Mìzōng dào cìdì guǎng lùn|The Great Treatise on the Tantric Stages of the Path to Enlightenment|Ngakrim Chenmo|
+ | **《菩提道次第广论》**|Pútí dào cìdì guǎng lùn|Great Treatise on the Stages of the Path to Enlightenment|Tsongkhapa|Lam rim chen mo|
+ | **《密宗道次第广论》**|Mìzōng dào cìdì guǎng lùn|Great Treatise on the Tantric Stages of the Path to Enlightenment|Tsongkhapa|Ngakrim Chenmo|
  | **《般若波罗蜜多心经》**|Bōrě bōluómì duō xīnjīng|Prajnaparamita Heart Sutra|
- | **《常诵经文》**|Cháng sòng jīng wén|chanting scriptures | 
+ | **《常诵经文》**|Cháng sòng jīng wén|Chanting scriptures | 
  | **《上师长寿祈祷文》**|Shàng shī chángshòu qídǎo wén|Guru Longevity Prayer | 
  | **《上师瑜伽》**|Shàng shī yújiā|Guru Yoga|
  | **《胜道启门颂》**|Shèng dào qǐ mén sòng|Foundation of All Good Qualities| |  
  | **《三主要道颂》**|Sān zhǔyào dào sòng|The Three Main Paths |
- | **《菩提道次第摄颂》**|Pútí dào cìdì shè sòng|A Song of Stages of the Path to Enlightenment|https://www.youtube.com/watch?v=aX276NJUqBA|Khensur Jangchup Choeden |  
-  | **《菩提道次第略论》**|Pútí dào cìdì lüè lùn|A Brief Commentary on the Steps of the Path to Enlightenment| |  
- | **《八圣吉祥颂》**|Sān zhǔyào dào sòng|The Three Main Paths | 
- | **《三十五佛忏悔文》**|Sānshíwǔ fú chànhuǐ wén|Thirty-five Buddhas Repentance |
- | **《金光明最胜王经忏悔文》**|Jīn guāngmíng zuì shèng wáng jīng chànhuǐ wén|Jin Guangming is the most superior to Wang Jing's confession | 
+ | **《菩提道次第摄颂》**|Pútí dào cìdì shè sòng|Song of Stages of the Path to Enlightenment|https://www.youtube.com/watch?v=aX276NJUqBA|Khensur Jangchup Choeden |  
+  | **《菩提道次第略论》**|Pútí dào cìdì lüè lùn|Brief Commentary on the Steps of the Path to Enlightenment| |  
+ | **《八圣吉祥颂》**|Bā shèng jíxiáng sòng|Auspicious hymn of the eight saints | 
+ | **《三十五佛忏悔文》**|Sānshíwǔ fú chànhuǐ wén|Thirty-five Buddhas of Repentance |
+ | **《金光明最胜王经忏悔文》**|Jīn guāngmíng zuì shèng wáng jīng chànhuǐ wén|The Golden Splendour (Suvarnaprabhasa Sutra) | 
  | **《极简忏悔文》**|Jí jiǎn chànhuǐ wén|Minimalist Confession | 
  | **《七支供养》**|Qī zhī gòngyǎng|Seven Branch Offering | |
  | **《曼札供养文》**|Màn zhá gòngyǎng wén|Mandhala offering text |
