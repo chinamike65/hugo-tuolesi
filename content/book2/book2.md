@@ -526,6 +526,7 @@ In the true nature of my own mind emptiness-clarity, I take refuge
 2. 佛的语功德
 
 佛的语功德有六十四个。
+
 佛讲经的时候不同的人问不同的问题，佛只用一个“啊”字可回答全部问题。
 
 佛讲的法百听不厌，每听一次都有不可思议的收获。
@@ -568,8 +569,7 @@ In the true nature of my own mind emptiness-clarity, I take refuge
 
 庆慰诸匮乏，诸放逸所归，令乐者厌离，尊语相称转。
 
-能生智者喜，能增中者慧，能摧下者翳，此语利众生。
-”
+能生智者喜，能增中者慧，能摧下者翳，此语利众生。”
 
 3. 佛的意功德
 
