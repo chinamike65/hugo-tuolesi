@@ -39,7 +39,7 @@ Book 1
 | **《极简忏悔文》**|Jí jiǎn chànhuǐ wén|Minimalist Confession| 
 | **《七支供养》**|Qī zhī gòngyǎng|Seven Branch Offering||
 | **《曼札供养文》**|Màn zhá gòngyǎng wén|Mandhala Offering text|
-| **《普贤行愿品》**|Pǔ xián xíng yuàn pǐn||https://www.youtube.com/watch?v=lNmxC3Ip62c|
+| **《普贤行愿品》**|Pǔ xián xíng yuàn pǐn|Samantabhadra|https://www.youtube.com/watch?v=lNmxC3Ip62c|
 | **《格鲁善教昌盛愿辞》**|Gé lǔ shànjiào chāngshèng yuàn cí|Gelugpa Prosperity Wishes| 
 | **《心经》**|Xīn jīng|Heart Sutra|| 
 | **《四皈依》**|Sì guīyī|Four Refuges| 
@@ -87,7 +87,7 @@ Book 1
 | **《吉祥经》**|Jíxiáng jīng|Auspicious Sutra|
 | **《乾隆大藏经》**|Qiánlóng dàzàng jīng|Qianlong Tripitaka|
 | **《弘一法师全集》**|Hóngyī fǎshī quánjí|The Complete Works of Master Hongyi|
-| **《般若经》**|Bōrě jīng|Prajna Paramita Sutra|||
+| **《般若经》**|Bōrě jīng|Prajna Paramita Sutra||
 
 
 Book 2
@@ -97,19 +97,19 @@ Book 2
 | -------| ------| -------| ------| --------------------------------|
 | **《哲学（堆扎）注解》**|Zhéxué (duī zhā) zhùjiě|Philosophical Notes|
 | **《金刚般若波罗蜜多经注解》**|Jīngāng bōrě bōluómì duō jīng zhùjiě|Commentary on the Vajra Prajnaparamita Sutra|
-| **《三士道三派上师口授》**|Sān shìdào sān pài shàng shī kǒushòu|Oral dictation by the masters of the three schools of Sanshidao|
-| **《金刚萨埵仪轨及实修法》**|Jīngāng sà duǒ yí guǐ jí shí xiūfǎ|Vajrasattva Ritual and Practical Practice|
-| **《空行佛母仪轨及实修法》**|Kōng xíng fú mǔ yí guǐ jí shí xiūfǎ|Dakini Buddha Ritual and Practical Practice|
+| **《三士道三派上师口授》**|Sān shìdào sān pài shàng shī kǒushòu|Oral dictation by the masters of the three schools of San Shi Dao|
+| **《金刚萨埵仪轨及实修法》**|Jīngāng sà duǒ yí guǐ jí shí xiūfǎ|Vajrasattva Ritual and Practice|
+| **《空行佛母仪轨及实修法》**|Kōng xíng fú mǔ yí guǐ jí shí xiūfǎ|Dakini Buddha Ritual and Practice|
 | **《闭关实修法》**|Bìguān shí xiūfǎ|Retreat practice method|
 | **《煨桑仪轨》**|Wēi sāng yí guǐ|simmering mulberry ritual|
 | **《尕藏曲松金刚上师传》**|Gǎ cáng qū sōng jīngāng shàng shī chuán|The Biography of the Vajra Master of Gazang Qusong|
 | **《藏传佛教史》**|Zàng chuán fójiào shǐ|History of Tibetan Buddhism|
 | **《大宝格言》**|Dàbǎo géyán|Dabao motto|
-| **《甘露法雨》**|Gānlù fǎ yǔ|nectar rain|
+| **《甘露法雨》**|Gānlù fǎ yǔ|Rain of Nectar |
 | **《密宗风水》**|Mìzōng fēngshuǐ|Tantric Feng Shui|
 | **《法海宝藏》**|Fǎ hǎi bǎozàng|Dharma Ocean Treasures|
-| **《菩提道次第广论》**|Pútí dào cìdì guǎng lùn|The Great Treatise on the Stages of the Path to Enlightenment|Lam rim chen mo|
-| **《密宗道次第广论》**|Mìzōng dào cìdì guǎng lùn|The Great Treatise on the Tantric Stages of the Path to Enlightenment|Ngakrim Chenmo|
+| **《菩提道次第广论》**|Pútí dào cìdì guǎng lùn|Great Treatise on the Stages of the Path to Enlightenment|Tsongkhapa|Lam rim chen mo|
+| **《密宗道次第广论》**|Mìzōng dào cìdì guǎng lùn|Great Treatise on the Tantric Stages of the Path to Enlightenment|Tsongkhapa|Ngakrim Chenmo|
 | **《喻赞》**|Yù zàn|Blessing of Speech|
 | **《普贤行愿品》**|Pǔ xián xíng yuàn pǐn|Bodhisattva vows|Samantabhadra|https://www.youtube.com/watch?v=lNmxC3Ip62c|
 | **《百五十赞》**|Bǎi wǔshí zàn|Praise in One Hundred and Fifty Verses
@@ -131,7 +131,7 @@ Book 3
 | Chinese| Pinyin| English| Author| Notes|
 | -------| ------| -------| ------| --------------------------------|
 | **《般若经注解》**|Bōrě jīng zhùjiě|Prajna Sutra Annotation|https://m.jingangjfw.com/banruoj/6967.html
-| **《三士道三派上师口授》**|Sān shìdào sān pài shàng shī kǒushòu|Oral dictation by masters of the three schools of Sanshidao|
+| **《三士道三派上师口授》**|Sān shìdào sān pài shàng shī kǒushòu|Oral dictation by masters of the three schools of San Shi Dao||
 | **《法海宝藏》**|Fǎ hǎi bǎozàng|Dharma Ocean Treasures|Ngawang Gyatso|https://read01.com/P52GBa4.html#.YuuaxHZByUk|
 | **《三士道》**|Sān shìdào|(San Shi Dao) The Three Principal Aspects of the Path|
 | **《大般若经》**|Dà bōrě jīng|Prajna Paramita Sutra - Perfection of Wisdom|https://www.youtube.com/watch?v=3ErG5PE6QyE|
