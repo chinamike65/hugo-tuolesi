@@ -9,7 +9,7 @@ draft: false
 
 Note: these practices are specifically part of the Tantric path as practiced in Tibetan Buddhism, and should be considered as advice for practitioners of Tantra..
 
-1. Bowing in the proper way to the lotus feet of my Guru, who is the cause for me to attain the state of a glorious Vajrasattva, I shall condense and explain in brief what has been said in many stainless tantric texts about Guru-devotion. (Therefore) listen with respect.
+1.  Bowing in the proper way to the lotus feet of my Guru, who is the cause for me to attain the state of a glorious Vajrasattva, I shall condense and explain in brief what has been said in many stainless tantric texts about Guru-devotion. (Therefore) listen with respect.
 
 2. All the Buddhas of the past, present and future, residing in every land in the ten directions, have paid homage to the Tantric Masters from whom they have received the highest initiations. (Is there need to mention that you should too?)
 
