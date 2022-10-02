@@ -1,5 +1,5 @@
 ---
-title: "Pu Xian 普贤行愿品"
+title: "普贤行愿品"
 date: 2022-10-02T12:40:35+01:00
 draft: false
 ---
