@@ -3,11 +3,13 @@ title: "Samantabhadra Vows"
 date: 2022-10-01T12:39:35+01:00
 draft: false
 ---
-**Samantabhadra Vows**
 
-#### 所有十方世界中  三世一切人師子  我以清凈身語意  一切遍禮盡無余
+#### 所有十方世界中  三世一切人師子  
+#### 我以清凈身語意  一切遍禮盡無余
 
-Suǒyǒu shí fāng shìjiè zhōng sānshì yīqiè rén shī zi wǒ yǐ qīngjìng shēn yǔyì yīqiè biàn lǐ jìn wú yú
+Suǒyǒu shí fāng shìjiè zhōng sānshì yīqiè rén shī zi 
+
+wǒ yǐ qīngjìng shēn yǔyì yīqiè biàn lǐ jìn wú yú
 
 In all the worlds of the ten directions, all people, teachers and children, I have pure body, speech, and mind.
 
