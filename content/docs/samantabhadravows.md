@@ -646,4 +646,166 @@ Shūshèng zhī zuì fāyuàn wáng lìyì wúbiān zhū zhòngshēng yuánmǎn 
 The supreme and most aspirational king Benefit boundless sentient beings Complete the power of universal sages and vows to liberate all beings from the three evil paths
 
 
+---
 
+**The Ten Great Aspirations of Samantabhadra Bodhisattva**
+
+Avatamsaka Sutra 36, Taishō 279
+
+Body, speech and mind, purified, in oneness,
+
+I bow deeply to touch limitless Buddhas
+
+of the past, present, and future
+
+throughout all worlds in the Ten Directions.
+
+---
+
+The power of Samantabhadra’s vow
+
+enables me to be present everywhere.
+
+Where there is a Buddha, I am there.
+
+As Buddhas are countless, so too am I.
+
+---
+
+In a particle of dust are countless Buddhas,
+
+all of them present with their own assembly.
+
+The strength of my faith penetrates deeply
+
+into every atom of all Dharma realms.
+
+---
+
+I aspire to use the Great Ocean of Sound,
+
+giving rise to words of wonderful effect
+
+that praise the Buddha’s oceans of virtues,
+
+in the past, present, and future.
+
+---
+
+I bring these offerings:
+
+garlands of the most beautiful flowers,
+
+incense, music, perfumes, and parasols,
+
+all to adorn the Tathagatas and their lands.
+
+---
+
+Bringing food, robes, and fragrant flowers,
+
+torches, sandalwood, sitting mats,
+
+the finest adornments here in abundance –
+
+an offering to the Tathagatas.
+
+---
+
+Inspired by Samantabhadra’s vow,
+
+I bring my heart, wide with deep understanding,
+
+with loving faith in the Buddhas of the Three Times,
+
+as an offering to the Tathagatas everywhere.
+
+---
+
+From beginningless time I have acted unskillfully
+
+with craving, hatred, and ignorance
+
+in actions of body, speech, and mind.
+
+Determined now to begin anew, I repent.
+
+---
+
+I rejoice in every virtuous action
+
+by anyone, in any direction,
+
+by learners and by those who need learn no more,
+
+of Buddhas and Bodhisattvas.
+
+---
+
+All beings who are Lamps for the world
+
+and those who have just attained enlightenment,
+
+I beg that you will think lovingly of us,
+
+turning the Wheel of the Dharma to help the world.
+
+---
+
+With sincerity, I make a humble request
+
+of the Buddhas and those who are about to enter nirvana:
+
+remain forever in the world,
+
+for the benefit and the welfare of all.
+
+---
+
+I humbly make offerings inviting all Buddhas
+
+to stay with us and guide all beings to the other shore.
+
+All the merit of joyous praise and repenting
+
+I offer to the Path of Awakening.
+
+---
+
+This merit is transferred to the Three Jewels,
+
+to their nature and form in the Dharma realms.
+
+The Two Truths are perfectly woven together
+
+into the Samadhi Seal.
+
+---
+
+The ocean of merit is measureless.
+
+I vow to transfer it and not hold anything for myself.
+
+If any human, out of discrimination and prejudice,
+
+tries to do harm to the path of liberation
+
+may their obstacles be fully removed.
+
+---
+
+In each moment, wisdom envelops the Dharma realms,
+
+welcoming all to the place of non-regression.
+
+Space and living beings are without limit,
+
+the same with afflictions and results of past actions.
+
+These four are fully and truly immeasurable.
+
+So, too, is my offering of merit.
+
+---
+
+Translated by Thich Nhat Hanh from Avatamsaka Sutra 36, Taishō Revised Tripiṭaka 279, Flower Garland Discourse.
