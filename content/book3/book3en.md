@@ -94,7 +94,7 @@ Under the leadership of Master Ah Wang, the Sangha of Tuole Monastery adheres to
 Buddhists should go deeper into the scriptures, diligently study and think, and establish a right view. At the same time, it is necessary to develop Bodhicitta widely and truly think for the sake of all sentient beings, in order to achieve a perfect life for oneself and others.
 
 
-San Shi Dao - Three Principal Aspects of the Path
+**San Shi Dao - Three Principal Aspects of the Path**
 
 ![三士道](/images/sanshidaoshang.png)
 
@@ -102,7 +102,7 @@ The third of the series "Treasures of the Dharma Ocean" from Tuole Monastery
 
 Three Principal Aspects of the Path (Part 1 - Lower Scope)
 
-Ngawang Gyatso Vajra Guru explained:
+Ngawang Gyatso Vajra Guru begins:
 
 I pay homage to the Great Masters and all the Buddhas and Bodhisattvas!
 
@@ -114,17 +114,17 @@ I would like to share with fellow practitioners the experience of proof-reading 
 
 In order to save all sentient beings, the Buddha preached 84,000 Dharma Doors, the core of which is the sequence of the Bodhi path. The order of the path is either manifest or hidden, and has always been hidden in the scriptures.
 
-The sequence of Stages of the Way preached by Buddha Shakyamuni is "The Prajna Paramita Sutra", and the sequence of Stages preached by Maitreya Bodhisattva is "Ornament for Clear Realization". 
+The sequence of Stages of the Path taught by Buddha Shakyamuni is "The Prajna Paramita Sutra", and the sequence of Stages taught by Maitreya Bodhisattva is "The Ornament for Clear Realization". 
 
 Great Bodhisattvas such as Nagarjuna and Asanga, as the lineage masters of the sequence of Stages, have all been followers of the sequence of Stages. 
 
-The successive biography of books and essays.
+**The successive biography of books and essays**
 
-It was not until Venerable Atisha's "The Lamp for the Path to Enlightenment" that the order of the path of to enlightenment was clearly stated, and it was not until Master Tsongkhapa's "The Great Treatise on the Stages of the Path to Enlightenment" that the steps of the path were explained clearly.
+It was not until Venerable Atisha's "The Lamp for the Path to Enlightenment" that the order of the path to enlightenment was clearly stated, and it was not until Master Tsongkhapa's "The Great Treatise on the Stages of the Path to Enlightenment" that the steps of the path were explained clearly.
 
 Countless practitioners have achieved success according to the stages of the path to enlightenment, and they have also become a part of learning according to the stages of the path. However, "The Great Treatise on the Stages of the Path to Enlightenment" is very terse and difficult to understand, especially for beginners.
 
-The study characteristics of Gelugpa.
+**The study characteristics of Gelugpa**
 
 The compassionate master, taking into account the difficulties of all living beings in their studies, explained to us the essence of the path to enlightenment - "The Three Principal Aspects of the Path".
 
@@ -134,7 +134,7 @@ In teaching the Dharma, the master cultivated profound and extensive knowledge, 
 
 On the whole, in "The Three Principal Aspects of the Path", the master uses vivid and concise language and interesting allusions to describe how an ordinary person must follow a clear path from attaining perfection in the world, to liberation and becoming a Buddha.
 
-The Path of the Lower Scope mainly talks about the impermanence of life, the suffering of the three evil realms, taking refuge, knowing about cause and effect, and Liberation from the cycle of samsara. Path of the Middle Scope talks about bodhicitta, the ten perfections, and the four **captures**, with the goal of attaining Buddhahood.
+The Path of the Lower Scope mainly talks about the impermanence of life, the suffering of the three evil realms, taking refuge, knowing about cause and effect, and Liberation from the cycle of samsara. The Path of the Middle Scope talks about bodhicitta, the ten perfections, and the four **captures**, with the goal of attaining Buddhahood.
 
 The cultivation of the three aspects of lower, middle, and upper scopes are the stages that every practitioner must go through. Buddhas and Bodhisattvas have come this way, and so have patriarchs and great virtuous masters.
 
@@ -146,17 +146,17 @@ Right now, we need to know what to practice, how to practice, to what extent, an
 
 What materials need to be prepared, etc., are all clearly explained.
 
-When reading other classics, it also has a strong guiding significance. It enables practitioners to determine which part of the Dharma a sutra belongs to, whether it is suitable for practice at the current stage, and so on. It is of great help to the study, and it has swept away the confusion in the mind of the student, and made their confidence in the Guru and the Three Jewels more firm.
+When reading other classics, it also has a strong guiding significance. It enables practitioners to determine which part of the Dharma a sutra belongs to, whether it is suitable for practice at the current stage, and so on. It is of great help to the study, and it has swept away the confusion in the minds of many students, and made their confidence in the Guru and the Three Jewels more firm.
 
-"The Three Principal Aspects of the Path" is not only a teaching of the Buddha, but also has a strong guiding significance for life in this world. The book tells us: To truly cherish oneself and life, is to cherish the human body and develop oneself earnestly; if you want to be prosperous and healthy, you must not steal or kill, you must give more, release more living animals, and repent of mistakes. If you have prestige and good fortune, you must not create bad karma and strive to make all living beings happy.
+"The Three Principal Aspects of the Path" is not only a teaching of the Buddha, but also has a strong guiding significance for life in this world. The book tells us: To truly cherish oneself and one's life, is to cherish the human body and develop oneself earnestly; if you want to be prosperous and healthy, you must not steal or kill, you must give more, release more living animals, and repent of mistakes. If you have prestige and good fortune, you must not create bad karma and strive to make all living beings happy.
 
 In every respect, it varies.
 
 It can be said to be the best guide book on life in this world.
 
-The master understands the suffering of sentient beings too well, and his words directly point to the hearts of the people.
+The master understands the suffering of sentient beings too well, and his words directly point to the minds of the people.
 
-During the proof-reading period, I often remembered the master's explanation in the middle of the night, even in my dreams, and I couldn't calm down for a long time.
+During the proof-reading period, I often remembered the master's explanation in the middle of the night, even in my dreams, and I couldn't settle down to sleep for a long time.
 
 The teacher's words are like a simple and powerful old hoe, and every sentence creates a furrow on one's heart that has been blinded by ignorance for a long time.
 
@@ -166,15 +166,15 @@ Fortunately, when you are lucky enough to meet the teacher, then you just have t
 
 From now on, just by listening to the teacher's words, being an honest person, steadfastly studying, and benefiting sentient beings, can the meaning of life continue to increase, and only then can one be worthy of the three jewels, of the teacher and one's own life.
 
-The "Three Principal Aspects of the Path" published this time was compiled by many disciples of Tuo Le Shenzhen Center, based on video materials taught by the master in Hong Kong and Lishui in recent years, over two years.
+The "Three Principal Aspects of the Path" published this time was compiled by many disciples of Tuo Le Shenzhen Center, based on video materials of teachings by the master in Hong Kong and Lishui in recent years, over a period of two years.
 
 In the process of sorting out the materials, the master also expanded a lot of content according to the actual situation of modern people's practice of Buddhism.
 
 In particular, more detailed explanations and supplements have been made for the relatively brief parts in the "Great Treatise on the Stages of the Path of Enlightenment ".
 
-For example, the section on **"Approaching the Good Men"** in the "Great Treatise on the Stages of the Path of Enlightenment " has only 15 pages (Guanghua Temple edition of "The Path to Enlightenment"), and the text is difficult to understand. A Detailed explanation is given.
+For example, the section on **"Approaching the Good Men"** in the "Great Treatise on the Stages of the Path of Enlightenment " has only 15 pages (Guanghua Temple edition of "The Path to Enlightenment"), and the text is difficult to understand. A detailed explanation is given.
 
-It can be said that this edition of "The Three Principal Aspects of the Path" is the most comprehensive, thorough and easy-to-understand book among the books that explain the correct sequence for teaching and learning the Dharma.
+It can be said that this edition of "The Three Principal Aspects of the Path" is the most comprehensive, thorough and easy-to-understand book among all the books that explain the correct sequence for teaching and learning the Dharma.
 
 I repeatedly emphasized that the sooner the "The Three Principal Aspects of the Path" is published, the sooner it will benefit all sentient beings!
 
@@ -182,7 +182,7 @@ Therefore, I often proof-read with my disciples until very late at night, and st
 
 In June 2014, due to overwork, I felt unwell. Afterwards, at the strong request of the Hong Kong disciples, I went to Hong Kong for a physical examination and adjusted my medication for half a year.
 
-The master hopes that the vast number of Buddhist students can correctly understand the essence of the Buddha's Dharma and have a strong desire for the Buddha's holy teaching, get out of the misunderstanding of non-sequential and blind practice, and diligently study and reflect on the path to enlightenment, and practice diligently according to the three scopes, in order to realize enlightenment as soon as possible!
+The master hopes that the vast number of Buddhist students can correctly understand the essence of the Buddha's Dharma and have a strong desire for the Buddha's teaching, get out of the misunderstanding of non-sequential and blind practice, and diligently study and reflect on the path to enlightenment, and practice diligently according to the three scopes, in order to realize enlightenment as soon as possible!
 
 Bow down, thank you, Master!
 
@@ -192,7 +192,8 @@ Disciple Sanjay was established
 
 August 8, 2015
 
-**Table of contents**
+| **Table of contents** |
+| --- |
 
 ### Part I - The Victor and the Teachings are excellent ………………. 3
 
@@ -214,7 +215,7 @@ Greatness of the "Great Treatise on the Stages of the Path of Enlightenment "...
 
 (3) Correct Order …………. 20
 
-##### 3. Location ................................................................ 20
+##### 3. Location ................................................... 20
 
 ##### 4. Best Advice ……………… 21
 
@@ -224,17 +225,17 @@ Greatness of the "Great Treatise on the Stages of the Path of Enlightenment "...
 
 ##### 1. Other writings on the Path... 24
 
-##### 2. The Importance of the Sequence of the Paths ................................................ 26
+##### 2. The Importance of the Sequence of the Paths ................... 26
 
 ### Part II - How to Learn The Three Principal Aspects of the Path ……………… 29
 
 #### Chapter 1 The root of the Path is to be close to the guru ………….. 31
 
-**Section 1 Requirements of a Guru... 34**
+**Section 1 Requirements of a Guru ... 34**
 
 ##### 1. Basic requirements of a guru... 34
 
-(1) Pure Morality ... 34
+(1) Pure Morals ... 34
 
 (2) Complete understanding of the Dharma... 34
 
@@ -244,7 +245,7 @@ Greatness of the "Great Treatise on the Stages of the Path of Enlightenment "...
 
 (5) Understanding of Emptiness …………. 37
 
-##### 2. Requirements for Ordained Masters …….. 38
+##### 2. Requirements for Ordained Monks …….. 38
 
 (1) Pure Morality . . . . 38
 
@@ -258,7 +259,7 @@ Greatness of the "Great Treatise on the Stages of the Path of Enlightenment "...
 
 ##### 3. Requirements for a Mahayana Guru …….. 40
 
-(1) Pure morality …………. 41
+(1) Pure morals …………. 41
 
 (2) Quality …………. 42
 
