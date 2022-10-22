@@ -4,6 +4,8 @@ date: 2022-10-01T12:39:35+01:00
 draft: false
 ---
 
+**Avatamsaka Sutra 36, Taishō 279**
+
 #### 所有十方世界中  
 #### 三世一切人師子  
 #### 我以清凈身語意  
@@ -13,7 +15,13 @@ Suǒyǒu shí fāng shìjiè zhōng sānshì yīqiè rén shī zi
 
 wǒ yǐ qīngjìng shēn yǔyì yīqiè biàn lǐ jìn wú yú
 
-In all the worlds of the ten directions, all people, teachers and children, I have pure body, speech, and mind.
+Body, speech and mind, purified, in oneness,
+
+I bow deeply to touch limitless Buddhas
+
+of the past, present, and future
+
+throughout all worlds in the Ten Directions.
 
 #### 普賢行願威神力  
 #### 普現一切如來前  
@@ -22,7 +30,13 @@ In all the worlds of the ten directions, all people, teachers and children, I ha
 
 Pǔ xián xíng yuàn wēi shénlì pǔ xiàn yīqiè rúlái qián yīshēn fù xiàn shā chén shēn yīyī biàn lǐ shā chén fú
 
-The power of Samantabhadra's actions, the mighty divine power, and the divine power of all the Tathagatas appear in front of all the Buddhas.
+The power of Samantabhadra’s vow
+
+enables me to be present everywhere.
+
+Where there is a Buddha, I am there.
+
+As Buddhas are countless, so too am I.
 
 #### 於一塵中塵數佛  
 #### 各處菩薩眾會中  
@@ -31,7 +45,14 @@ The power of Samantabhadra's actions, the mighty divine power, and the divine po
 
 Yú yī chén zhōng chén shù fú gè chù púsà zhòng huì zhōng wújìn fǎjiè chén yì rán shēnxìn zhū fú jiē chōngmǎn
 
-There are as many buddhas in a single dust, in the assembly of bodhisattvas everywhere, and the dust of the endless dharma realm is also the same. I firmly believe that all Buddhas are filled with
+In a particle of dust are countless Buddhas,
+
+all of them present with their own assembly.
+
+The strength of my faith penetrates deeply
+
+into every atom of all Dharma realms.
+
 
 #### 各以一切音聲海  
 #### 普出無盡妙言辭  
@@ -40,7 +61,13 @@ There are as many buddhas in a single dust, in the assembly of bodhisattvas ever
 
 Gè yǐ yīqiè yīn shēng hǎi pǔ chū wújìn miào yáncí jǐn yú wèilái yīqiè jié zàn fú shèn shēn gōngdé hǎi
 
-With all the voices and voices, they will spread out endless wonderful words, and they will be used for all future kalpas.
+I aspire to use the Great Ocean of Sound,
+
+giving rise to words of wonderful effect
+
+that praise the Buddha’s oceans of virtues,
+
+in the past, present, and future.
 
 #### 以諸最勝妙華鬘  
 #### 伎樂塗香及傘蓋  
@@ -49,7 +76,13 @@ With all the voices and voices, they will spread out endless wonderful words, an
 
 Yǐ zhū zuì shèng miào huámán jì lè tú xiāng jí sǎn gài rúshì zuì shèng zhuāngyán jù wǒ yǐ gòngyǎng zhūrú lái
 
-With the most wonderful flowers, music, incense, and umbrellas, I offer offerings to the Tathagata
+I bring these offerings:
+
+garlands of the most beautiful flowers,
+
+incense, music, perfumes, and parasols,
+
+all to adorn the Tathagatas and their lands.
 
 #### 最勝衣服最勝香  
 #### 末香燒香與燈燭  
@@ -58,7 +91,13 @@ With the most wonderful flowers, music, incense, and umbrellas, I offer offering
 
 Zuì shèng yīfú zuì shèng xiāng mò xiāng shāoxiāng yǔ dēng zhú yīyī jiē rú miàogāo jù wǒ xī gòngyǎng zhūrú lái
 
-The best clothes and the best incense, the last incense, the burning incense, and the candles are all like a wonderful gathering. I will make offerings to the Tathagata
+Bringing food, robes, and fragrant flowers,
+
+torches, sandalwood, sitting mats,
+
+the finest adornments here in abundance –
+
+an offering to the Tathagatas.
 
 #### 我以廣大勝解心  
 #### 深信一切三世佛  
@@ -67,7 +106,13 @@ The best clothes and the best incense, the last incense, the burning incense, an
 
 Wǒ yǐ guǎngdà shèng jiě xīn shēnxìn yīqiè sānshì fú xī yǐ pǔ xián xíng yuàn lì pǔbiàn gòngyǎng zhūrú lái
 
-With a vast understanding of mind, I firmly believe that all the Buddhas of the three generations will make offerings to the Tathagata with the power of Samantabhadra’s actions and vows.
+Inspired by Samantabhadra’s vow,
+
+I bring my heart, wide with deep understanding,
+
+with loving faith in the Buddhas of the Three Times,
+
+as an offering to the Tathagatas everywhere.
 
 #### 我昔所造諸惡業  
 #### 皆由無始貪嗔癡  
@@ -76,7 +121,14 @@ With a vast understanding of mind, I firmly believe that all the Buddhas of the 
 
 Wǒ xī suǒ zào zhū è yè jiē yóu wú shǐ tān chēn chī cóng shēn yǔyì zhī suǒ shēng yīqiè wǒ jīn jiē chànhuǐ
 
-All the evil deeds I have done in the past are all born from the beginningless greed, hatred and delusion, from the deeds of my body, speech and mind. I now repent of everything.
+From beginningless time I have acted unskillfully
+
+with craving, hatred, and ignorance
+
+in actions of body, speech, and mind.
+
+Determined now to begin anew, I repent.
+
 
 #### 十方一切諸眾生  
 #### 二乘有學及無學  
@@ -94,7 +146,14 @@ All sentient beings in the ten directions have learning and non-learning of the 
 
 Shí fāng suǒyǒu shìjiān dēng zuìchū chéngjiù pútí zhě wǒ jīn yīqiè jiē quàn qǐng zhuǎn yú wú shàng miào fǎlún
 
-All the lamps of the world in the ten directions Who first attained Bodhi, I now urge everything to turn to the supreme and wonderful Dharma wheel
+I rejoice in every virtuous action
+
+by anyone, in any direction,
+
+by learners and by those who need learn no more,
+
+of Buddhas and Bodhisattvas.
+
 
 #### 諸佛若欲示涅槃  
 #### 我悉至誠而勸請  
