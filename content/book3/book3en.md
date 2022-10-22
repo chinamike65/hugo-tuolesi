@@ -195,7 +195,7 @@ August 8, 2015
 | **Table of contents** |
 | --- |
 
-### Part I - The Victor and the Teachings are excellent ………………. 3
+### Part I - The Victor and the Teachings are excellent
 
 #### Chapter 1 The Lineage of the Path ………………. 5
 
@@ -227,7 +227,7 @@ Greatness of the "Great Treatise on the Stages of the Path of Enlightenment "...
 
 ##### 2. The Importance of the Sequence of the Paths ................... 26
 
-### Part II - How to Learn The Three Principal Aspects of the Path ……………… 29
+### Part II - How to Learn The Three Principal Aspects of the Path
 
 #### Chapter 1 The root of the Path is to be close to the guru ………….. 31
 
@@ -307,7 +307,7 @@ Greatness of the "Great Treatise on the Stages of the Path of Enlightenment "...
 
 (13) Purity …………. 56
 
-**Section 2 - Getting Closer to the Guru……………… 58**
+**Section 2 - Getting Closer to the Guru**
 
 ##### 1. How to get close to the guru …………. 59
 
@@ -375,7 +375,7 @@ Section 3 The sin of disrespecting the guru ………………. 93
 
 (7) An unbalanced view of the sinful karma of the guru... 116
 
-**Section 4  - The Attitude of Being Close to the Guru  … 118**
+**Section 4  - The Attitude of Being Close to the Guru**
 
 ##### 1. The merits of reciting teachers and building up confidence. . . . 118
 
@@ -395,7 +395,7 @@ Section 3 The sin of disrespecting the guru ………………. 93
 
 (4) The kindness of reciting teachers inspires respect... 132
 
-**Section 5 - How to Learn to Draw Close to the Guru ....135**
+**Section 5 - How to Learn to Draw Close to the Guru**
 
 ##### 1. How to practice during regular practice ………… 135
 
@@ -491,7 +491,7 @@ Section 3 The sin of disrespecting the guru ………………. 93
 
 ##### 3. The Three Principal Aspects of the Path Stages of Practice ………… 204
 
-### Part III - The Three Principal Aspects of the Path ……………………. 209
+### Part III - The Three Principal Aspects of the Path
 
 Part 1 - Lower Path …………………… 211
 
@@ -689,9 +689,9 @@ holder of the treasury of instructions
 
 ---
 
-.......... "A Hymn of Experience (Lam rim nyam gur)"
-
-by Je Tsongkhapa
+|"A Hymn of Experience (Lam rim nyam gur)"|
+| --- |
+| by Je Tsongkhapa |
 
 ##### Chapter 1 - Lineage of the Paths
 
@@ -701,7 +701,7 @@ First of all, we must understand the meaning of "Stages of the Path to Enlighten
 
 Bodhi means enlightenment, cutting off refers to the removal of afflictions and obstacles to knowledge; Enlightenment means the realization of emptiness, and also has the meaning of awareness; The Way refers to the Three Aspects, which are the Lower, Middle, and Upper Scopes. The order is the sequence, the procedure.
 
-The Buddha's teachings are comprised 84,000 Dharma gates, and what the Three Aspects teach is the correct sequence of the "Stages of the Path of Enlightenment".
+The Buddha's teachings are comprised 84,000 Dharma gates or doors, and what the Three Aspects teach is the correct sequence of the "Stages of the Path of Enlightenment".
 
 To talk about the "Stages of the Path of Enlightenment", we must talk about the "Great Treatise on the Stages of the Path of Enlightenment" by Je Tsongkhapa.
 
@@ -749,17 +749,17 @@ Later, other sects in Tibet also formed their own schools based on the "Lamp for
 
 7
 
-Venerable Atisha passed the "Lamp for the Path to Enlightenment" to Master Dromtönpa. At that time, the venerable passed it to him in secret, and Dromtönpa asked inexplicably, **"Why did the venerable teach the secrets to others? The mantra, and teach me the order of the path?"** The Venerable Atisha replied, "Besides you, I have not found anyone to whom can entrust this Dharma!" This shows the importance and splendor of the "Lamp for the Path to Enlightenment", and it also indicates that it is the origin of the saying that Master Dromtönpa will spread the Dharma and benefit life in the future.
+Venerable Atisha passed the "Lamp for the Path to Enlightenment" to Master Dromtönpa. At that time, the Atisha passed it to him in secret, and Dromtönpa, unable to understand, asked, **"Why did Atisha teach the secrets to others? The mantra, and teach me the order of the path?"** The Venerable Atisha replied, "Besides you, I have not found anyone to whom can entrust this Dharma!" This shows the importance and splendour of the "Lamp for the Path to Enlightenment", and it also indicates that it is the origin of the saying that Master Dromtönpa will spread the Dharma and benefit life in the future.
 
-Later, Master Dromtönpa founded Radreng / Reting Monastery, established a Kadam School, spread the Dharma, and guided the practice according to the teachings of "Lamp for the Path to Enlightenment". Many people have achieved this.
+Later, Master Dromtönpa founded Radreng / Reting Monastery, established a Kadam School, spread the Dharma, and guided the practice according to the teachings of "Lamp for the Path to Enlightenment". Many people have achieved enlightenment through this.
 
-After the establishment of the Kadam School, Master Dromtönpa passed the "Lamp for the Path to Enlightenment" to Gompawa, and Gompawa passed it on to Yeshiba, and Yeshiba passed on Tamaba and Jechenpo, forming the Kadam School.
+After the establishment of the Kadam School, Master Dromtönpa passed the "Lamp for the Path to Enlightenment" to Gombawa, and Gombawa passed it on to Yeshiba, and Yeshiba passed on Tamaba and Jechenpo, forming the Kadam School.
 
 Dromtönpa also passed on the order of the path to Shi Owa, who passed on to Chayuwa, and later formed the order of the path of the **Kadam Professor School.**
 
 Master Tsongkhapa received the lineages of these two schools from the great siddhi of Lodha, Namkha Gyaltsen. Master Namkha Gyaltsen was very accomplished and had received these deep teachings from Vajrapani Bodhisattva himself.
 
-In addition, Master Tsongkhapa also obtained the lineage of the Kadampa school from the Dharma Khenpo Dharma Protector of Tsaku Monastery, which was passed on by Dromtönpa to Potoba, and from Potoba to Sharaba.
+In addition, Master Tsongkhapa also obtained the lineage of the Kadampa school from the Dharma Khenpo Dharma Protector of Tsaku Monastery, which was passed on by Dromtönpa to Potoba, and from Potoba to Sharawa.
 
 8
 
@@ -775,19 +775,27 @@ In this way, Master Tsongkhapa obtained all the lineage of the lower, middle and
 
 "The Great Treatise on the Stages of the Path of Enlightenment" explains the theory of the "Lamp for the Path to Enlightenment" in a deeper and broader way, which is wide, profound and easy to understand. For those who find the "Lamp for the Path to Enlightenment" difficult to understand, the "Great Treatise on the Stages of the Path of Enlightenment" explains it very clearly .
 
-In Tibetan areas, the Tibetan version of "Great Treatise on the Stages of the Path of Enlightenment " can be understood a lot by an ordinary person, such as a nomadic shepherds; an arhat with high wisdom will also find it profound, subtle and inconceivable when he sees it. "The Great Treatise on the Stages of the Path of Enlightenment"  is very, very special.
+In Tibet, the Tibetan version of "Great Treatise on the Stages of the Path of Enlightenment " can be understood a lot by an ordinary person, such as a nomadic shepherds; an arhat with high wisdom will also find it profound, subtle and inconceivable when he reads it. "The Great Treatise on the Stages of the Path of Enlightenment"  is very, very special.
 
-#### Chapter 2 
+#### Chapter 2 - the peculiarity of the order of the path 
 
-- the peculiarity of the order of the path, mentions the three aspects, the order of the path of enlightenment, and the "Great Treatise on the Stages of the Path of Enlightenment", so it is inevitable to mention Master Tsongkhapa. 
+mentions the three aspects, the order of the path of enlightenment, and the "Great Treatise on the Stages of the Path of Enlightenment", so it is inevitable to mention Master Tsongkhapa. 
 
 So, what kind of person is Master Tsongkhapa?
 
-Section 1 - Master Tsongkhapa was born on the twenty-fifth day of the tenth year of the Tibetan calendar in 1357 in Huangzhong County, Qinghai Province. Because the place of birth is called "Tsongkha" in Tibetan, he is honored as Tsongkhapa, which means born in Tsongkha.
+**Section 1**
+
+Master Tsongkhapa was born on the twenty-fifth day of the tenth year of the Tibetan calendar in 1357 in Huangzhong County, Qinghai Province. Because the place of birth is called "Tsongkha" in Tibetan, he is honored as Tsongkhapa, which means born in Tsongkha.
 
 Master Tsongkhapa is the founder of the Gelug School of Tibetan Buddhism and the wisdom reincarnation of Manjushri. 
 
-Maitreya Bodhisattva once said: "The incarnation of Manjushri, like the eyes and heart of all Buddhas and Bodhisattvas, will appear in the world."
+Maitreya Bodhisattva once said: 
+
+"The incarnation of Manjushri, 
+
+like the eyes and heart of all Buddhas and Bodhisattvas, 
+
+will appear in the world."
 
 11
 
