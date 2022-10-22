@@ -229,7 +229,7 @@ Greatness of the "Great Treatise on the Stages of the Path of Enlightenment "...
 
 ##### 2. The Importance of the Sequence of the Paths ................... 26
 
-### Part II - How to Learn The Three Principal Aspects of the Path
+### Part II - [How to Learn The Three Principal Aspects of the Path]({{< relref "#how-to-learn-3" >}})
 
 #### Chapter 1 The root of the Path is to be close to the guru ………….. 31
 
@@ -1114,7 +1114,10 @@ Rako Rinpoche's "Treasures of the Sea of ​​the Dharma"
 
 ![拉科仁波切](/images/howtostudy3shidao.png)
 
-How to Learn the The Three Principal Aspects of the Path 
+How to Learn The Three Principal Aspects of the Path 
+
+#### {#how-to-learn-3}
+
 
 [Back to Contents]({{< relref "#toc-back" >}})
 
