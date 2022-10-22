@@ -4,8 +4,10 @@ date: 2022-10-01T12:39:35+01:00
 draft: false
 ---
 
-#### 所有十方世界中      三世一切人師子  
-#### 我以清凈身語意      一切遍禮盡無余
+#### 所有十方世界中  
+#### 三世一切人師子  
+#### 我以清凈身語意  
+#### 一切遍禮盡無余
 
 Suǒyǒu shí fāng shìjiè zhōng sānshì yīqiè rén shī zi 
 
@@ -13,55 +15,82 @@ wǒ yǐ qīngjìng shēn yǔyì yīqiè biàn lǐ jìn wú yú
 
 In all the worlds of the ten directions, all people, teachers and children, I have pure body, speech, and mind.
 
-#### 普賢行願威神力  普現一切如來前  一身覆現剎塵身  一一遍禮剎塵佛
+#### 普賢行願威神力  
+#### 普現一切如來前  
+#### 一身覆現剎塵身  
+#### 一一遍禮剎塵佛
 
 Pǔ xián xíng yuàn wēi shénlì pǔ xiàn yīqiè rúlái qián yīshēn fù xiàn shā chén shēn yīyī biàn lǐ shā chén fú
 
 The power of Samantabhadra's actions, the mighty divine power, and the divine power of all the Tathagatas appear in front of all the Buddhas.
 
-#### 於一塵中塵數佛  各處菩薩眾會中  無盡法界塵亦然  深信諸佛皆充滿
+#### 於一塵中塵數佛  
+#### 各處菩薩眾會中  
+#### 無盡法界塵亦然  
+#### 深信諸佛皆充滿
 
 Yú yī chén zhōng chén shù fú gè chù púsà zhòng huì zhōng wújìn fǎjiè chén yì rán shēnxìn zhū fú jiē chōngmǎn
 
 There are as many buddhas in a single dust, in the assembly of bodhisattvas everywhere, and the dust of the endless dharma realm is also the same. I firmly believe that all Buddhas are filled with
 
-#### 各以一切音聲海  普出無盡妙言辭  盡於未來一切劫  讚佛甚深功德海
+#### 各以一切音聲海  
+#### 普出無盡妙言辭  
+#### 盡於未來一切劫  
+#### 讚佛甚深功德海
 
 Gè yǐ yīqiè yīn shēng hǎi pǔ chū wújìn miào yáncí jǐn yú wèilái yīqiè jié zàn fú shèn shēn gōngdé hǎi
 
 With all the voices and voices, they will spread out endless wonderful words, and they will be used for all future kalpas.
 
-#### 以諸最勝妙華鬘  伎樂塗香及傘蓋  如是最勝莊嚴具  我以供養諸如來
+#### 以諸最勝妙華鬘  
+#### 伎樂塗香及傘蓋  
+#### 如是最勝莊嚴具  
+#### 我以供養諸如來
 
 Yǐ zhū zuì shèng miào huámán jì lè tú xiāng jí sǎn gài rúshì zuì shèng zhuāngyán jù wǒ yǐ gòngyǎng zhūrú lái
 
 With the most wonderful flowers, music, incense, and umbrellas, I offer offerings to the Tathagata
 
-#### 最勝衣服最勝香  末香燒香與燈燭  一一皆如妙高聚  我悉供養諸如來
+#### 最勝衣服最勝香  
+#### 末香燒香與燈燭  
+#### 一一皆如妙高聚  
+#### 我悉供養諸如來
 
 Zuì shèng yīfú zuì shèng xiāng mò xiāng shāoxiāng yǔ dēng zhú yīyī jiē rú miàogāo jù wǒ xī gòngyǎng zhūrú lái
 
 The best clothes and the best incense, the last incense, the burning incense, and the candles are all like a wonderful gathering. I will make offerings to the Tathagata
 
-#### 我以廣大勝解心  深信一切三世佛  悉以普賢行願力  普遍供養諸如來
+#### 我以廣大勝解心  
+#### 深信一切三世佛  
+#### 悉以普賢行願力  
+#### 普遍供養諸如來
 
 Wǒ yǐ guǎngdà shèng jiě xīn shēnxìn yīqiè sānshì fú xī yǐ pǔ xián xíng yuàn lì pǔbiàn gòngyǎng zhūrú lái
 
 With a vast understanding of mind, I firmly believe that all the Buddhas of the three generations will make offerings to the Tathagata with the power of Samantabhadra’s actions and vows.
 
-#### 我昔所造諸惡業  皆由無始貪嗔癡  從身語意之所生  一切我今皆懺悔
+#### 我昔所造諸惡業  
+#### 皆由無始貪嗔癡  
+#### 從身語意之所生  
+#### 一切我今皆懺悔
 
 Wǒ xī suǒ zào zhū è yè jiē yóu wú shǐ tān chēn chī cóng shēn yǔyì zhī suǒ shēng yīqiè wǒ jīn jiē chànhuǐ
 
 All the evil deeds I have done in the past are all born from the beginningless greed, hatred and delusion, from the deeds of my body, speech and mind. I now repent of everything.
 
-#### 十方一切諸眾生  二乘有學及無學  一切如來與菩薩  所有功德皆隨喜
+#### 十方一切諸眾生  
+#### 二乘有學及無學  
+#### 一切如來與菩薩  
+#### 所有功德皆隨喜
 
 Shí fāng yīqiè zhū zhòngshēng èr chéng yǒu xué jí wú xué yīqiè rúlái yǔ púsà suǒyǒu gōngdé jiē suíxǐ
 
 All sentient beings in the ten directions have learning and non-learning of the two vehicles, all Tathagatas and Bodhisattvas, all merits and virtues rejoice
 
-#### 十方所有世間燈  最初成就菩提者  我今一切皆勸請  轉於無上妙法輪
+#### 十方所有世間燈  
+#### 最初成就菩提者  
+#### 我今一切皆勸請  
+#### 轉於無上妙法輪
 
 Shí fāng suǒyǒu shìjiān dēng zuìchū chéngjiù pútí zhě wǒ jīn yīqiè jiē quàn qǐng zhuǎn yú wú shàng miào fǎlún
 
