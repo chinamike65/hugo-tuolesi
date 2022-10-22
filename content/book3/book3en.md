@@ -195,6 +195,8 @@ August 8, 2015
 | **Table of contents** |
 | --- |
 
+#### {#toc-back}
+
 ### Part I - The Victor and the Teachings are excellent
 
 #### Chapter 1 The Lineage of the Path ………………. 5
@@ -693,6 +695,8 @@ holder of the treasury of instructions
 | --- |
 | by Je Tsongkhapa |
 
+[Back to Contents]({{< relref "#toc-back" >}})
+
 ##### Chapter 1 - Lineage of the Paths
 
 Now I will tell you about the Three Principal Aspects of the Path and the Stages of the Path to Enlightenment.
@@ -776,6 +780,8 @@ In this way, Master Tsongkhapa obtained all the lineage of the lower, middle and
 "The Great Treatise on the Stages of the Path of Enlightenment" explains the theory of the "Lamp for the Path to Enlightenment" in a deeper and broader way, which is wide, profound and easy to understand. For those who find the "Lamp for the Path to Enlightenment" difficult to understand, the "Great Treatise on the Stages of the Path of Enlightenment" explains it very clearly .
 
 In Tibet, the Tibetan version of "Great Treatise on the Stages of the Path of Enlightenment " can be understood a lot by an ordinary person, such as a nomadic shepherds; an arhat with high wisdom will also find it profound, subtle and inconceivable when he reads it. "The Great Treatise on the Stages of the Path of Enlightenment"  is very, very special.
+
+[Back to Contents]({{< relref "#toc-back" >}})
 
 #### Chapter 2 - the peculiarity of the order of the path 
 
@@ -1109,6 +1115,8 @@ Rako Rinpoche's "Treasures of the Sea of ​​the Dharma"
 ![拉科仁波切](/images/howtostudy3shidao.png)
 
 How to Learn the The Three Principal Aspects of the Path 
+
+[Back to Contents]({{< relref "#toc-back" >}})
 
 #### Part 2
 
