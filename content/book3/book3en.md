@@ -199,9 +199,9 @@ August 8, 2015
 
 ### Part I - The Victor and the Teachings are excellent
 
-#### Chapter 1 The Lineage of the Path ………………. 5
+#### Chapter 1 - The Lineage of the Path ………………. 5
 
-#### Chapter 2 Perfection of the sequence of the Path ……………….11
+#### Chapter 2 - Perfection of the sequence of the Path ……………….11
 
 Master Tsongkhapa……………….. 11
 
@@ -231,9 +231,9 @@ Greatness of the "Great Treatise on the Stages of the Path of Enlightenment "...
 
 ### Part II - [How to Learn The Three Principal Aspects of the Path]({{< relref "#how-to-learn-3" >}})
 
-#### Chapter 1 The root of the Path is to be close to the guru ………….. 31
+#### Chapter 1 - The root of the Path is to be close to the guru ………….. 31
 
-**Section 1 Requirements of a Guru ... 34**
+**Section 1 - Requirements of a Guru ... 34**
 
 ##### 1. Basic requirements of a guru... 34
 
@@ -441,7 +441,7 @@ Section 3 The sin of disrespecting the guru ………………. 93
 
 ##### 4. The Etiquette of Listening to the Dharma 170
 
-#### Chapter 2 How to study after getting close to the guru………….. 173
+#### Chapter 2 - How to study after getting close to the guru………….. 173
 
 **Section 1 - Precious Human Life ……………….. 173**
 
@@ -698,7 +698,7 @@ holder of the treasury of instructions
 [Back to Contents]({{< relref "#toc-back" >}})
 
 ##### Chapter 1 - Lineage of the Paths
-
+#### {#path-lineage}
 Now I will tell you about the Three Principal Aspects of the Path and the Stages of the Path to Enlightenment.
 
 First of all, we must understand the meaning of "Stages of the Path to Enlightenment".
@@ -784,7 +784,7 @@ In Tibet, the Tibetan version of "Great Treatise on the Stages of the Path of En
 [Back to Contents]({{< relref "#toc-back" >}})
 
 #### Chapter 2 - the peculiarity of the order of the path 
-
+#### {#chapter-2}
 mentions the three aspects, the order of the path of enlightenment, and the "Great Treatise on the Stages of the Path of Enlightenment", so it is inevitable to mention Master Tsongkhapa. 
 
 So, what kind of person is Master Tsongkhapa?
@@ -906,7 +906,7 @@ Master Tsongkhapa, the creator of the broad and brief discussion of the path to 
 
 17
 
-Before Master Tsongkhapa, most monks in Tibet had abolished the precepts. In practice, those who meditate cannot distinguish between gross and subtle drowsiness, those who practice emptiness do not understand the deep insight of the Middle Way, and those who practice tantric methods do not understand **phantom body and double body movement**.
+Before Master Tsongkhapa, most monks in Tibet had abolished the precepts. In practice, those who meditate cannot distinguish between gross and subtle drowsiness, those who practice emptiness do not understand the deep insight of the Middle Way, and those who practice tantric methods do not understand **illusory body and double body movement**.
 
 The emergence of the master has corrected these phenomena one by one. 
 
@@ -1035,8 +1035,8 @@ Master Tsongkhapa, Gyaltsab Je, and Kedrub Je were later honored as "Three Maste
 
 
 
-Section 3 - Other writings on the stages of the path 
-
+**Section 3 - Other writings on the stages of the path** 
+#### {#other-writings}
 1. Other writings on the stages of the path 
 
 If we understand the "The Great Treatise on the Stages of the Path to Enlightenment", we will understand the sequence of the Path to Enlightenment, and we will understand how we should practice in the future.
@@ -1186,8 +1186,8 @@ The magnifying glass can concentrate sunlight to burn cotton, and so does the bl
 
 33
 
-Section 1 - Qualifications of a Guru
-
+**Section 1 - Qualifications of a Guru**
+#### {#guru-reqs}
 The guru we want to follow, in general, needs to meet five conditions: pure precepts; perfect understanding of the Dharma; great kindness and compassion; pure lineage; understanding of emptiness.
 
 1. Basic requirements for a guru 
@@ -1288,8 +1288,8 @@ In general, if you want to follow a guru, you must follow a guru who meets the a
 
 Gurus can be divided into precept gurus, Mahayana gurus, and Tantric gurus, all of which have different requirements.
 
-#### 2. Requirements for the Ordination Guru
-
+#### 2. Requirements for Ordained Monks
+#### {#ordained-reqs}
 The conditions for the guru to teach the precepts and vows require that the teacher who imparts the precepts and the vows refers to the guru Guru who taught the Five Precepts, the Novice Precepts, and the Bhikkhu Precepts.
 
 A precept master also needs to meet five conditions: purity of precepts; knowledge of discipline; compassion; cleanliness of residence; patience.
@@ -1507,7 +1507,7 @@ Because every disciple has different abilities, qualities, habits, etc., they ma
 To be a Mahayana teacher who teaches sutras and Dharma, one must meet the above ten conditions.
 
 #### 4. Requirements for a Tantric Guru: 
-
+#### {#tantric-reqs}
 There are many more requirements for a master of Tantra empowerments than those for a Mahayana master. At least thirteen conditions must be met: 
 
 Uphold the three righteousness; be full of wisdom; be patient; be upright; No fraud; understand medicine and mantra; have compassion; know scriptures and teachings; master double ten methods;
@@ -1837,7 +1837,7 @@ When the eyes look at external objects, they do not have thoughts, and do not ge
 These are the thirteen conditions that a master of tantric empowerment needs to meet.
 
 #### Section 2 - Getting close to the guru
-
+#### {#getting-close-guru}
  After understanding the requirements for a guru, if you encounter a guru with these virtues, you should accept him as your guru, listen to the scriptures, listen to the Dharma, and study hard.
 
 While you are studying, you may encounter many virtuous teachers. Should you follow only one guru and then practice meditation;
@@ -2290,9 +2290,13 @@ The greater the devotion, the greater the blessing.
 
 The Five Kagyu Laws also say:
 
-On the four-body snow-capped mountain of the master, if the sunshine of devotion does not shine,
+On the four-body snow-capped mountain of the master, 
 
-The nectar of blessings will not flow out, and you should make more efforts in devotion and vows.
+if the sunshine of devotion does not shine,
+
+The nectar of blessings will not flow out, 
+
+and you should make more efforts in devotion and vows.
 
 It shows that the strength of the disciple's blessing from the guru depends entirely on the strength of the disciple's devotion and vows, that is, the strength of devotion to the guru and the strength of the will to pray for the guru's blessing.
 
@@ -3729,7 +3733,7 @@ Think about all these aspects, how much progress you have made than before, all 
 
 134
 
-#### Section 5 How to learn to be close to the guru 
+#### Section 5 - How to learn to be close to the guru 
 
 We now understand why we are talking about being close to the guru. We also understand the merits of being close to the guru, as well as the various disadvantages of being disrespectful to the guru. Next, we need to learn how to meditate. Get close to the guru.
 
@@ -4154,7 +4158,7 @@ Samantabhadra Bodhisattva, the wish-fulfilling jewel of each Samantabhadra emits
 
 Continue to contemplate in this way until the entire sky is filled with Samantabhadra.
 
-Then visualize the wish-fulfilling treasures in the hands of each Samantabhadra Bodhisattva transforming into various offerings, making offerings to the Buddhas and Tathagatas, and at the same time reciting the offering Offering Clouds Dharani:
+Then visualize the wish-fulfilling treasures in the hands of each Samantabhadra Bodhisattva transforming into various offerings, making offerings to the Buddhas and Tathagatas, and at the same time reciting the Offering Clouds Dharani:
 
 >
 >Namo Ratna Trayaya
@@ -4492,7 +4496,7 @@ In addition, in order to prevent afflictions, obstructions to the practice, and 
 162
 
 #### Section 6 - Qualities and Requirements of a Disciple
-
+#### {#disciple-reqs}
 ##### 1. Qualities of a disciple
 
 To be a guru, there are certain conditions and requirements, and to be a disciple, one must also have a disciple's virtues. A disciple without virtues will also hinder his study.
@@ -4713,7 +4717,7 @@ If the disciple is listening in front and the teacher is speaking at the back; o
 >
 172
 
-#### Section 2 How to study after getting close to the guru
+#### Section 2 - How to study after getting close to the guru
 
 ##### Chapter 1 - Precious Human Life
 
@@ -4738,7 +4742,7 @@ However, everyone's physical conditions are different. For reaching liberation, 
 A precious human body full of freedom is a human body that has the eighteen conditions of eight freedoms and ten endowmwents.
 
 ##### (1) The eight freedoms of human beings
-
+#### {#eight-freedoms}
 That is to say, those who wish to be liberated must not only respect and believe in the Three Jewels of the Guru, but also have the time and ability to hear, reflect, and practice the true Dharma. This is called freedom.
 
 In order to understand the eight freedoms, one must first understand the eight flaws.
@@ -5400,7 +5404,7 @@ Learning Buddhism requires many different conditions. These two are the biggest 
 
 201
 
-#### Section 2 Correctly understand that the heart of the Dharma is to be close to the guru, which is the foundation of the Path.
+#### Section 2 - Correctly understand that the heart of the Dharma is to be close to the guru, which is the foundation of the Path.
 
 There are the Lower, Middle, and Upper scopes.
 
@@ -5594,7 +5598,7 @@ In addition, think well about the results of black and white actions,
 
 210
 
-### Chapter 1 The Three Principal Aspects of the Path 
+### Chapter 1 - The Three Principal Aspects of the Path 
 
 #### Section 1 Impermanence of Life
 
@@ -6092,7 +6096,7 @@ For ordinary people who have poor practice or have not studied Buddhism, death i
 
 However, if you can think of the Three Jewels of the Guru at this time, you will not be afraid and will not fall into the evil realms.
 
-##### (2) The difference between those who study Buddhism and do not study Buddhism at the end of life 
+##### (2) The difference between those who study Buddhism and those who do not study Buddhism at the end of life 
 
 Although people are bound to die, the time of death is different.
 
@@ -6217,7 +6221,7 @@ When we don’t realize that life is impermanent, even chanting scriptures for t
 236
 
 #### Section 2: The Three Evil Realms of Suffering 
-
+#### {#3-evil-realms}
 We have already understood that life is impermanent, but have you ever considered, if you really die, where will the next rebirth be?
 
 Can you be reborn in a pure land? Will you be reborn in a good realm or to fall into a bad realm?
@@ -6365,6 +6369,7 @@ That is, you will be tortured in a hot hell for so long before moving to another
 Moreover, the Reviving Hell has the shortest lifespan among the hot hells, that is, the hell where one suffers for the shortest period of pain. How long the pain will last!
 
 ##### (1) Reviving Hell 
+#### {#reviving-hell}
 
 The resentment of the living beings in the Reviving Hell is very large from birth. The living beings here are just born, and a lot of knives and spears will naturally fall from the air, and then the living beings in the hell will kill each other with these weapons.
 
@@ -6679,7 +6684,7 @@ If you continue to create negative karma, you will continue to suffer, not to me
 255
 
 ##### （二）The Suffering of Hungry Ghosts
-
+#### {#hungry-ghosts}
 Five hundred yojanas below the ground of Jambudvipa, Kunan, is the realm of hungry ghosts, there is a city of hungry ghosts called Jepila. There is no grass, no running water, and the ground is like iron heated by the sun.
 
 This is the place where all beings in the realm of hungry ghosts are reborn.
@@ -6867,7 +6872,7 @@ How painful it was to be a dog. He felt that even if he went to hell, he would n
 264
 
 #### Section 3 - Refuge 
-
+#### {#taking-refuge}
 This part is about taking refuge.
 
 There are two kinds of refuges. In Southern Buddhism and Chinese Buddhism there are three refuges, and Tibetan Buddhism is a combined practice of exoteric and tantric practice. Therefore, we are talking about four refuges.
@@ -6949,7 +6954,7 @@ However, all the Buddhas and Tathagatas are first integrated into the guru. Only
 Then, let's look at the merits of the Three Jewels.
 
 ##### 1. Buddha's merits 
-
+#### {#buddha-merits}
 Buddhas have inconceivable merits of body, speech and mind.
 
 ##### (1) Buddha's body merits 
