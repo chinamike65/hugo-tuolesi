@@ -351,7 +351,7 @@ Greatness of the "Great Treatise on the Stages of the Path of Enlightenment "...
 
 (3) The merits of being a Buddha…. 91
 
-Section 3 The sin of disrespecting the guru ………………. 93
+Section 3 - The sin of disrespecting the guru ………………. 93
 
 ##### 1. The sinful karma of the body ................................................ 93
 
@@ -495,7 +495,7 @@ Section 3 The sin of disrespecting the guru ………………. 93
 
 ### Part III - The Three Principal Aspects of the Path
 
-Part 1 - Lower Path …………………… 211
+Section 1 - Lower Path …………………… 211
 
 #### Chapter 1 - Impermanence of life ……………….. 211
 
@@ -741,7 +741,7 @@ Venerable Atisha got the lineage of Profound View from **Xiaozhengli Dujuan** an
 
 Venerable Atisha also received the lineage of the Dorje Chang / Vajradhara of the Practice Blessing School. Shakyamuni Buddha incarnated as Vajradhara and passed it on to Tilopa, Tilopa passed it on to Naropa, Naropa passed it on to **Zhububa, Jububa** then passed it on to Venerable Atisha.
 
-At the same time, Venerable Atisha also received the transmission of the lineage of Shantideva Bodhisattva's "A Guide to the Bodhisattva's Way of Life" by Manjushri.
+At the same time, Venerable Atisha also received the transmission of the lineage of Shantideva Bodhisattva's "Bodhisattvacaryāvatāra" by Manjushri.
 
 In this way, the Venerable Atisha received the complete transmission and teaching of sutra and tantra, and gained access to all of the Dharma.
 
@@ -805,15 +805,15 @@ will appear in the world."
 
 11
 
-Master Tsongkhapa's father often recited "Manjushri's True Name Sutra". Before the birth of the master, he dreamt of a great virtue, saying that he came from Wutai Mountain in the Han Dynasty and stayed with him, and then various auspicious signs appeared one after another.
+Master Tsongkhapa's father often recited "A Concert of Names of Manjushri". Before the birth of the master, he dreamt of a great virtue, saying that he came from Wutai Mountain in the Han Dynasty and stayed with him, and then various auspicious signs appeared one after another.
 
-All this shows that Master Tsongkhapa is the true reincarnation of Manjushri.
+All this shows that Master Tsongkhapa is a true emanation of Manjushri.
 
-The master was given the five novice precepts at the age of three. At the age of seven, he was sent to the Xia Qiong Monastery of the Kadam School by his family. He took the secret name of Lobsang Drakpa, and later took the novice vows. In 1409, the master established Ganden Monastery, and on the foundation of the Kadam School, the Gelug School was established.
+The master was given the five novice precepts at the age of three. At the age of seven, he was sent to the Xia Qiong Monastery of the Kadam School by his family. He took the secret name of Lobsang Drakpa, and later took the novice vows. In 1409, Master Tsongkhapa established Ganden Monastery, and on the foundation of the Kadam School, the Gelug School was established.
 
 The master studied with many teachers in his life, and these masters belonged to different sects. The master gathered the heads of various schools, and after assiduous study, he gradually revealed many unparalleled talents.
 
-In a dharma conference, Master **Shuofuwuhan** explained 15 treatises at the same time, for three consecutive months without interruption; two books were finished early, and another two were added immediately. A total of 17 treatises were lectured on during the dharma conference. At another Dharma conference, he lectured on twenty-one great treatises on the same day.
+In a dharma conference, Master explained 15 treatises at the same time, for three consecutive months without interruption; two books were finished early, and another two were added immediately. A total of 17 treatises were lectured on during the dharma conference. At another Dharma conference, he lectured on twenty-one great treatises on the same day.
 
 There was even a marvelous event in which twenty-nine great treatises were simultaneously lectured at the Dharma conference, which was admirable. These wonderful lectures had never taken place before in India or Tibet.
 
@@ -827,25 +827,27 @@ The master of learning without hindrance is able to understand all the Buddhadha
 
 Master Khedrubje Gelek Pelzang praised: 
 
-The Bodhisattvas in India and the Master Buston in Tibet, 
-
-although they have learned widely, 
-
-are not as well-versed as Master Tsongkhapa.
+>
+>The Bodhisattvas in India and the Master Buston in Tibet, 
+>
+>although they have learned widely, 
+>
+>are not as well-versed as Master Tsongkhapa.
+>
 
 The Kagyu sect has a teaching of Mahamudra, the Nyingma sect has a teaching of Dzogchen, the Sakya sect has a teaching of Path and Fruit, and the Kadam sect has a teaching of impermanence and bodhicitta.
 
 However, the only one who can teach all the sutras spoken by the Buddha is the teaching of Tsongkhapa. For this reason, the scriptures created by the masters also have the following characteristics:
 
-Able to declare the complete path sequence for the upper, middle and lower aspects.
+1. Able to declare the complete path sequence for the upper, middle and lower scopes.
 
-They are all written by the masters themselves.
+2. They are all written by the masters themselves.
 
-Perfect and flawless, no one can refute it.
+3. Perfect and flawless, no one can refute it.
 
-It has characteristics not found in other scriptures.
+4. It has characteristics not found in other scriptures.
 
-All the wise men rejoice and believe.
+5. All the wise men rejoice and believe.
 
 In the early days of the precept-keeping master, the tenets of Tibetan Buddhism were relaxed, and Khedrubje Gelek Pelzang said in the biography of Master Tsongkhapa: 
 
@@ -855,9 +857,9 @@ This shows how desolate Tibetan Buddhism was at that time, and the master was ve
 
 The master's own body, speech, and mind rested in a pure and solemn state. Inspired by the master, monks in large and small monasteries in Tibetan areas gradually became pure and more virtuous.
 
-Even if I accidentally violated it occasionally, I would feel ashamed and immediately repent according to the ritual.
+Even if they accidentally violated the precepts occasionally, they would feel ashamed and immediately repent according to the ritual.
 
-Many saints have been prophesied by the master Shakyamuni Buddha, Maitreya Bodhisattva, Manjushri Bodhisattva, Machig Labdrön, Candrakīrti Bodhisattva, Guru Rinpoche, etc., all of whom have prophesied Master Tsongkhapa.
+Many saints were prophesied by Shakyamuni Buddha: Maitreya Bodhisattva, Manjushri Bodhisattva, Machig Labdrön, Candrakīrti Bodhisattva, Guru Rinpoche, etc., all of whom made prophesies regarding Master Tsongkhapa.
 
 Padmasambhava's "Words of Encouragement" says:
 
@@ -870,7 +872,7 @@ In addition, in many sutras and treatises of great siddhas, there are prophecies
 For example, Buddha Shakyamuni once foretold:
 **"In the snowy regions of Tibet, there will be a person named Lobsang Drakpa who will solemnize my incarnation Buddha image as the image of Sambhogakaya."**
 
-Later, as predicted by the Buddha, on the first day of the first lunar month in 1409, Lama Tsongkhapa personally presented a five-buddha crown made of pure gold to the Sakyamuni Buddha statue in the Jokhang Temple in Lhasa at the prayer meeting. There are many precious pearl gemstones on it, and the craftsmanship is exquisite and very strict.
+Later, as predicted by the Buddha, on the first day of the first lunar month in 1409, Lama Tsongkhapa personally presented a five-buddha crown made of pure gold to the Sakyamuni Buddha statue in the Jokhang Temple in Lhasa at the prayer meeting. There are many precious pearl gemstones on it, and the craftsmanship is exquisite and impeccable.
 
 14
 
@@ -890,29 +892,33 @@ We are very fortunate to have come across the teachings of Master Tsongkhapa, an
 
 16
 
-Section 2 - "The Great Treatise on the Stages of the Path to Enlightenment" talks about the order of the Path. Therefore, the excellence of the "The Great Treatise on the Stages of the Path to Enlightenment" is the speciality of the Three Aspects.
+### Section 2 - "The Great Treatise on the Stages of the Path to Enlightenment" 
+
+Talks about the order of the Path. Therefore, the excellence of the "The Great Treatise on the Stages of the Path to Enlightenment" is the splendour of the Three Aspects and of the order of the path.
 
 Enlightenment is also the ultimate victory of the path.
 
-"TThe Great Treatise on the Stages of the Path to Enlightenment" has five outstanding qualities: the creator, the teaching, the location, the persuasion, and the family.
+"TThe Great Treatise on the Stages of the Path to Enlightenment" has five outstanding qualities: the author, the teaching, the location, the advice, and the lineage.
 
-1. Venerable Atisha, the creator of the Three Principal Aspects, is the incarnation of Amitabha. There were countless disciples in India at that time, and many of them obtained high achievements.
+#### 1. Venerable Atisha
+
+The creator of the Three Principal Aspects, is the incarnation of Amitabha. There were countless disciples in India at that time, and many of them obtained high achievements.
 
 When His Holiness Venerable Atisha went to Tibet to teach the Dharma, he mainly taught the Three Aspects, which enabled countless practitioners in Tibet to be liberated by studying according to these Three Scopes.
 
 The teachings of His Holiness also influenced the major schools in Tibet, especially the Gelug sect, which was formerly known as the New Kadampa.
 
-Master Tsongkhapa, the creator of the broad and brief discussion of the path to enlightenment, is the reincarnation of Manjushri. The master explained in detail the three aspects of the path of Venerable Atisha, and created a complete Buddhist practice in Tibetan areas. It had never been done before.
+Master Tsongkhapa, the creator of the broad and brief discussions of the path to enlightenment, is the reincarnation of Manjushri. Tsongkhapa explained in detail the three aspects of the path of Venerable Atisha, and created a complete Buddhist practice in Tibetan areas. It had never been done before.
 
 17
 
-Before Master Tsongkhapa, most monks in Tibet had abolished the precepts. In practice, those who meditate cannot distinguish between gross and subtle drowsiness, those who practice emptiness do not understand the deep insight of the Middle Way, and those who practice tantric methods do not understand **illusory body and double body movement**.
+Before Master Tsongkhapa, most monks in Tibet had abandoned the precepts. In practice, those who meditate cannot distinguish between gross and subtle drowsiness, those who practice emptiness do not understand the deep insight of the Middle Way, and those who practice tantric methods do not understand the illusory body and the dual movement body.
 
 The emergence of the master has corrected these phenomena one by one. 
 
 It can be said that Master Tsongkhapa saved Tibetan Buddhism.
 
-2. The Exceptional Teachings:
+####  2. The Exceptional Teachings
 
 The special teachings include: the quality is correct; the quantity is perfect; the order is accurate.
 
@@ -936,7 +942,7 @@ What Tsongkhapa said is not at all wrong in nature, it is very accurate and comp
 
 The entire contents of "The Great Treatise on the Stages" of the Path to Enlightenment are extraordinary.
 
-why? Because it is widely discussed that the lineage of Nagarjuna and Asanga is the two major vehicles.
+Why? Because it is widely discussed that the lineage of Nagarjuna and Asanga is the two major vehicles.
 
 Buddha Shakyamuni once predicted: 
 
@@ -944,9 +950,9 @@ Buddha Shakyamuni once predicted:
 
 Therefore, Shakyamuni Buddha said: 
 
-"In common practice, everyone must follow Nagarjuna and Asanga Bodhisattva."
+"In common practice, everyone must follow Nagarjuna and Asanga Bodhisattvas."
 
-The essentials of "the "The Noble Sūtra of Recalling the Three Jewels" taught by Buddha Shakyamuni are all condensed in the "The Graded Stages of the Path to Enlightenment", and the outline of the extensive treatise is the The Three Principal Aspects of the Path.
+The essentials of "the "The Noble Sūtra of Recalling the Three Jewels" taught by Buddha Shakyamuni are all condensed in the "The Graded Stages of the Path to Enlightenment", and the outline of the extensive treatise is The Three Principal Aspects of the Path.
 
 Dharma should be learned through listening, thinking, and practicing.
 
@@ -974,9 +980,7 @@ When you really want to make progress in your practice, you have to do it in seq
 
 If there is no order, there will be no achievement, just as wandering around will not help you reach your destination.
 
-3. The place where you live is the place where you live.
-
-20
+#### 3. A Privileged Position
 
 Master Tsongkhapa was in Radreng Monastery when he wrote "The Great Treatise on the Stages of the Path of Enlightenment".
 
@@ -7241,8 +7245,10 @@ No matter from the perspective of the world or the gods, the benefits of Buddhis
 Because the merits of the Dharma are so extraordinary, we must take refuge in the Dharma.
 
 ##### 3. Merits of the Sangha
+#### {#sangha-merit}
 
-The Sangha are Dharma friend who practise with us or inspire us to practise. High-level monks are Arhats and Bodhisattvas. Sangha has different qualities at different stages and at different stages of fruition.
+
+The Sangha are Dharma friends who practise with us or inspire us to practise. High-level monks are Arhats and Bodhisattvas. Sangha has different qualities at different stages and at different stages of fruition.
 For example, the sravaka, who is in the position of entering and practicing the path, can access the Four Nobles and the sixteen signs in a comparable way; in the position of seeing the path, he can realize emptiness; in the position of practicing the path, he can gradually eliminate the eighty-one kinds of afflictions.
 
 A monk who has attained Arhatship has even greater virtues: he can change objects from more to less; he can display various changes by means of samadhi; he can reach any sentient beings who want to be liberated.
@@ -7834,7 +7840,9 @@ After Buddha enters Nirvana, what are the blessing fields for all living beings.
 
 The Buddha replied: 
 
-Bhikkhus and Upas, all of you must be aware that after I enter Nirvana, the offering of my body and image is no different from the field of merit and blessing that is presently offered to me.
+Bhikkhus and Upasikas, all of you must be aware that after I enter Nirvana, 
+
+the offering of my body and image is no different from the field of merit and blessing that is presently offered to me.
 
 There is no reason for things to be different.
 
@@ -8088,7 +8096,7 @@ For the practice of the Four Refuges, please refer to Treasures of the Dharma Se
 305
 
 #### Section 4 - Karma (Cause and Effect)
-
+#### {#karma}
 Having taken refuge in the Three Jewels of the Guru, although you will no longer fall into the three evil realms, you still need to respect cause and effect.
 
 If you don’t respect cause and effect, and don’t know how to restrain yourself, and you will create karma indiscriminately, and you will still suffer in the three evil realms.
@@ -8188,13 +8196,15 @@ In the Collection of Judgments and Sentences it says:
 
 --- 
 
-The Buddhas do not wash off sins with water, 
-
-nor do they remove all sufferings with their hands.
-
-Unless you transfer the blame to him, 
-
-the truth of the Dharma will lead to liberation.
+>
+>The Buddhas do not wash off sins with water, 
+>
+>nor do they remove all sufferings with their hands.
+>
+>Unless you transfer the blame to him, 
+>
+>the truth of the Dharma will lead to liberation.
+>
 
 ---
 
@@ -8220,19 +8230,21 @@ Object, intention, action, completion
 
 Cause, intention, action, result
 
-##### (1) The inevitability of karmic retribution 
+##### (1) The Inevitability of Karmic Retribution 
 
 Nagarjuna Bodhisattva said in the "Bao Ga Lun":
 
 ---
 
-Unwholesome feelings, 
-
-all sufferings, like these evil realms;
-
-Feeling all pleasures, 
-
-all living beings are happy.
+>
+>Unwholesome feelings, 
+>
+>all sufferings, like these evil realms;
+>
+>Feeling all pleasures, 
+>
+>all living beings are happy.
+>
 
 ---
 
@@ -8642,7 +8654,7 @@ no greed,
 
 no hatred, 
 
-and no wrong views.
+and, no wrong views.
 
 The opposite of the ten virtuous deeds karma are the ten non-virtuous deeds, which are: killing, stealing, sexual misconduct, lying, gossip, bad speech, flattery, greed, hatred, and wrong views.
 
@@ -8650,9 +8662,9 @@ The opposite of the ten virtuous deeds karma are the ten non-virtuous deeds, whi
 
 Severe killing means killing arhats, fathers and mothers, and killing; 
 
-moderate killings means killing large animals; 
+Moderate killings means killing large animals; 
 
-mild killings means killing small animals.
+Mild killings means killing small animals.
 
 
 In addition, there is no difference between letting others kill and committing suicide by yourself, and instigating others to kill is more serious.
@@ -9083,7 +9095,7 @@ Among the people with a precious human life, the one who is most conducive to th
 
 A person with the eight virtues includes the following eight aspects:
 
-1. Longevity and long-life of the human body can make the practice time more abundant, and it is more certain to liberate.
+1. Longevity and long-life of the human body can make the time available for practice more abundant, and liberation is more certain.
 
 When propagating the Dharma to benefit living beings, it can also benefit more sentient beings.
 
@@ -9187,7 +9199,7 @@ Finally, I also learned about the eight meritorious persons who are most suitabl
 
 This concludes the explanation of the path of the Lower Scope.
 
-When training in the Aspects of the Path, after understanding clearly the impermanence of life, if you can realize that even if you get the Fruit of gods and men, he possibility of falling into the evil realms in the next life will still exist, and the only way out is to achieve liberation from the six realms of rebirth.
+When training in the Aspects of the Path, after understanding clearly the impermanence of life, if you can realize that even if you get the Fruit of gods and men, he possibility of falling into the evil realms in the next life will still exist, and the only way out is to achieve liberation from the six realms of samsaric rebirth.
 
 At this time, the idea of ​​​​seeking liberation will arise in the mind, and in this way, one will enter the path of the Middle Scope.
 
