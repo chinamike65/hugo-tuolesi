@@ -392,6 +392,8 @@ Appendix 2 - Heart Sutra Ritual for Exorcism ...................................
 
 ##### Heart Sutra
 
+![心经](/images/heartsutra.png)
+
 **Prajna-paramita Heart Sutra**
 
 Translated by Xuan Zang, a master of Tang Sanzang
@@ -404,7 +406,7 @@ Form is emptiness; emptiness is form. Emptiness is not other than form; form is 
 
 The emptiness of the Dharma does not arise, does not perish, is not defiled, is not pure, does not increase, and does not decrease. Therefore, the sky has no form, no feelings, thoughts, actions, consciousness, no eyes and ears.
 
-no eye, no ear, no nose, no tongue, no body, no mind; no visible form, no sound, no odour, no taste, no texture and no mental objects; there is no eye element up to no mind element and as far as no mental consciousness element; there is no ignorance, no extinction of ignorance up to no old age and death, no extinction of old age and death.
+No eye, no ear, no nose, no tongue, no body, no mind; no visible form, no sound, no odour, no taste, no texture and no mental objects; there is no eye element up to no mind element and as far as no mental consciousness element; there is no ignorance, no extinction of ignorance up to no old age and death, no extinction of old age and death.
 
 Likewise, there is no suffering, no origin, no cessation and no path, no wisdom, no attainment, and no non-attainment.
 
@@ -440,7 +442,7 @@ Cultivators eliminate karmic obstacles, accumulate blessings, cut off affliction
 
 It is precisely because the Prajna Sutra has such extraordinary merits that when preaching the sutra, the Buddha would personally offer his throne to show his respect.
 
-Even the Buddha respects the Prajna Sutra, and we ordinary people even more so.
+Even the Buddha respects the Prajna Sutra, and we ordinary people should do so even more.
 
 I am now sitting on the Dharma seat to teach the scriptures, not to respect myself, but to respect the Prajna Sutra all the time in my heart.
 
@@ -451,7 +453,7 @@ Earlier, there were not only these seven versions but eleven versions in total a
 
 According to the "Heart Sutra" translated by Master Fayue, when Buddha Shakyamuni taught the "Heart Sutra", among the people who listened to the sutra, there were hundreds of thousands of monks, and there were 77,000 great Bodhisattvas. The Heart Sutra translated by Master Xuan Zang does not have these. We should read all the seven versions carefully, and think carefully about where the Heart Sutra is spoken, who the audience were at that time, how many bodhisattvas, and how many great ones were there. Knowing this, monks, will be of great help in understanding the Heart Sutra, and it will be easier to understand what the Heart Sutra is talking about.
 
-Section 3 - Meaning of the Heart Sutras
+**Section 3 - Meaning of the Heart Sutras**
 
 Different versions of the Heart Sutra have different names. What we are going to talk about today is the Heart Sutra translated by Master Xuan Zang.
 
@@ -463,11 +465,11 @@ The "Heart Sutra" we are going to talk about today is Master Xuan Zang's transla
 
 "Prajnaparamita" is a literal translation of Sanskrit. "Prajna" means great wisdom, the wisdom of realizing emptiness. "Paramita,"
 
-The most accurate Sanskrit word for it is "Bharamada," which means "to reach the other shore." "Prajna Paramita" means that we need to go from this shore of constant samsara and suffering to the other shore of liberation and Buddhahood. If you truly understand the "Heart Sutra" and follow the guidance of the "Heart Sutra", you can realize emptiness, and rely on the wisdom of emptiness to escape samsara. If you combine bodhicitta and practice the six stages of the Bodhisattva Path, you can become a Buddha.
+The most accurate Sanskrit word for it is "Paramita," which means "to reach the other shore." "Prajna Paramita" means that we need to go from this shore of constant samsara and suffering to the other shore of liberation and Buddhahood. If you truly understand the "Heart Sutra" and follow the guidance of the "Heart Sutra", you can realize emptiness, and rely on the wisdom of emptiness to escape samsara. If you combine bodhicitta and practice the six stages of the Bodhisattva Path, you can become a Buddha.
 
 "Heart" includes the fleshly heart, the false heart, and the true heart. 
 
-Our heart is the heart of flesh, the delusional heart is the heart that produces afflictions, and the sincerity is the heart of cultivating the Way. "Heart" in "Heart Sutra" has two meanings, one refers to the true heart, that is, the heart that realizes emptiness. The second refers to the core, which means that the Heart Sutra is the core and essential of the Great Prajna Sutra.
+Our heart is the heart of flesh, the delusional heart is the mind that produces afflictions, and the sincerity is the heart of cultivating the Way. "Heart" in "Heart Sutra" has two meanings, one refers to the true heart, that is, the mind that realizes emptiness. The second refers to the core, which means that the Heart Sutra is the core and essential of the Great Prajna Sutra.
 
 "Jing" has four meanings: penetrating, capturing, constant, and dharma.
 
@@ -475,19 +477,19 @@ Our heart is the heart of flesh, the delusional heart is the heart that produces
 
 "Action" means to guide sentient beings into Buddhism. The 84,000 Dharma Doors preached by the Buddha can cure all the afflictions of sentient beings and lead them to liberation.
 
-"Always" means everlasting. The Buddhadharma is an unchanging truth. The Dharma taught by Buddha Shakyamuni, needless to say 2,500 years ago, still makes sense now. Even after a few thousand years, there will be no problem, because what the Buddha taught is: The ultimate truth, while the doctrine of emperors or scholars is not necessarily a complete truth, and will change with the the times.
+"Always" means everlasting. The Buddhadharma is an unchanging truth. The Dharma taught by Buddha Shakyamuni 2,500 years ago, still makes sense now. Even after a few thousand years, there will be no problem, because what the Buddha taught is: The ultimate truth, while the doctrine of emperors or scholars is not necessarily a complete truth, and will change with the the times.
 
-"Dharma" means law. The Buddhadharma is the Dharma that all sentient beings in the ten directions follow. Bodhisattvas must follow the Prajna Sutra to attain the status of Buddhahood, and Arhats must also achieve the status of Arhats according to the Prajna Sutra. The three vehicles of sravaka, karma, and bodhisattvas can only be achieved by following the Dharma taught in the Prajna Sutra.
+"Dharma" means law. The Buddhadharma is the Dharma that all sentient beings in the ten directions follow. Bodhisattvas must follow the Prajna Sutra to attain the status of Buddhahood, and Arhats must also achieve the status of Arhats according to the Prajna Sutra. The three vehicles of sravakas, pratyekabuddhas, and bodhisattvas can only be achieved by following the Dharma taught in the Prajna Sutra.
 
 ##### Chapter 4 - "Heart Sutra"
 
-The Heart Sutra contains a wide range of content and meanings. It can be said that all of the five major treatises of Tibetan Buddhism are the Heart Sutra. The "Theory of Interpretation" is about the logic of the Heart Sutra, the "Theory of Present View and Majesty" is about the order of the path in the Heart Sutra, The Middle Mind is about the emptiness of the explicit meaning of the Heart Sutra, The "Treatise on Evacuation" talks about the number theory in the Heart Sutra, including the number of afflictions, the order of the path, the thirty-seven paths and the six stages, etc. The "Treatise on Precepts" talks about the practice of the Heart Sutra.
+The Heart Sutra contains a wide range of content and meanings. It can be said that all of the five major treatises of Tibetan Buddhism are the Heart Sutra. The "Theory of Interpretation" is about the logic of the Heart Sutra, the "Theory of Present View and Majesty" is about the order of the path in the Heart Sutra, The Middle Mind is about the emptiness of the explicit meaning of the Heart Sutra, The "Treatise on Evaluation" talks about the number theory in the Heart Sutra, including the number of afflictions, the order of the path, the thirty-seven paths and the six stages, etc. The "Treatise on Precepts" talks about the practice of the Heart Sutra.
 
-The whole "Heart Sutra" talks about "people without self" and "dharma without self", and also includes the eighteen realms, the profound emptiness and eight dharmas, the Four Noble Truths, the Twelve Dependent Origination, and the Three Vehicles. It is a method of combining explicit and secret, so it is divided into explicit, implicit and secret meanings in terms of content.
+The whole "Heart Sutra" talks about "people without self" and "dharma without self", and also includes the eighteen realms, the profound emptiness and eight dharmas, the Four Noble Truths, the Twelve Causal Links of Dependent Origination, and the Three Vehicles. It is a method of combining explicit and secret, so it is divided into explicit, implicit and secret meanings in terms of content.
 
 The explicit meaning of the Heart Sutra refers to the literal meaning and speaks of emptiness. Different schools of Buddhism have different views, and way the "Heart Sutra" is explained is different. The Gelug School of Tibetan Buddhism interprets emptiness according to the viewpoint of the Madhyamika Prasanghika School, and most of Chinese Buddhism is based on the Mind-Only School. There is also a slight difference between the teachings of Sutra and Tantra. The content of the Heart Sutra is the same. Why are there different explanations? This is because the masters have different levels of understanding. Those who have a shallower understanding will speak a little more shallowly, while some masters have a deep understanding and speak more deeply.
 
-The hidden meaning of the Heart Sutra is the stages of the Dharma, which are the five Paths. The five paths are the five paths of the Mahayana, the five paths of the Hinayana, and the five paths of the Shravaka and the five paths of predestination. There are fifteen paths in total. If this teaching is fully expanded, the entire Three Aspects of the Path will be finished.
+The hidden meaning of the Heart Sutra is the stages of the Dharma, which are the five Paths. The five paths are the five paths of the Mahayana, the five paths of the Hinayana, and the five paths of the Shravaka and the five paths of Pratyekabuddhas. There are fifteen paths in total. If this teaching is fully expanded, the entire Three Aspects of the Path will be finished.
 
 The Heart Sutra contains 84,000 teachings. Regarding the hidden meaning of the "Heart Sutra", the masters of Tibetan Buddhism have explained it more satisfactorily, and the masters of the Gelugpa School have explained it excellently.
 

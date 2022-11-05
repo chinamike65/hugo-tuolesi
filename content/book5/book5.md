@@ -410,7 +410,7 @@ draft: false
 
 ![心经](/images/heartsutra.png)
 
-般若波罗蜜多心经
+**般若波罗蜜多心经**
 
 唐三藏法师玄奘译
 
