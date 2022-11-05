@@ -226,7 +226,7 @@ Section 3 -  Merits of the Bodhisattva ………………. 98
 
 Section 1 - Eighteen Dhatus …………………….. 103
 
-Section 2 - Twelve Links of Dependent Origination……………… 104
+Section 2 - Twelve Links of Dependent Origination …………… 104
 
 Section 3 -  Path to  Enlightenment  ……………….. 109
 
@@ -2366,47 +2366,47 @@ If you are a monk, you cannot donate your own cassock.
 
 When the Bodhisattva in the second place is cultivating the ten paramitas, he especially needs to practice the paramita of the precepts. The bodhisattva from the second place will not break the precepts even in a dream.
 
-The bodhisattvas of the three places especially need to practice forbearance and humiliation Paramita.
+The bodhisattvas of the third bhumi especially need to practice forbearance and humiliation Paramita.
 
-Starting from the three places, the bodhisattva's ability to endure humiliation is very strong. If all the sentient beings in the three thousand great thousand worlds become the enemy of the bodhisattva and trouble him together, he will not be troubled.
+Starting from the third bhumi, the bodhisattva's ability to endure humiliation is very strong. If all the sentient beings in the three thousand great thousand worlds become the enemy of the bodhisattva and trouble him together, he will not be troubled.
 
 What the bodhisattvas of the four realms need to cultivate is the paramita of diligence. At this time, the bodhisattvas are so diligent that they are not lazy even in their dreams.
 
-What the Bodhisattvas of the Five Grounds should cultivate in particular is the meditation on Paramita.
+What the Bodhisattvas of the fifth bhumi should cultivate in particular is the meditation Paramita.
 
-It is inconceivable that the Bodhisattva of the Five Grounds can enter and exit millions of different meditations in an instant.
+It is inconceivable that the Bodhisattva of the fifth bhumi can enter and exit millions of different meditations in an instant.
 
-What the Bodhisattvas of the Six Grounds need to cultivate in particular is the Paramita of Wisdom.
+What the Bodhisattvas of the Sixth bhumi need to cultivate in particular is the Paramita of Wisdom.
 
-Starting from the six realms, the wisdom of the bodhisattva will be very vast, the wisdom of the two truths will gradually be perfected, and the wisdom of the mundane truth will surpass that of an arhat.
+Starting from the Sixth bhumi, the wisdom of the bodhisattva will be very vast, the wisdom of the two truths will gradually be perfected, and the wisdom of the mundane truth will surpass that of an arhat.
 
-What the Bodhisattvas of the Seven Grounds need to cultivate in particular is the convenient paramita.
+What the Bodhisattvas of the Seventh bhumi need to cultivate in particular is the convenient paramita.
 
 There are two kinds of convenient paramitas: the convenience of saving sentient beings and the convenience of cultivating Buddhahood.
 
-Bodhisattvas in the seven places or above will not have great difficulty in saving sentient beings, because they possess the convenient wisdom and convenient methods needed to save sentient beings.
+Bodhisattvas in the seventh bhumi or above will not have great difficulty in saving sentient beings, because they possess the convenient wisdom and skillful means needed to save sentient beings.
 
 The expedient wisdom of cultivating Buddhahood is to accumulate good roots, big and small, to share with all sentient beings, and to dedicate to the supreme Bodhi, so the blessings are immeasurable and endless.
 
-What the Bodhisattvas of the Eighth Ground need to cultivate in particular is the vow Paramita.
+What the Bodhisattvas of the Eighth bhumi need to cultivate in particular is the vow Paramita.
 
-When the Bodhisattva is in the eight places, the power of vows is inconceivable and miraculous, and all the vows that can be fulfilled will be fulfilled.
+When the Bodhisattva is in the eighth bhumi, the power of vows is inconceivable and miraculous, and all the vows that can be fulfilled will be fulfilled.
 
 For example, if someone wishes to have one's wishes, this wish will surely come true.
 
 95
 
-The nine-place Bodhisattva specially cultivated Liparamita.
+The Bodhisattva of the Ninth Level specially cultivates the paramita of.
 
-Liparamita is a kind of extraordinary wisdom that is vast in its own body and cannot be damaged by other forces.
+The paramita of ... is a kind of extraordinary wisdom that is vast in its own body and cannot be damaged by other forces.
 
-The Bodhisattvas of the Ten Grounds especially cultivated Wisdom Paramita.
+The Bodhisattvas of the Tenth Level especially cultivates Wisdom Paramita.
 
 Wisdom Paramita is the emptiness of all dharmas in the mind.
 
-After the Buddhas and Tathagatas imparted the great light empowerment to the Bodhisattvas of the Ten Grounds, the Bodhisattvas of the Ten Grounds will soon be able to master all the dharmas and realize the Great Bodhi.
+After the Buddhas and Tathagatas imparted the great light empowerment to the Bodhisattvas of the Tenth Bhumi, the Bodhisattvas of the Tenth Bhumi will soon be able to master all the dharmas and realize the Great Bodhi.
 
-From one place to ten places, the Bodhisattva and Bodhisattvas who have attained the Way are called after attaining the Way. At this time, the way to cultivate is the Noble Eightfold Path.
+From the first bhumi to the tenth bhumi, the Bodhisattva and Bodhisattvas who have attained the Way are called after attaining the Way. At this time, the way to cultivate is the Noble Eightfold Path.
 
 ##### Section 2 - Noble Eightfold Path
 
@@ -2420,7 +2420,7 @@ The Noble Eightfold Path is Right View, Right Thought, Right Speech, Right Actio
 
 **Right Thought** - also called Right Thinking and Right Intention, is the correct thinking and understanding of the Four Noble Truths and other Buddhist principles.
 
-96
+#### {#pg-96}
 
 **Right Speech** - Don't speak any non-Buddhist language.
 
