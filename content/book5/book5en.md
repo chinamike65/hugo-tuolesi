@@ -493,7 +493,7 @@ The hidden meaning of the Heart Sutra is the stages of the Dharma, which are the
 
 The Heart Sutra contains 84,000 teachings. Regarding the hidden meaning of the "Heart Sutra", the masters of Tibetan Buddhism have explained it more satisfactorily, and the masters of the Gelugpa School have explained it excellently.
 
-The esoteric meaning of "Heart Sutra" is about the second class of tantra, which requires a master who is proficient in the four tantras to explain it clearly.
+The esoteric meaning of "Heart Sutra" is about the second class of tantra, which requires a master who is proficient in the four classes of tantra to explain it clearly.
 
 In terms of the method of explanation, it can be explained in broad, medium and short ways. You can briefly talk about the whole Heart Sutra first, and then talk about it in detail and in-depth. Or first the explicit meaning, then the implicit meaning, and finally the secret meaning. We use the latter explanation method, which will be easier to understand.
 
@@ -559,7 +559,7 @@ All the speeches of all living beings are spoken with various sounds.
 
 This is the merit of the speech of the Buddha.
 
-The Buddha can understand the language of all sentient beings, and can preach the Dharma sound to all sentient beings without hindrance. All sentient beings hear the language they can understand and the Dharma door they need.
+The Buddha can understand the language of all sentient beings, and can preach the Dharma to all sentient beings without hindrance. All sentient beings hear the language they can understand and the Dharma door they need.
 
 The Buddha can also answer all the questions of sentient beings with one tone at the same time, regardless of the depth of their foundation and wisdom.
 
@@ -569,25 +569,25 @@ The mind is at ease, which means that the mind is settled. Wherever the mind is,
 
 If your heart is always on Bodhicitta, and you can generate great kindness and compassion for all sentient beings, you will be at ease.
 
-Our ordinary minds are not at ease, and we often think about afflictionsome and painful things involuntarily, and we don’t think about them deliberately, but we cannot control them.
+Our ordinary minds are not at ease, and we often think about afflictions and painful things involuntarily. We don’t think about them deliberately, but we cannot control them.
 
 Avalokitesvara Bodhisattva already possesses these three qualities of freedom.
 
 In addition to this, Buddhas and Bodhisattvas have other free qualities.
 
-God becomes free, that is, the supernatural power is free; it can travel freely, and can freely enter and leave the universe and the pure land beyond the world; career is free, doing things can be achieved by one's own will; free at will, what you want is what you want; , including the eight free qualities of Buddhas and Bodhisattvas.
+Buddha becomes free, that is, the supernatural power is free; it can travel freely, and can freely enter and leave the universe and the pure land beyond the world; career is free, doing things can be achieved by one's own will; free at will, what you want is what you want; , including the eight free qualities of Buddhas and Bodhisattvas.
 
 12
 
-Second, a brief description of six degrees "Deep Prajnaparamita"
+Second, a brief description of the six perfections of the "Profound Prajna Paramita"
 
 "Performance" refers to the ten thousand actions of the Bodhisattva, which is the work done by the Bodhisattvas, including the six perfections, that is, the six paramitas.
 
-Paramita is a literal translation of Sanskrit, including the Paramita of Generosity, Paramita of Discipline, Paramita of Patience, Paramita of Diligence, Paramita of Meditation, and the Paramita of Wisdom.
+Paramita is a transliteration of the Sanskrit, including the Paramita of Generosity, Paramita of Discipline, Paramita of Patience, Paramita of Diligence, Paramita of Meditation, and the Paramita of Wisdom.
 
-"Deep" - the six paramitas are deep.
+"Profound" - the six paramitas are profound.
 
-Here, when Guanyin Bodhisattva entered the deep prajnaparamita to meditate on emptiness, he talked about emptiness to Sariputra.
+Here, when Guanyin Bodhisattva entered the profound prajna paramita to meditate on emptiness, he talked about emptiness to Sariputra.
 
 Buddhas and Bodhisattvas can realize the nature of emptiness. From the point of view of ordinary people, they find it inconceivable.
 
@@ -595,7 +595,7 @@ Buddhas and Bodhisattvas can realize the nature of emptiness. From the point of 
 
 Wisdom is divided into wisdom of emptiness and wisdom of the world, and wisdom of prajna refers to the wisdom of realizing emptiness.
 
-"Paramita" means to the other side.
+"Paramita" means to cross to the other side.
 
 This sentence means that relying on the wisdom of emptiness to stay away from this shore of the cycle of birth and death, to reach the other shore of liberation, is Prajnaparamita.
 
@@ -611,7 +611,7 @@ The whole sentence "when practicing deep prajna-paramita" refers to the time whe
 
 The five aggregates are all empty, according to the meaning of the word, the five aggregates are empty.
 
-According to the understanding of ordinary people, emptiness means nothing, and does the five aggregates be empty mean that there are no five aggregates?
+According to the understanding of ordinary people, emptiness means nothing, and does the five aggregates being empty mean that there are no five aggregates?
 
 No, it means that the self-nature of the five aggregates is empty, which means that the five aggregates have no self-nature, but it does not mean that the five aggregates do not exist.
 
@@ -659,7 +659,7 @@ If this teacup is free, it should not depend on anything to exist, but in fact, 
 
 That is to say, there is no such thing as ever-in-itself, and all things depend on you and me, and I depend on you, and exist in an interdependent relationship.
 
-The teacup is not always free, it has no self-nature, the form aggregate has no self-nature, not only the form aggregate, the five aggregates have no self-nature, and they are empty without self-nature, so the five aggregates are empty.
+The teacup is not always free, it has no self-nature, the form aggregate has no self-nature, not only the form aggregate, the five aggregates have no self-nature, and they are empty of self-nature, so the five aggregates are empty.
 
 Emptiness is difficult to understand.
 
@@ -682,7 +682,7 @@ Because they believed that Nagarjuna said that Buddha, Dharma, and Sangha do not
 4. Power of the Heart Sutra
 
 
-"Overcoming All Misery"
+"Overcoming All suffering"
 
 This is talking about the merits of the Heart Sutra.
 
@@ -694,7 +694,7 @@ Guanyin Bodhisattva transformed himself into a sickly old man and passed the Hea
 
 When Master Xuan Zang encountered demonic obstacles and difficulties on his way to obtain scriptures, he recited the Heart Sutra and passed through these ordeals.
 
-Therefore, when Master Xuan Zang translated the Heart Sutra, he added the phrase "to save all suffering".
+Therefore, when Master Xuan Zang translated the Heart Sutra, he added the phrase "to relieve all suffering".
 
 But I guess it shouldn't be.
 
@@ -704,7 +704,7 @@ Therefore, it could not have been added by Master Xuan Zang, as some masters say
 
 Buddha Shakyamuni used Sanskrit when he preached the scriptures. There are two types of scriptures recorded in India in the later period: Sanskrit and Pali. In some versions of the Heart Sutra, there is likely to be the sentence "Saving all suffering."
 
-There is this sentence in the Great Prajna Sutra. Not only it, but also in the Great Prajna Sutra, it is said that any pain, trouble, or demonic obstacles can be overcome by reciting the Great Prajna Sutra.
+There is this sentence in the Great Prajna Sutra. Not only there, but also in the Great Prajna Sutra, it is said that any pain, trouble, or demonic obstacles can be overcome by reciting the Great Prajna Sutra.
 
 The Great Prajna Sutra has this kind of merit, and the Heart Sutra should have the same merit.
 
