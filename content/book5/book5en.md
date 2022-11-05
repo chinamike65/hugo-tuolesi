@@ -716,7 +716,7 @@ Not only that, but there is also an exorcism ritual at the end of the Tibetan ve
 
 When masters in Tibetan areas begin to teach sutras or encounter difficulties, they would use this ritual of exorcism to break through obstacles.
 
-Tibetan Buddhism also combines the "Heart Sutra" with esoteric methods, and uses the "Heart Sutra" to expel various rituals such as death demons.
+Tibetan Buddhism also combines the "Heart Sutra" with esoteric methods, and uses the "Heart Sutra" in various rituals to expel things such as death demons.
 
 The "du" in "to save all suffering" is translated as "du" in some versions.
 
@@ -734,7 +734,7 @@ Practising the Heart Sutra can save you from all pains, difficulties and afflict
 
 5.  Chief Disciple Shariputra
 
-Shariputra is also called Shariputra. In the Heart Sutra translated by Master Kumarajiva, he is called Shariputra. In other scriptures taught by Buddha, he is called Shariputra, and he is one of the chief disciples of Buddha.
+Shariputra is also called Sariputra. In the Heart Sutra translated by Master Kumarajiva, he is called Shariputra. In other scriptures taught by Buddha, he is called Sariputra, and he is one of the chief disciples of Buddha.
 
 Buddha Shakyamuni has two great disciples, Shariputra is the first in wisdom, and Maudgalyāyana the first in supernatural powers.
 
@@ -749,7 +749,9 @@ Here is the real beginning of the Heart Sutra.
 
 19
 
-Statue of Shariputra
+![舍利弗像](/images/shariputra.png)
+
+**Statue of Shariputra**
 
 ##### Chapter 3 - Human beings without self and the Bodhisattva Path of Accumulation
 
@@ -761,7 +763,7 @@ Mahayana Buddhism's understanding of the Buddha's Dependent Origination of Empty
 
 Regarding emptiness, the Mind-Only School believes that all dharmas are empty and only changed by the mind.
 
-Seeing "colorless, scented, touch, dharma, no vision, and even the world of unconsciousness" , the Mind-Only School believes that this is saying that all dharmas do not exist in the external environment, but only exist in the heart. This is the emptiness that the Consciousness-Only School understands.
+Seeing "colorless, scented, touch, dharma, no vision, and even the world of unconsciousness" , the Mind-Only School believes that this is saying that all dharmas do not exist in the external environment, but only exist in the mind. This is the emptiness that the Mind-Only School understands.
 
 For example, for a glass of water, the Mind-Only School believes that if a glass of water exists in the external environment, it should always be water, and what any living being sees should be water.
 
