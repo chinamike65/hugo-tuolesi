@@ -109,9 +109,9 @@ The unwholesome karma collected without beginning, death and falling into an evi
 
 Can get rid of all fears as a refuge, the truth is not empty, there is no other place, devoutly take refuge in the Three Jewels to receive learning, do not follow and seek blessings.
 
-Black and white karma feels bitter and joyful fruits, and each should receive diligence and stop doing it.
+Black and white karma feels bitter and joyful fruits, and each should practice diligence and stop doing it.
 
-Diligently cultivate the cause of white karma in this life, once you gain the good body of people and gods, you cannot overcome the suffering of your own nature.
+Diligently cultivate the causes of white karma in this life, once you gain the good body of people and gods, you cannot overcome the suffering of your own nature.
 
 There are seas that are not free, and doing this mischief is delusional karma.
 

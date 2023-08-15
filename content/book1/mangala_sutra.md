@@ -6,7 +6,7 @@ draft: false
 
 ### Blessings
 
-So I have heard. 
+Thus have I heard. 
 At one time the Buddha was staying near Sāvatthī in Jeta’s Grove, Anāthapiṇḍika’s monastery. 
 
 Then, late at night, a glorious deity, lighting up the entire Jeta’s Grove, went up to the Buddha, bowed, and stood to one side. 
