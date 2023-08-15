@@ -122,7 +122,7 @@ However, although liberation can be obtained, it is a pity that it is self-inter
 
 Although the grievances and grievances are now in the middle, there is no decision to think about each other. You should not vainly divide your likes and dislikes, and diligently cultivate your equanimity and seek blessings.
 
-The circulation of life and death has no beginning, and there is no beginning to be born in the womb. Therefore, knowing that all sentient beings are mothers, I wish to see and seek blessings.
+The cycle of life and death has no beginning, and there is no beginning to be born in the womb. Therefore, knowing that all sentient beings are our mothers, I wish to see and seek blessings.
 
 In this life, I love my mother the most, and all mothers love and protect me the same way. Thinking that this kindness has not been repaid, I remember my mother’s kindness and ask for blessings.
 
