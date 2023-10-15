@@ -8,7 +8,7 @@ pre = "<b>108. </b>"
 
 ### 上师最新开示 - 108开示
 
-## Master Ah Wang Gyatso
+### Master Ah Wang Gyatso Dharma Talks
 
 This is the latest series of talks by Ah Wang Gyatso - 108 Dharma Talks.
 
