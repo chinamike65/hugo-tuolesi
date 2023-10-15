@@ -1,7 +1,7 @@
 +++
 title = "上师最新开示 - 108开示"
 date = 2023-10-15T16:33:24+02:00
-weight = 5
+weight = 12
 chapter = true
 pre = "<b>1. </b>"
 +++
