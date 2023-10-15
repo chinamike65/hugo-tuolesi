@@ -6,7 +6,7 @@ chapter = true
 pre = "<b>1. </b>"
 +++
 
-### 法海宝藏（一)
+### 上师最新开示 - 108开示
 
 ## Master Ah Wang Gyatso
 
