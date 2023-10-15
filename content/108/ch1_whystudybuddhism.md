@@ -8,3 +8,4 @@ draft: false
 
 ### 为什么要学佛?
 
+Why study Buddhism?
